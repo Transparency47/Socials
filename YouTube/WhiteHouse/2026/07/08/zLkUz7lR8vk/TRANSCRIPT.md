@@ -1,0 +1,388 @@
+<!-- source: https://www.youtube.com/watch?v=zLkUz7lR8vk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: zLkUz7lR8vk -->
+<!-- date_published: 2026-07-08T16:38:50+00:00 -->
+<!-- date_accessed: 2026-07-08T17:38:28.785699+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the President of the Syrian Arab Republic
+
+- [00:00.480] Well, thank you very much. I'm with the
+- [00:02.720] highly respected president of Syria and
+- [00:06.480] we are uh working together. We were
+- [00:09.679] right from the beginning. We were
+- [00:11.519] responsible along with actually
+- [00:14.320] president Erdogan
+- [00:17.039] uh also felt very strongly and uh he's
+- [00:20.480] done a really fantastic job as
+- [00:22.160] president. He's unified the country in a
+- [00:24.320] very short period of time. I'd say like
+- [00:25.760] a year and a half about a year and a
+- [00:28.160] half and right from the beginning it was
+- [00:30.880] a real mess. It was a very uh disjointed
+- [00:35.680] place and he's brought it together. He's
+- [00:38.719] a strong person. He's a great leader.
+- [00:41.680] He's respected by everybody including me
+- [00:44.960] and we're proud to have him together.
+- [00:47.039] We're just here to talk a little bit. We
+- [00:49.200] we released sanctions from the country
+- [00:51.760] which really I think was a big boost.
+- [00:53.840] sanctions was a very important thing and
+- [00:56.800] we're proud of the job he's doing.
+- [00:58.399] Syria's uh become a very stable I mean
+- [01:02.320] it's amazing in a short period of time
+- [01:04.720] it's really been stabilized and we're
+- [01:07.200] proud of that and to be part of the
+- [01:09.680] Middle East. Syria had one of the great
+- [01:12.240] cultures, the professors and lawyers and
+- [01:15.840] doctors. It had one of the great
+- [01:17.360] cultures of any country, not just Middle
+- [01:19.680] East, and then it went through this
+- [01:21.600] terrible period of time, but uh it's a
+- [01:25.759] country that a lot of people are very
+- [01:27.040] proud of and they're proud of the job
+- [01:28.320] he's done. Thank you very much, Mr.
+- [01:30.080] President.
+- [01:31.920] like to say something.
+- [01:41.600] We have made a great achievement in the
+- [01:43.680] tobling of the former regime.
+- [01:52.479] And as President Trump said in a year
+- [01:54.880] and a half, we made an achievement in
+- [01:56.799] bringing the country together, unifying
+- [01:58.880] the country and put it back on track.
+- [02:05.439] Of course, uh this is due to our strong
+- [02:07.759] people, the strong Syrian people that
+- [02:09.679] President Trump talked about.
+- [02:15.200] Then the historic decision that
+- [02:17.360] President Trump has taken by lifting the
+- [02:19.840] sanctions of Syria
+- [02:25.920] as well as the help of friendly
+- [02:28.319] countries and loving countries in the
+- [02:29.920] region, Turkey and other countries in
+- [02:32.239] our neighborhood.
+- [02:37.280] >> Uh the entire Syrian people thanks
+- [02:39.200] President Trump.
+- [02:40.480] >> Thank you.
+- [02:41.120] >> Thank you very much. Proud of you.
+- [02:44.239] >> You have any questions?
+- [02:45.680] >> Are you going to remove Syria from the
+- [02:47.280] state sponsor of terrorism list?
+- [02:49.599] >> I think I will. Yeah,
+- [02:51.760] >> I think I will.
+- [02:53.599] >> Why wouldn't I? He's done a great job.
+- [02:59.040] >> Maybe he would have brought that up in a
+- [03:00.800] little you brought that's a good
+- [03:02.720] question. Yeah. Uh any problems with
+- [03:04.720] that? I think we should.
+- [03:06.080] >> Yeah, I will.
+- [03:07.440] >> Do you still want Syria to help with
+- [03:08.959] Hezbollah in Lebanon?
+- [03:10.319] >> It could help. We'll find out. But I
+- [03:11.760] think we're making a lot of progress,
+- [03:13.920] but they could help. He would do he
+- [03:15.680] would do a very good job.
+- [03:17.040] >> Prime Minister has been critical of your
+- [03:20.640] relationship last couple days with
+- [03:22.879] President Erdogan of Turkey. He said
+- [03:24.720] that
+- [03:27.360] everyone has imply.
+- [03:31.360] >> Well, he hasn't been involved with, you
+- [03:33.120] know, if you think he hasn't been
+- [03:34.239] involved with Israel at all and he's
+- [03:37.040] left it alone. I wouldn't say he's a
+- [03:40.480] friend because he's not a friend of as
+- [03:42.799] you know of Netanyahu or they don't get
+- [03:47.040] along I think but you know I for me he's
+- [03:50.720] been great look Turkeykey's been
+- [03:52.080] fantastic and a fantastic ally they're
+- [03:54.080] also a NATO country and uh Israel we've
+- [03:57.920] done no president's done as much for
+- [04:00.080] Israel as I have nobody even close if
+- [04:02.159] you look at I mean just look at all the
+- [04:04.400] things with Jerusalem all the different
+- [04:06.159] things that we've done um the Golan
+- [04:09.200] Heights I did things nobody has ever
+- [04:11.840] done anything for Israel like me and
+- [04:14.480] we've made tremendous progress and we're
+- [04:16.479] going to we've made a lot of progress
+- [04:18.400] with Iran too wiped out their military
+- [04:21.359] but they it should have been done 47
+- [04:23.520] years ago
+- [04:24.880] >> do you think that uh that should be
+- [04:27.840] reelected
+- [04:30.160] >> I can tell you this he's been a great
+- [04:31.919] wartime president we worked out prime
+- [04:34.720] minister he so we work with each other
+- [04:36.880] very closely
+- [04:38.479] and we went through a very big thing. We
+- [04:41.759] did a big thing together. And in my
+- [04:43.600] opinion, he's been a great wartime prime
+- [04:46.240] minister. I don't know anything about
+- [04:47.600] his politics. I'm not sure. I would
+- [04:50.639] think he should be popular because he
+- [04:52.080] did a very good job. We had a we had and
+- [04:54.479] have a very good relationship,
+- [04:56.800] but he was a great wartime prime
+- [04:59.199] minister.
+- [05:00.960] >> If you had other prime ministers, you
+- [05:02.560] know what? It wouldn't be in Israel
+- [05:03.919] right now. You know that there wouldn't
+- [05:06.080] be. It would have been blown to pieces
+- [05:07.520] by Iran.
+- [05:09.600] >> If you had a different if you had a weak
+- [05:11.520] prime minister,
+- [05:13.360] uh you wouldn't have and if you had a
+- [05:15.440] different president, I guarantee there
+- [05:17.039] wouldn't be an is it wouldn't Israel
+- [05:19.280] wouldn't exist today if you didn't have
+- [05:22.400] >> me as president
+- [05:30.560] in the month of April under your
+- [05:31.840] leadership.
+- [05:32.400] >> That's right. Why is it important to
+- [05:34.400] keep hitting numbers like this at this
+- [05:36.479] moment in time? Why is it important that
+- [05:38.240] you were able to get this done and keep
+- [05:39.759] it on this?
+- [05:40.960] >> Well, we, you know, when we decided to
+- [05:43.039] do this, it's called the
+- [05:44.240] denuclearization of Iran. We have to do
+- [05:46.479] it. We have to have they're not they're
+- [05:48.160] never going to have a nuclear weapon.
+- [05:50.080] And they admit they're never going to
+- [05:51.680] have it, but they behave badly. Always
+- [05:53.680] behave badly. There's something wrong
+- [05:55.199] with them. But, uh, when we did this, we
+- [05:58.320] thought oil would go much higher,
+- [06:00.639] >> and it didn't go very high. Now it's
+- [06:02.240] coming way down and you're going to see
+- [06:03.680] oil drop very low. Now maybe we'll do
+- [06:07.440] some other things that could lift it a
+- [06:09.039] little bit, but I don't think it's going
+- [06:10.240] to lift it a lot at all. I think oil is
+- [06:12.479] coming down. There's tremendous amounts
+- [06:14.160] of oil. Uh Scott, what would you say
+- [06:16.960] about that?
+- [06:18.639] >> Yes. So record production under
+- [06:21.280] President Trump in his first term, now
+- [06:23.199] in his second term. The US is an energy
+- [06:25.360] superpower. It's why we weathered the
+- [06:27.759] the conflict better than anyone else.
+- [06:30.560] And there there just this weekend
+- [06:33.120] Bloomberg wrote that there is an oil
+- [06:34.880] glutton out there and we we think that
+- [06:38.479] safe secure American oil maybe even
+- [06:41.280] should trade at a premium to the rest of
+- [06:43.120] the world. So we have, if you add it up,
+- [06:46.240] uh, you take Saudi Arabia and take
+- [06:49.199] Russia, two big oil producers, we do
+- [06:52.560] more than twice as much. We do more than
+- [06:55.759] think of it. Saudi Arabia, Russia put
+- [06:57.600] together, we do more. And that's not
+- [06:59.599] including Venezuela.
+- [07:01.759] It's pretty amazing. And this all
+- [07:04.080] happened during my term. We started it
+- [07:06.560] at first term. Biden blew it because he
+- [07:09.840] had no idea what he was doing. But we uh
+- [07:12.560] we are making we are producing more oil
+- [07:14.560] right now than Saudi Arabia and Russia
+- [07:17.840] combined by by by almost double.
+- [07:21.680] >> Okay. Any other questions?
+- [07:23.680] >> Yes. Yes, ma'am.
+- [07:24.880] >> You said that dealing with Iran is a
+- [07:26.800] waste of time. How do you plan to get
+- [07:28.720] the nuclear material and the nuclear?
+- [07:31.599] >> Well, we've already got the nuclear
+- [07:32.960] material because it's so far
+- [07:34.240] underground. Nobody's going to be able
+- [07:35.759] to get it except us because we have the
+- [07:38.000] equipment that can get it.
+- [07:39.680] the I call it the nuclear test. The the
+- [07:42.639] nuclear material is so far down
+- [07:46.160] underneath a mountain and now it's
+- [07:48.000] that's been determined that it would
+- [07:50.319] take massive machinery that we have that
+- [07:52.560] no other country has.
+- [07:55.039] >> They can't get it.
+- [07:55.680] >> So you have no plans to go in on the
+- [07:57.520] ground?
+- [07:57.919] >> Why would I go in now? I'd go in when
+- [08:00.319] they're completely either eliminated or
+- [08:02.319] whatever or an agreement's made.
+- [08:04.639] >> Mr. President,
+- [08:07.680] does that You're going to have to
+- [08:09.280] renegotiate a trade agreement with the
+- [08:11.599] EU.
+- [08:12.160] >> With who?
+- [08:12.879] >> With the EU. With the EU. Any
+- [08:16.400] >> um
+- [08:17.680] >> we're going to see what happens with the
+- [08:18.960] EU. You know, they've treated us very
+- [08:21.360] badly for years and they took advantage
+- [08:24.400] us. Look, we're very close to those
+- [08:26.879] countries, right? And to uh everybody in
+- [08:31.199] the EU. The problem is they took
+- [08:32.719] advantage of the United States for
+- [08:34.240] years. Just like him. They took
+- [08:36.159] advantage of Syria. He's bringing it
+- [08:37.760] back and I'm bringing the United States
+- [08:40.159] back. We have the greatest economy we've
+- [08:42.080] ever had. We have the biggest
+- [08:43.360] investment. 19.2 trillions being
+- [08:46.080] invested right now in the United States.
+- [08:49.360] Three three trillion was the number, the
+- [08:51.440] record under Biden and under the past
+- [08:54.480] administration. They had less than a
+- [08:56.480] trillion for four years. We have 19.2
+- [08:59.839] trillion in 12 months. Think of that. We
+- [09:03.519] had the largest amount of money being
+- [09:05.519] invested in a country in history. Pretty
+- [09:07.920] amazing. 19.2 trillion with a T. So, uh,
+- [09:13.120] and they're building factories all over
+- [09:14.640] the country. I think yesterday to Toyota
+- [09:16.800] announced they're leaving Mexico
+- [09:19.360] and they're coming I'm not that Mexico's
+- [09:21.040] thrilled about it but they're leaving
+- [09:22.800] Mexico or they're coming to the United
+- [09:25.360] States to build what will be I believe
+- [09:28.480] the largest automobile plant either in
+- [09:30.959] the world or at least in this country
+- [09:35.839] >> domestic question you announced on
+- [09:37.839] social a couple days ago that Walmart is
+- [09:40.000] cutting
+- [09:43.120] how big of a deal is
+- [09:45.839] So Walmart has agreed to cut their
+- [09:47.760] prices very substantially because things
+- [09:50.080] are going down. We're getting it down.
+- [09:52.080] We inherited very high prices. We
+- [09:54.160] inherited the highest prices in the
+- [09:56.399] history of our country or 48 years to be
+- [09:59.519] exact. But I don't believe that. I think
+- [10:00.959] it's a history. So under Biden, they had
+- [10:03.440] tremendous inflation. Under the
+- [10:04.959] Democrats, we had tremendous inflation.
+- [10:08.240] Record setting inflation. And now
+- [10:11.360] inflation is weighed. Everything is
+- [10:13.120] great. We have the prices are coming
+- [10:15.200] down. But we inherited, you know, they
+- [10:16.959] talk about different, they use different
+- [10:18.399] words to describe it. They had very high
+- [10:21.279] prices. The prices are coming down. And
+- [10:24.079] when the oil comes, you know, the oil is
+- [10:25.680] coming way down. The oil dropped by 50%
+- [10:29.600] in the last
+- [10:31.600] month.
+- [10:32.880] >> And when that comes down, it brings
+- [10:34.640] everything else down. No, it's
+- [10:36.320] affordability. And they came up with the
+- [10:38.480] word affordability. like I take over.
+- [10:41.600] I'm there for one day and they say
+- [10:43.279] affordability, affordability. I said
+- [10:45.839] I've been here for remember with the
+- [10:47.040] eggs the first day or two days later I
+- [10:49.839] have my first news and they talked about
+- [10:52.000] eggs. They said the eggs have gone up
+- [10:54.720] five times. I've been in office for one
+- [10:57.519] day. And I said, "Well, we'll have to do
+- [11:00.160] something. In fact, they told me not to
+- [11:02.160] order eggs for the Easter egg hunt at
+- [11:04.000] the White House. I should use plastic."
+- [11:07.040] I said, "We're not doing that." And by
+- [11:08.480] the time we came, it was a couple of
+- [11:09.839] months later that happened and we
+- [11:12.079] ordered thousands of eggs. And right now
+- [11:14.079] eggs are way down. The prices are way
+- [11:16.800] down and they're coming down further. So
+- [11:19.680] they made up a phony word that they
+- [11:22.160] used. They said affordability. They're
+- [11:24.079] the ones that cause the affordability
+- [11:25.519] prices. I didn't but I brought it down.
+- [11:28.079] And the oil is coming down very big.
+- [11:31.279] >> Crude is up slightly today on the
+- [11:33.200] >> a little bit. Yeah. Because we hit them.
+- [11:34.959] Anytime we hit them,
+- [11:36.880] >> it goes up a little bit. Two $2.
+- [11:39.120] >> Is that what you mean? Is that what you
+- [11:40.480] meant when you said that we might see
+- [11:41.760] oil prices lift a little in response?
+- [11:43.440] >> A little bit. Yeah. $2. Very little.
+- [11:46.079] >> It's down from let's say $135 down to
+- [11:50.320] $69.
+- [11:52.160] It's dropping. And everything else
+- [11:53.600] drops. When as oil goes, so goes
+- [11:56.399] everything else. But anytime we hit if
+- [11:58.640] we hit Iran, oil goes up a little bit.
+- [12:02.079] >> It's all right.
+- [12:03.440] >> And you know what we're doing? We're
+- [12:04.560] dnuking it. All right.
+- [12:06.560] >> We're dnuking Iran. They're not going to
+- [12:08.800] have a nuclear weapon. All right. One
+- [12:10.160] more question.
+- [12:10.959] >> Sir, do you think Israel should withdraw
+- [12:12.800] troops from southern Lebanon?
+- [12:14.639] >> Well, I talked to BB about that. Yeah, I
+- [12:16.399] think they're going to. I think they
+- [12:17.600] want to. I don't think it's a question
+- [12:18.720] of me. I think it's a they want to. And
+- [12:21.600] they're getting along with Lebanon.
+- [12:23.120] They're signing deals with Lebanon.
+- [12:25.360] First time ever. Marco, talk about that
+- [12:26.959] a bit.
+- [12:27.440] >> Yeah, we have an agreement that and it
+- [12:29.040] calls that's the goal at the end.
+- [12:30.639] Obviously, Israel's concerned about
+- [12:32.800] their security, but the president did a
+- [12:34.720] great job bringing those two countries
+- [12:36.079] together for the first time.
+- [12:37.279] >> It's a big thing. First time in many
+- [12:39.120] years, right?
+- [12:40.480] >> So, we have a deal with Israel and
+- [12:42.079] Lebanon. And uh yeah, they'll leave and
+- [12:46.720] I think it's going to work out very
+- [12:48.079] well. But we're here for this because
+- [12:49.920] Syria has turned around
+- [12:52.480] as fast as I've ever seen. Well,
+- [12:54.560] actually, I turned the United States
+- [12:56.079] around very fast, too. I inherited from
+- [12:58.720] a man who was not smart, not a smart
+- [13:01.279] person. We inherited from the man where
+- [13:05.040] uh they were running this country so
+- [13:06.959] badly with the open borders. I think
+- [13:08.800] there were 25 million people allowed
+- [13:10.800] into our country and that includes
+- [13:13.120] 11,888
+- [13:15.600] murderers, most of whom murdered more
+- [13:18.800] than one person. Okay? And we got most
+- [13:21.519] of them out or we have them in jail and
+- [13:24.399] we've done a great job. Washington DC
+- [13:26.399] now is considered one of the safest
+- [13:27.920] cities in the country. If he came to
+- [13:31.200] Washington DC a year and a half ago,
+- [13:34.000] he'd fear for his life even though he
+- [13:36.880] never feared for his life before because
+- [13:38.800] it was very dangerous. But somehow his
+- [13:41.519] territory might have even been a little
+- [13:43.120] more dangerous. I I joke because you
+- [13:45.600] know he comes from a rough environment.
+- [13:49.040] Would you say that's right, Tom Barrett?
+- [13:51.760] >> It's sort of funny to think. I don't
+- [13:53.680] think you'd be too concerned with
+- [13:54.959] Washington a year and a half. But we had
+- [13:56.880] a very very unsafe Washington DC and now
+- [14:01.120] it's one of the safest cities in the
+- [14:02.720] country. We put the military in. We
+- [14:05.120] brought it's Washington went from being
+- [14:07.760] an unsafe to one of the safer cities and
+- [14:10.800] crime is down 94%.
+- [14:13.839] >> We don't play games. And we we removed
+- [14:15.920] over 5,000 career criminals, many of
+- [14:18.959] whom came in through the open borders of
+- [14:20.880] Joe Biden. We did the same thing with
+- [14:23.199] Memphis, Tennessee. We did the same
+- [14:25.519] thing with uh in Louisiana.
+- [14:29.120] You have to speak to the governor
+- [14:31.120] because New Orleans, the crime rate is
+- [14:33.279] down 78% 7 in a little while. And they
+- [14:36.320] had the best Marty GR they've ever had.
+- [14:39.120] So, we're doing a good job and he's done
+- [14:41.680] a great job, too. And I thank you very
+- [14:43.920] much. Thank you very much. I think.

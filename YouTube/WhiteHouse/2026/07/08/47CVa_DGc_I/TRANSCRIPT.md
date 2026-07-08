@@ -1,0 +1,1037 @@
+<!-- source: https://www.youtube.com/watch?v=47CVa-DGc-I -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 47CVa-DGc-I -->
+<!-- date_published: 2026-07-08T16:38:45+00:00 -->
+<!-- date_accessed: 2026-07-08T17:38:29.986534+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the President of Ukraine
+
+- [00:00.560] Well, thank you very much. It's a great
+- [00:02.240] honor to be with President Zillinski.
+- [00:04.240] We've talked a little while and we speak
+- [00:07.440] on occasion by phone. We had a great
+- [00:10.240] talk the other day. I think very
+- [00:11.920] positive. And I think we have some very
+- [00:16.400] good stories to tell what's uh what's
+- [00:18.800] going on. He wants to see a settlement
+- [00:21.039] and I think President Putin wants to see
+- [00:22.800] a settlement and usually that means a
+- [00:25.439] settlement, but who knows? This is this
+- [00:28.320] is a tough one.
+- [00:29.920] But I just uh we just had our NATO
+- [00:33.680] meeting and it was a great meeting. You
+- [00:35.120] probably heard it was a great meeting.
+- [00:37.120] There's a lot of uh there was a lot of
+- [00:38.879] love in that room day. A lot of unity
+- [00:42.719] and I don't think it could have been
+- [00:44.320] Marco. What do you think? It couldn't
+- [00:45.600] have gone much better. Do you have a you
+- [00:48.239] have a feeling as to what you just saw?
+- [00:50.719] >> Very positive
+- [00:53.280] strength.
+- [00:54.719] >> Really good. Scott, what do you think?
+- [00:57.199] >> Yes, sir. all all the Europeans
+- [01:00.160] attributed you to saving NATO and
+- [01:02.719] they're they all they want to do what
+- [01:04.239] they're supposed to do and do the right
+- [01:05.519] thing.
+- [01:06.159] >> Yeah, there was a there was something
+- [01:08.000] very special and I will say that what
+- [01:11.520] they've done with Turkey and President
+- [01:14.560] Erdogan has been friend of mine. He's
+- [01:16.799] been a friend of mine for a long time.
+- [01:18.799] Strong man, good man. And he's done a
+- [01:22.080] fantastic job. Every road it's all
+- [01:24.159] everything's perfect. He's from the
+- [01:26.960] airport to the destination, everything's
+- [01:29.600] been perfect. So, we had a really good
+- [01:31.360] meeting and we thought this would be a
+- [01:34.000] good time for
+- [01:36.079] President Zullinsky and I to meet and
+- [01:38.479] we'll see what we can do. But, uh, we've
+- [01:40.799] actually developed a good relationship.
+- [01:42.400] It's hard to believe, right? From the
+- [01:44.720] Oval Office to now, we've developed I
+- [01:47.280] think we've developed a very good
+- [01:48.560] relationship.
+- [01:50.159] And, uh,
+- [01:51.439] >> and this is not the end. No, this is
+- [01:53.840] this is going to be uh the beginning
+- [01:55.920] maybe
+- [01:56.960] >> just the beginning and you know the
+- [01:59.119] country has a lot of future. It is such
+- [02:01.680] great land, such great assets, such
+- [02:03.840] great people and you have a lot of
+- [02:06.320] people. I was I was with a group in
+- [02:08.800] Poland and they have you have a lot of
+- [02:10.879] people in Poland and which is a terrific
+- [02:13.680] country with a really great president. I
+- [02:15.599] happen to endorse him. So, and he's and
+- [02:18.319] he's doing a very good job. And they
+- [02:20.480] were saying they they love Poland, but
+- [02:22.640] they really want to go back. You know,
+- [02:24.239] you're going to get a lot of people back
+- [02:26.000] when this is over. They left some and
+- [02:30.560] they uh they're all I think they're
+- [02:32.239] going to come back. A big percentage are
+- [02:34.879] going to come back. So, uh we're going
+- [02:37.440] to have a good talk and we're going to
+- [02:39.200] see how it all goes. And Mr. President,
+- [02:41.360] would you like to say something?
+- [02:42.879] >> Thanks so much. Uh Mr. President, thank
+- [02:45.760] you very much for this meeting and we
+- [02:48.239] are very thankful as always to your
+- [02:51.280] support, American support, bipartisan
+- [02:53.280] support. Thanks for the invitation to
+- [02:55.519] this summit and I think that we really I
+- [02:58.319] agree with you. We have a lot what to
+- [03:00.239] discuss, what to speak about and uh of
+- [03:03.120] course we we are thankful for the pearl
+- [03:05.200] program and we want to share with you
+- [03:08.400] some details what we want to raise
+- [03:10.400] during our meeting. Air defense is the
+- [03:13.200] priority. The second point or maybe the
+- [03:15.920] first and you about negotiations
+- [03:19.280] >> I think yes we understand what to do is
+- [03:23.200] our estimation what to do how to bring
+- [03:25.599] peace and I hope that we will do I'm
+- [03:28.640] sure that you will do everything to stop
+- [03:30.480] this war yeah and I'm very happy that
+- [03:33.760] our sides began to work on uh drone deal
+- [03:37.360] and it's very good beginning and I hope
+- [03:39.840] that today I will have possibility to
+- [03:42.959] also to discuss you some some very
+- [03:45.280] important details. Thank you so much.
+- [03:47.760] >> Well, we've settled a lot of wars and
+- [03:50.879] this one is the one that I thought maybe
+- [03:53.040] would be the easiest, but Putin's a
+- [03:56.159] difficult character and this guy's a
+- [03:57.680] difficult character. Doesn't it's not
+- [04:00.080] the easiest not the easiest thing and
+- [04:02.159] there's a lot of commitment and there's
+- [04:04.560] a lot of love of the countries and
+- [04:06.080] everything else, but I think we've made
+- [04:08.640] a lot of progress in the last couple of
+- [04:10.239] weeks and we'll see how it all goes. So,
+- [04:12.799] do you have any questions?
+- [04:16.239] >> With the Ramsey's fire possibly over,
+- [04:19.519] can we expect?
+- [04:20.720] >> Well, I just think uh
+- [04:23.759] they are behaving very badly as they
+- [04:26.800] have for 47 years. And you know, we hit
+- [04:30.080] them hard last night after they
+- [04:31.600] launched. They launched a couple of You
+- [04:33.360] don't have to know about this. You got
+- [04:34.639] stuff on your mind, but they launched a
+- [04:37.040] couple of drones and one rocket, one
+- [04:41.360] missile, and uh at chips because they
+- [04:45.120] were in the straight, which they have
+- [04:46.479] every right to be. And so we hit them
+- [04:49.199] very hard last night. Very, very hard.
+- [04:51.199] Probably hit them hard again tonight.
+- [04:52.639] I'll give him a little warning. We're
+- [04:53.759] going to hit them hard tonight.
+- [04:56.000] But we'll see how it all works out. Uh,
+- [04:57.759] no, I'm not happy with them. You know,
+- [04:59.360] it's like, for instance, we'll have a
+- [05:01.360] meeting and we'll talk about the
+- [05:03.520] denuclearization of Iran because that's
+- [05:06.160] what the war is. It's not a war. It's
+- [05:07.919] really the denuclearization of Iran. And
+- [05:11.039] we'll have a meeting and we'll talk
+- [05:12.320] about just that. Just because my whole
+- [05:14.080] thing is not about regime change. is not
+- [05:16.800] about although I think it's regime
+- [05:18.240] change when you knock out the first
+- [05:20.800] group, the second group and now you're
+- [05:22.240] the I think that's maybe the ultimate
+- [05:24.400] regime change but but that's not what
+- [05:27.120] it's about. It's about we don't want
+- [05:29.199] them to have nuclear weapons and it's
+- [05:32.560] dnuking or dnuclearization
+- [05:35.280] and I think we made a lot of progress
+- [05:38.080] and they'll get out of the room. We'll
+- [05:40.400] talk about it like we're here. They'll
+- [05:42.639] agree on everything and then they'll go
+- [05:44.160] have a news conference and say we never
+- [05:45.680] even talked about it. They're cuckoo.
+- [05:49.199] There's something wrong with these
+- [05:50.400] people. And for 47 years they've been
+- [05:54.320] the bully of the Middle East and they're
+- [05:55.759] not the bully anymore.
+- [05:57.840] and not the bully anymore. And all we
+- [05:59.600] want I want it's very simple. They can't
+- [06:01.360] have a nuclear weapon. That's what I'm
+- [06:02.960] there for
+- [06:04.800] >> because
+- [06:06.639] if they did they'd use it and we're not
+- [06:08.160] going to let that happen.
+- [06:08.720] >> President Trump,
+- [06:10.000] >> you've made a career making deals in
+- [06:12.800] very challenging situations.
+- [06:15.280] Speaking to President Zilinski, speaking
+- [06:17.039] to President Putin, in your view, sir,
+- [06:18.800] what is the most pragmatic pathway
+- [06:20.639] forward to finding a long-term peace
+- [06:22.639] deal?
+- [06:23.120] >> I just think they're going to make a
+- [06:24.240] deal. But this deal has been in the
+- [06:28.080] works for a long time. It's got the
+- [06:30.479] pluses, the minuses. They know what it
+- [06:32.080] is. He knows what it is better than
+- [06:33.520] anybody.
+- [06:35.360] And I just think it's it's sometimes,
+- [06:39.199] you know, I used an analogy
+- [06:41.680] and it sounds simple, but it's sort of
+- [06:43.360] true. You're you have two kids in a park
+- [06:45.840] and they don't like each other and they
+- [06:47.280] start fighting. Sometimes you have to
+- [06:49.680] let them fight. let him see that it's
+- [06:53.600] tough, you know, it's tough. Fighting is
+- [06:55.840] tough.
+- [06:57.680] And uh he's done he's done an amazing
+- [07:00.479] job. Look, he's been he's been uh very
+- [07:04.240] effective now. He's had the best
+- [07:06.160] equipment because he's had our equipment
+- [07:09.120] and he's had great but somebody has to
+- [07:11.280] use that equipment and you have a lot of
+- [07:13.599] brave people that are using that
+- [07:15.360] equipment.
+- [07:16.960] and Russia, you know, it's a big it's a
+- [07:19.599] big country, but it's a big force.
+- [07:23.360] Russia's always been a big fighting
+- [07:24.960] force. So, you know, it's but I I really
+- [07:27.759] believe it's uh ready.
+- [07:31.039] It's very interesting because you'd
+- [07:32.400] almost say it's worse than ever. And
+- [07:34.240] maybe it isn't. Sometimes with war, and
+- [07:36.639] you study war, and I've studied it so
+- [07:38.240] long, for years, long before I did this,
+- [07:41.759] sometimes it's when it gets the worst,
+- [07:44.800] and I don't know that it's the worst
+- [07:46.160] right now. It's consistently bad. They
+- [07:48.080] lost 25,000 people were lost, kids,
+- [07:50.800] young people last last month. And uh we
+- [07:54.879] had a month 35 two months ago. And I
+- [07:58.720] would say more Russians.
+- [08:00.960] And but it's just they're people.
+- [08:03.280] They're people. And there's actually
+- [08:05.680] very little difference between the
+- [08:07.039] people. I mean, you know, it's like the
+- [08:08.879] Russians and Ukrainian people and they
+- [08:12.639] can get along. But but it's a uh it's a
+- [08:16.080] nasty war. Thousands and thousands,
+- [08:18.800] mostly soldiers are being killed. The
+- [08:21.360] battlefields, I see pictures and it's uh
+- [08:23.680] horrible. He thinks it's horrible. They
+- [08:25.199] all we all think it's horrible.
+- [08:27.840] And the president wants to get it done.
+- [08:30.479] And I believe that President Putin wants
+- [08:32.320] to get it done. And that should be a
+- [08:34.479] good combination. Thank you,
+- [08:38.000] Mr. President. Mr. President, what is
+- [08:39.760] your assessment on Ukraine strike on
+- [08:41.519] Russian oil refineries and military?
+- [08:43.680] >> Where are you from?
+- [08:44.399] >> Ukraine.
+- [08:46.560] >> Uh,
+- [08:48.399] phrase phrase the question differently,
+- [08:50.160] please.
+- [08:51.279] >> Ukraine delivered long
+- [08:54.880] strikes on Russian military factories
+- [08:57.200] and on all refineries and they ran out
+- [09:00.160] of gas. Uh Marco, why don't you answer
+- [09:03.200] that because you're right in the middle
+- [09:04.320] of it.
+- [09:04.720] >> Yeah. No, I think what you're discussing
+- [09:06.080] is the ability of Ukraine to reach deep
+- [09:08.560] inside of Russia to conduct strikes. I
+- [09:10.959] think that's one of the dynamics that's
+- [09:12.240] changed in this in this war over the
+- [09:13.839] last few months. And that is that the
+- [09:15.680] Russians are finding it more difficult
+- [09:17.120] to defend their own airspace. And what
+- [09:18.720] we hope that means is it's going to
+- [09:20.000] create the space now for to negotiate
+- [09:21.920] the end of this war.
+- [09:22.880] >> It's an escalation,
+- [09:24.880] but it's also an escalation that could
+- [09:26.640] help lead to an end.
+- [09:29.200] And
+- [09:34.720] might be for the settlement.
+- [09:36.560] >> So where are you from?
+- [09:38.880] >> Europe's Ukrainian service. I'm from
+- [09:40.640] >> Okay, good. Because I talked to him. I
+- [09:43.200] talked to him. I talked to President
+- [09:45.760] Zalinski and and I think that's all I've
+- [09:48.160] done my whole life. I made deals. That's
+- [09:50.399] I guess becoming president was making a
+- [09:52.399] deal, right? It was like a lot of little
+- [09:54.640] individual things. In the end, it's
+- [09:56.399] making a deal. And that's what I do. and
+- [10:00.080] uh I do it well and I know when people
+- [10:03.120] want to make a deal. I think he wants to
+- [10:04.720] make a deal and I do feel that President
+- [10:08.560] Zalinski would like to get back to
+- [10:10.160] rebuilding this country as opposed to,
+- [10:12.880] >> you know, having all of this death and
+- [10:15.680] destruction.
+- [10:17.440] Ukraine has tremendous potential. He
+- [10:19.600] understands that. We we talk about that.
+- [10:22.320] He talks about that more than he talks
+- [10:24.000] about the war. You know, to me, I think
+- [10:26.800] it's I think you might be find that more
+- [10:28.560] exciting than the one. This is it's
+- [10:30.800] brutal. The other's the beauty of it.
+- [10:33.360] You know, he's I think he'll build a
+- [10:35.360] great country. I think he's going to
+- [10:36.959] build it. We have a little stake in that
+- [10:38.640] country now because we have some land in
+- [10:40.240] that country, but we have mineral
+- [10:42.959] minerals. It's among the wealthiest.
+- [10:45.760] It's among the best land anywhere in the
+- [10:47.600] world for rare earth. And we have some
+- [10:51.440] we have we have some rare earth. I look
+- [10:54.160] forward to taking advantage of it at the
+- [10:56.079] right time. I
+- [10:59.360] >> miss
+- [10:59.920] >> look at this guy. He's one of my
+- [11:01.600] favorite soldiers. I see him. He's
+- [11:03.839] central casting you. Right. You doing
+- [11:06.160] okay?
+- [11:06.959] >> Yes, sir.
+- [11:07.440] >> We see him at meetings. He's good. He's
+- [11:09.200] done a great job.
+- [11:10.560] >> Great job.
+- [11:11.279] >> To do all of us.
+- [11:12.320] >> Yeah. Great. Great hero, actually.
+- [11:18.320] Mr.
+- [11:18.560] >> President, will you allow Europe to make
+- [11:20.720] Patriot interceptors in Europe or are
+- [11:22.880] you comfortable with licensing
+- [11:24.800] >> about what? Tell me.
+- [11:25.839] >> Patriot interceptors to be made in
+- [11:28.320] Europe.
+- [11:28.880] >> And you're talking with respect to
+- [11:30.399] Ukraine. Well, we're going to talk about
+- [11:32.480] that. You know, look, it's a defensive
+- [11:36.000] weapon, which I like better than an
+- [11:38.959] offensive weapon. It's the best. So I
+- [11:41.839] was saying we have an aircraft carrier
+- [11:44.560] which is one of the most beautiful in
+- [11:46.160] the world. It's one of the biggest
+- [11:47.440] Abraham Lincoln and two months ago we
+- [11:50.720] had aund I told the story yesterday. We
+- [11:52.640] had 111
+- [11:54.480] missiles shot by the Islamic Republic of
+- [11:58.079] Japan. They were shot at the aircraft
+- [12:00.399] carrier over a period of about one hour.
+- [12:03.279] 111 missiles going to a very expensive
+- [12:06.240] ship and every one of those missiles was
+- [12:08.880] knocked down pretty much most by pay but
+- [12:12.800] by other means also as you know.
+- [12:15.440] >> Yeah.
+- [12:16.079] >> Other less expensive means. It's even
+- [12:18.079] better when you do that. But out of the
+- [12:20.320] 111 missiles, every one of them was shot
+- [12:22.959] down. It it didn't hit the ship and you
+- [12:26.079] know bad things happen right when that
+- [12:27.680] happens. So think of that over a a
+- [12:30.320] period of one hour these missiles are
+- [12:33.519] coming at you and every one of them shot
+- [12:35.920] down. So I think one of the things we're
+- [12:38.399] going to be talking about is as you know
+- [12:40.959] we the companies we have great power
+- [12:42.800] over the companies those companies that
+- [12:44.399] make the Patriot and make all of the
+- [12:45.920] great stuff the Tomahawks all of the
+- [12:48.320] great stuff. We have the best stuff many
+- [12:50.560] things the Patriot script but we have
+- [12:52.000] many many great things. You see that
+- [12:54.240] with Venezuela you see it with Iran.
+- [12:56.000] Look Iran has been wiped out. Iran,
+- [12:58.079] their Navy's gone, their air force is
+- [13:00.480] gone, everything's gone. But one of the
+- [13:03.040] things I think we're going to be talking
+- [13:04.480] about today, I just a little birdie told
+- [13:06.959] me this uh about the fact that we'll
+- [13:09.760] give them the right to make patriots.
+- [13:12.800] We'll show them how to do it. It's very
+- [13:14.480] complex actually, but it's uh you'll
+- [13:17.839] figure out the complexity quickly. And
+- [13:20.480] we're talking about that and we'll the
+- [13:22.560] company that makes them which is
+- [13:24.720] building now four plants you know all of
+- [13:26.560] our companies will be able to do this in
+- [13:28.800] two to three months if you order a
+- [13:30.639] Patriot now you have to wait a long time
+- [13:32.880] for them. Same thing with tomahawks. We
+- [13:35.440] have a lot of certain equipment, but
+- [13:37.680] with they call it the elite equipment,
+- [13:40.720] and you don't need elite equipment
+- [13:42.320] necessarily for a war, but so one of the
+- [13:44.959] things we're going to be talking about
+- [13:46.079] is you'll uh we're going to give a
+- [13:47.920] license to you to make Patriots. That's
+- [13:50.639] pretty cool, right?
+- [13:52.240] >> This way you can't complain that we're
+- [13:53.600] not giving them enough. I say make them
+- [13:55.200] yourself. Uh we haven't informed the
+- [13:58.480] company of that yet, but that'll that'll
+- [14:00.639] work out all right. you know, sure
+- [14:02.480] they'll be thrilled, but you know,
+- [14:04.240] they'll be able to do it. You'll be able
+- [14:05.920] to figure that out. Most most countries
+- [14:07.920] couldn't do that.
+- [14:09.040] >> If I said that to most countries, they
+- [14:10.720] would know what I'm talking about. But
+- [14:12.800] this is a very ingenious group. And what
+- [14:15.279] I like about that, it's a defensive it's
+- [14:18.079] a defensive situation as opposed to an
+- [14:20.240] offensive. But I think one of the things
+- [14:22.399] you might want to be talking about is
+- [14:23.920] that that's what I heard little birdie
+- [14:27.279] told me that.
+- [14:28.480] >> Go ahead.
+- [14:31.760] Does the end of the ceasefire mean that
+- [14:33.279] we are back to a full scale?
+- [14:34.480] >> Well, as far as I'm concerned, look,
+- [14:36.480] >> they violate the agreement every day.
+- [14:38.639] They lie. They cheat. They kill people.
+- [14:41.600] They've been killing people for 47
+- [14:43.519] years. They knocked out the SSL. We lost
+- [14:46.480] what? 200 people more. Uh that was a
+- [14:50.560] long time ago. For 47 years, no
+- [14:53.040] president did anything about them. or
+- [14:56.000] Obama actually gave them vast amounts of
+- [14:59.920] money. You'd like this. He gave them a
+- [15:03.440] plane load of money. 1.7 billion dollars
+- [15:06.240] in green cash. They load up a Boeing.
+- [15:09.519] They loaded up a Boeing
+- [15:12.160] 757.
+- [15:14.560] Remember the old 750? It was a beautiful
+- [15:17.120] plane loaded up with cash. They took all
+- [15:18.880] the seats out and they took all of the
+- [15:21.600] cash from Virginia, Maryland, and DC
+- [15:24.079] banks. They had no money. They took
+- [15:25.839] every ounce of cash, put it in, flew it
+- [15:29.440] to Iran, and gave them the money. I
+- [15:32.800] wonder what these guys thought of when
+- [15:34.079] the door opened and cash fell out of
+- [15:35.839] this big plane. Beautiful plane. And u
+- [15:40.480] then on top of that, they gave them
+- [15:42.079] billions and billions of dollars.
+- [15:45.199] And by the way, they gave it to the
+- [15:46.639] wrong the wrong country. Frankly, you
+- [15:49.440] want to know the truth? And it it began
+- [15:51.199] that was that was pretty much the the
+- [15:53.199] the
+- [15:55.360] Obama nuclear the Obama deal
+- [15:58.639] uh
+- [16:00.480] the that that was one of the worst
+- [16:03.279] tragedies that happened. That's what
+- [16:05.360] happened in the Middle East. That deal
+- [16:07.199] set back that whole situation. They went
+- [16:10.320] with frankly they picked the wrong
+- [16:11.920] country. They picked the wrong country.
+- [16:15.920] JC P. What a terrible what a terrible
+- [16:20.639] deal. I call it the Obama nuclear waste
+- [16:23.759] deal. Because what he did with that deal
+- [16:26.079] is he caused tremendous hardship in the
+- [16:28.560] Middle East. It was a terrible, terrible
+- [16:30.880] thing to do. And we've been just the
+- [16:32.320] opposite. Our deal is a wall to a
+- [16:34.880] nuclear weapon. His deal was a road to a
+- [16:38.399] nuclear weapon. We couldn't They'll
+- [16:40.480] never build a nuclear weapon under our
+- [16:42.880] deal. But I don't know if we're going to
+- [16:43.839] have a deal. We may just do it without a
+- [16:46.240] deal because you know what? It's easier
+- [16:48.880] because these people, they lie and they
+- [16:51.040] cheat and you have an agreement and
+- [16:52.959] they'll go outside. For instance, they
+- [16:54.959] agreed, well, we'll never have a nuclear
+- [16:56.639] weapon. They agreed. Then they go
+- [16:57.759] outside, they have a news conference or
+- [16:59.519] they leak that we never discuss the
+- [17:01.759] subject. Now, who would believe we never
+- [17:04.640] discussed the subject? Because for me,
+- [17:06.720] that's 99.9% of what we're doing. It's
+- [17:10.400] denuclearization of Iran. Okay. So, uh,
+- [17:15.439] when you ask our guys can continue, you
+- [17:18.400] know, Steve is great and Jared, all the
+- [17:20.480] guys, they know him very well. Yeah,
+- [17:22.799] actually they're working on your stuff,
+- [17:24.240] too. I wonder which I picked two
+- [17:26.559] beauties. You know what? We settled
+- [17:28.480] eight wars. I got a couple of beauties
+- [17:30.880] here. But, um, but Steve's great and
+- [17:34.240] Jared's great. You know, they're the
+- [17:35.440] right guys. And we'll see what happens.
+- [17:38.000] But but I will say this, Iran,
+- [17:41.600] they've misbehaved for 47 years. They've
+- [17:45.120] killed our soldiers. They've killed our
+- [17:46.799] people. And they've killed a lot of
+- [17:48.080] people all over the Middle East and
+- [17:50.480] elsewhere. And the roadside bomb was
+- [17:52.960] their preferred, you know, uh the
+- [17:54.480] preferred weapon was by Salamani, the
+- [17:57.840] roadside bomb where it would explode
+- [18:01.120] under a truck. We actually built trucks
+- [18:03.520] with floors, steel this thick. And then
+- [18:06.400] all they did was they made bigger bombs.
+- [18:09.200] And we have young guys around, not
+- [18:12.799] walking around because they had no legs,
+- [18:14.960] but their legs were blown off, their
+- [18:16.640] arms were blown off, their face was
+- [18:18.240] blown off, and they live. Because of
+- [18:19.919] modern medicine, you can do anything,
+- [18:22.720] but they're living. They're living like
+- [18:24.799] in hell. Their whole life changed
+- [18:29.039] because of Iran. And that was 96% of the
+- [18:33.280] people that use that. They were made in
+- [18:35.440] Iran
+- [18:36.960] and so
+- [18:38.799] we have a score to settle too.
+- [18:44.000] >> Mr. President, you say that President
+- [18:46.080] Putin is ready to finish this war. What
+- [18:49.200] if he doesn't? Do you Are you ready to
+- [18:52.559] put pressure on Russia? Are you ready?
+- [18:54.559] >> Well, we have a lot of pressure. We have
+- [18:56.880] a lot of pressure on President Putin.
+- [18:59.520] >> You know, I don't I don't think he likes
+- [19:02.080] what's going on. I don't think he likes
+- [19:03.600] I don't think he's thrilled with what's
+- [19:05.120] happening. There's a lot of pressure on
+- [19:08.160] President Putin to get it done. I think
+- [19:09.919] there's pressure on everybody to get
+- [19:11.679] that one done. A lot of pressure.
+- [19:15.360] >> WHAT'S YOUR WHAT'S YOUR SECURITY
+- [19:17.200] guarantee for Ukraine?
+- [19:18.880] >> The guarantee?
+- [19:19.760] >> Yes. Security guarantee for
+- [19:21.200] >> the security guarantee. You're talking
+- [19:22.799] about
+- [19:24.160] >> I mean it not that we want to do it.
+- [19:26.320] We'll do it to save lives. Look,
+- [19:28.480] Ukraine's very far away. We have an
+- [19:30.240] ocean separating us. what I'm doing is
+- [19:32.880] I'm trying to save lives. A lot of lives
+- [19:35.520] are being lost. I also think that
+- [19:39.039] uh it's a country with great potential.
+- [19:41.520] I think if this kind of brain power can
+- [19:46.080] go toward build rebuilding the country
+- [19:48.480] instead of fighting a war, I think it's
+- [19:50.880] going to do I think that country is
+- [19:52.400] going to do fantastically well. And
+- [19:54.720] likewise Russia, you know, look, they're
+- [19:56.400] devoting a lot of energy. A lot of
+- [19:59.200] energy. Do you have a a question for
+- [20:01.039] President Putin, please?
+- [20:04.320] >> President President, do you have a
+- [20:06.559] question for President Putin? Not not
+- [20:08.400] Silinski Putin.
+- [20:09.760] >> Yeah. What would you like to ask him?
+- [20:11.200] Because I'm going to ask him that
+- [20:12.480] question.
+- [20:13.200] >> I have a question. YOU LAST YEAR LAST
+- [20:15.520] YEAR CALLED RUSSIA a paper tiger for
+- [20:17.919] that they not
+- [20:18.720] >> Who did I call that media?
+- [20:22.720] >> No. No. Give us a question. Not for
+- [20:24.640] Zillinski. Give us a question for Putin.
+- [20:28.320] because I'm speaking to him today.
+- [20:31.200] >> He gave me a good hard question.
+- [20:34.640] >> When will he end this war?
+- [20:36.559] >> That's a good question.
+- [20:39.039] >> I don't think I've ever asked him that
+- [20:40.480] question. I'm going to ask him that
+- [20:41.679] question.
+- [20:46.880] >> Say it.
+- [20:48.400] >> By the way, I will tell you though, he's
+- [20:50.080] going to tell you that he wants it ended
+- [20:52.400] as soon as he can end it.
+- [20:54.240] >> He wants it ended. He wants to end it
+- [20:56.559] soon. And I ask him and we talk I talk
+- [20:59.600] to him a lot.
+- [21:01.280] >> I talk to him a little bit less, but the
+- [21:03.840] relationship is very good. But I talked
+- [21:06.320] to President Putin a lot. He and he
+- [21:08.559] wants to end the war.
+- [21:10.720] >> And a lot of a lot of people don't a lot
+- [21:13.120] of people don't believe that.
+- [21:17.200] >> What are President Putin's conditions
+- [21:19.039] for ending the war?
+- [21:20.400] >> Well, they they were certain conditions
+- [21:22.799] that were a little bit different. I
+- [21:24.000] think they're changing. I think they're
+- [21:25.280] probably getting a little bit better
+- [21:27.600] toward some of the things that you'd
+- [21:29.200] like. It's been tougher in Russia. It's
+- [21:32.240] been a lot tougher than it was supposed
+- [21:33.600] to be. I mean, in all fairness, this was
+- [21:35.120] supposed to be a This is a war that
+- [21:37.200] would have never happened if I were
+- [21:38.480] president. Would have never happened.
+- [21:40.960] You'd have a full country, you know? I
+- [21:42.559] mean, just a shame that it happened.
+- [21:45.600] But, uh, no, this is a this is a
+- [21:49.200] something that I think Zalinsky wants to
+- [21:51.200] do and Putin wants to do. They want to
+- [21:53.120] they want to get it done. Ask uh ask the
+- [21:56.559] president that question. Ask him.
+- [22:06.960] Go
+- [22:07.120] >> ahead. No, I I don't know what uh I
+- [22:09.919] don't know what conditions Putin now or
+- [22:13.200] wants for this piece.
+- [22:15.600] I think that they are changing in any
+- [22:17.760] way because at the very beginning of
+- [22:19.760] full scale war he was stronger and now
+- [22:24.240] uh I think he he is losing initiative on
+- [22:27.679] the battle of I think his army but
+- [22:29.600] that's why I think that because of
+- [22:31.520] technologies because it's not the
+- [22:33.039] question now of number of people people
+- [22:35.440] are our heroic people are very important
+- [22:37.679] but now it's not the question of uh
+- [22:41.200] question of only number of people first
+- [22:43.919] of all people and technologies people
+- [22:46.159] with technologies. Now I think that we
+- [22:48.159] have we have better steps technological
+- [22:52.880] steps further than Russia maybe quicker
+- [22:56.000] because they also they you know that
+- [22:58.080] they produce a lot of different things
+- [23:00.080] which are tough uh strong against us but
+- [23:04.080] we are quicker and uh that's why I think
+- [23:06.880] that now initiative
+- [23:09.039] moved to our hands not totally but moved
+- [23:12.400] we are trying to move this war to the
+- [23:14.880] sky from the battlefield That's why we
+- [23:17.679] now began to control the battlefield.
+- [23:21.280] This is very important. It's difficult
+- [23:23.679] when you have less people to move them
+- [23:26.320] back. But we found another way how to do
+- [23:29.039] it to cut uh their logistic for their
+- [23:32.480] army. It's about weapon, petrol, diesel
+- [23:36.000] without massive human losses. That is
+- [23:38.159] the difference between us. By the way,
+- [23:40.480] Russia is
+- [23:42.240] >> he's got a lot of support. I just left a
+- [23:44.960] room with, you know, where they have
+- [23:47.840] I mean mostly European Canada but mostly
+- [23:50.720] European countries
+- [23:52.799] >> and they have a great support for
+- [23:54.720] >> it's true
+- [23:55.600] >> for Ukraine and uh you know really great
+- [23:59.440] support. One of the things you talk
+- [24:00.960] about questions for Putin but one of the
+- [24:03.760] things that I talked to him about was uh
+- [24:06.320] where would you want to meet? And he
+- [24:08.240] said ideally in Moscow I said you're not
+- [24:10.080] going to meet in Mos. You know it just
+- [24:11.600] doesn't work. He can't do that. But
+- [24:16.320] uh he'll meet
+- [24:19.039] and Zalinski is going to meet and
+- [24:21.120] something's going to happen that's going
+- [24:22.400] to be positive and I think I hope it's
+- [24:24.480] going to happen soon because they have
+- [24:26.960] number one lives but number two building
+- [24:29.279] your country because it's got a it's got
+- [24:31.760] a tremendous future in my opinion. Yeah.
+- [24:36.640] >> I don't know. I don't know. I mean,
+- [24:38.880] President Putin said, "I would love to
+- [24:42.000] meet in Moscow." And I said, "I don't
+- [24:45.039] think, you know, I have to put myself in
+- [24:46.640] his position.
+- [24:48.400] I don't know that he'd go to Moscow."
+- [24:50.080] Maybe he would. Would you go to Moscow?
+- [24:52.400] >> It's difficult. There are a lot of
+- [24:53.679] Ukrainian drones, so they are fight.
+- [25:01.200] >> No, it's hard. Would you go? It's hard
+- [25:02.880] to go to your It's a little hard.
+- [25:07.520] >> I thought I thought I'd answer that
+- [25:09.360] question to him. I didn't want to I
+- [25:11.039] didn't want to ask him that question.
+- [25:14.159] >> HOW TO ensure that Ukraine will not be
+- [25:16.799] attacked again by Russia?
+- [25:18.320] >> What about
+- [25:19.440] >> how to make sure that Ukraine will not
+- [25:21.760] be attacked by Russia?
+- [25:23.120] >> Well, look, you mean in the future? You
+- [25:25.039] mean after there's an agreement? Well,
+- [25:27.279] we're going to work on a security
+- [25:28.559] guarantee
+- [25:30.159] that and Russia respects us a lot and
+- [25:33.679] we're going to work on some kind of a
+- [25:35.120] sec if we can make the right deal. We'll
+- [25:37.679] help Europe. I mean, Europe is going to
+- [25:39.600] be watching it, but we're going to be
+- [25:41.919] helping them and we'll work on some kind
+- [25:43.919] of a security package that will make
+- [25:46.640] sure. I don't think that's going to
+- [25:48.559] happen. I think that if we make a deal,
+- [25:51.679] Russia is going to be very happy and
+- [25:53.520] they're going to get on with other
+- [25:55.279] things. They have, by the way, as a
+- [25:57.039] country too, they have tremendous
+- [25:58.480] potential. They have tremendous land,
+- [26:00.880] valuable land that they can do things
+- [26:02.720] with. And they have tremendous
+- [26:04.799] potential, but I don't think it's going
+- [26:07.120] to happen. I I don't see that question.
+- [26:09.840] Oh, they're going to attack again. I
+- [26:11.279] don't see it at all. I think they've had
+- [26:12.880] it. They've had this has been going on
+- [26:15.840] for five almost five years, right?
+- [26:17.440] >> Yeah.
+- [26:18.480] Who would have thought? I mean, it's a
+- [26:20.400] tribute because it's a bigger country,
+- [26:22.080] strong country, and it's an amazing
+- [26:24.799] tribute. Anything else?
+- [26:31.600] >> President Zilinski has has said that
+- [26:33.600] Ukraine Patriot missiles now over 50 air
+- [26:37.279] strikes just in the last few days. So,
+- [26:39.120] in addition to these production
+- [26:40.480] licenses, which will take time, would
+- [26:42.320] you consider
+- [26:42.720] >> not that much time actually,
+- [26:43.760] >> would you consider providing any to
+- [26:44.960] Ukraine immediately?
+- [26:46.320] >> We have
+- [26:48.000] patriots, but we don't have that many.
+- [26:49.760] We need them for ourselves, too, you
+- [26:51.440] know. Uh, some, yeah, I mean some, but I
+- [26:55.360] think they can produce them pretty
+- [26:56.640] quickly. Once we explain it, we'll bring
+- [26:59.520] the company here. You work with the
+- [27:01.760] company. They have a great ability to
+- [27:04.320] produce weapons, pretty complex weapons.
+- [27:10.880] >> Will you go to Ukraine?
+- [27:13.840] >> Will I go to Ukraine? Will you go to
+- [27:16.240] Ukraine?
+- [27:16.799] >> I would. Yeah. When it's over.
+- [27:19.760] >> I'd rather have the war be over.
+- [27:23.279] >> I'm not sure Secret Service would be
+- [27:24.960] thrilled
+- [27:26.320] >> right now. But you know what? I would I
+- [27:28.480] would like to go.
+- [27:30.080] >> I think it's I think the people are
+- [27:31.679] incredible.
+- [27:33.200] And I mean like Kiev,
+- [27:36.640] >> it would be nice to get it before any
+- [27:38.320] more damage is done. To be honest, it's
+- [27:40.080] such a beautiful city, right?
+- [27:42.240] >> And yeah, I would go to Ukraine at the
+- [27:44.080] right time. any deadline
+- [27:46.640] any deadline when you want to reach a
+- [27:48.240] deal between Ukraine and Russia. Do you
+- [27:49.679] have any deadline in that?
+- [27:51.440] >> No, I don't have a dead. You can't have
+- [27:52.720] a deadline. It's, you know, it's too
+- [27:54.159] much going on. But, but I think you're
+- [27:56.880] going to have a deal. I think, you know,
+- [27:58.399] I've been I've been very good. You know,
+- [28:00.240] we had certain deals like Azeraijan and
+- [28:02.720] some of the deals that we made and they
+- [28:04.880] they've been going on for 32 years and
+- [28:06.880] they said it's an impossible thing to
+- [28:09.360] get them solved. Eight eight different
+- [28:10.960] deals. Even in the Congo, it was, think
+- [28:15.600] of it, you have the Congo and Rwanda.
+- [28:18.480] That was 14 million people dead. A lot
+- [28:22.000] of them with machetes. It's a horrible.
+- [28:24.320] We got that one solved. Or, you know,
+- [28:26.960] they go they flares up every once in a
+- [28:28.960] while, I must say. But we got deals done
+- [28:31.120] that weren't doable. But if you look at
+- [28:33.679] uh well, India and Pakistan, they were
+- [28:35.919] at it. We get that. We get them done.
+- [28:38.799] And when we get them done, I find that
+- [28:42.720] people are not anxious to go back into
+- [28:44.720] it. I think we'll have you you once
+- [28:47.279] mentioned the word security guarantee in
+- [28:48.960] the Oval Office
+- [28:50.880] >> and you know, I think they're going to
+- [28:52.720] need some kind of a security guarantee,
+- [28:54.320] but we're going to work with them.
+- [28:56.000] That's important.
+- [28:58.159] >> I think he thinks that's a very
+- [28:59.440] important thing.
+- [29:00.240] >> Security guarantees are very important
+- [29:02.159] and they'll live by it. are partially
+- [29:04.240] president said about patriots and
+- [29:06.720] licenses. Patriot system is the best you
+- [29:08.960] know in the world for today the best
+- [29:11.279] antibolistic system. So we used a lot of
+- [29:14.080] >> that's the best.
+- [29:14.720] >> Yeah they're the best one and we was I
+- [29:17.760] mean checked everything during the war.
+- [29:21.120] So this is truth. So with all respect to
+- [29:23.440] other partners we are thankful for all
+- [29:25.279] the system better.
+- [29:26.720] >> Well they had different systems in
+- [29:28.080] Venezuela. So Venezuela had systems that
+- [29:31.039] didn't work. We didn't have one plane
+- [29:33.440] shot down. We didn't have one. We had
+- [29:36.080] one helicopter operator who was
+- [29:38.320] incredible. He he landed it perfectly
+- [29:40.480] and his leg was almost blown off. And we
+- [29:42.320] gave him the Congressional Medal of
+- [29:44.640] Honor because very few people could have
+- [29:47.120] landed that. You know, you land him with
+- [29:48.559] your feet really more than anything
+- [29:50.399] else. And he landed it. He was really in
+- [29:52.320] bad shape. And at the State of the
+- [29:55.039] Union, we gave him who's a handsome guy,
+- [29:58.559] big handsome guy, but we gave him the
+- [30:01.039] Congressional Medal of Honor at the
+- [30:02.480] State of the Union. So, look, uh, he
+- [30:06.159] wants to get it done and we're going to
+- [30:07.440] get it done
+- [30:11.039] between Ukraine and the US.
+- [30:13.039] >> In what sense?
+- [30:13.840] >> What's the status of a drone deal
+- [30:15.600] between Ukraine and the US?
+- [30:17.360] >> Well, we would buy their drones and we
+- [30:19.440] make drones. They make great drones, but
+- [30:21.760] they have an ability to make a lot of
+- [30:23.600] them, which is right, Marco, amazing
+- [30:25.679] that in a war situation, they make them.
+- [30:28.880] They make them in basement. They make
+- [30:30.880] them wherever the hell you have a little
+- [30:32.480] shelter. Even if you don't have shelter,
+- [30:34.080] I think I suspect, right? It's an
+- [30:36.559] amazing ability. Very few Well, that's
+- [30:38.880] why I say with the with the Patriots,
+- [30:40.640] they they would be able to do it. Most
+- [30:42.640] countries would not be able. They don't
+- [30:44.080] have the the talent. You have very
+- [30:45.440] talented people. So, um, yeah, I think
+- [30:49.600] we're gonna make that deal.
+- [30:54.159] >> You know, if we made that deal, we'd
+- [30:55.600] have great protection.
+- [30:58.159] I love the protection. Think if you had
+- [30:59.760] a lot of patriots, you wouldn't you'd
+- [31:01.840] never be hit. And as an example, in
+- [31:04.159] Kiev, whether we where they get hit with
+- [31:06.640] missiles, those missiles, like what I
+- [31:09.200] said about the Abraham Lincoln, the
+- [31:10.559] missiles would be shot down, you know.
+- [31:13.039] So, and I think you you'd start making
+- [31:14.720] them pretty quickly,
+- [31:16.240] >> right? You like the idea?
+- [31:17.760] >> No. No. It's a great idea.
+- [31:18.960] >> I think everybody likes it.
+- [31:26.000] as part of security. Are you ready to
+- [31:28.559] close the skies in case
+- [31:31.919] >> what
+- [31:32.320] >> to close the skies over in case Russia
+- [31:38.159] >> air defense and jets when you use jets
+- [31:41.600] >> if it's necessary? Yeah. I mean, look, I
+- [31:44.000] I tell you when we have a deal, we're
+- [31:45.760] gonna have a deal. Security guarantee or
+- [31:47.679] no security guarantee. If we have a
+- [31:49.440] deal, we're going to have a deal. We're
+- [31:50.880] not going to have to worry about what
+- [31:53.039] you're saying. We're going to have a
+- [31:54.720] deal. I think if we if we come to a
+- [31:57.200] solution, which I think we will, we're
+- [31:59.360] going to have a deal. Now, we want to
+- [32:01.679] make sure the deal sticks. Some people
+- [32:03.120] don't think it will. I think it will. I
+- [32:04.640] think if I'm sure it will. I'm not sure
+- [32:06.880] it will with Iran. If we make a deal
+- [32:09.279] with Iran, I'm not sure that will stick.
+- [32:11.360] >> May I ask you
+- [32:13.519] >> because because I found them to be very
+- [32:16.720] dishonorable people. Yeah,
+- [32:19.840] >> I don't find that with him. And I mean,
+- [32:21.919] I don't want to upset him, but
+- [32:24.799] everything I've done with President
+- [32:26.640] Putin has been okay. It's been good.
+- [32:29.120] He's going to say, "Oh, but I wouldn't
+- [32:31.600] expect you to say that, but it's good. I
+- [32:34.960] don't think anything's going to be
+- [32:36.399] broken, and we're going to do a security
+- [32:38.799] guarantee in case it is." But uh with
+- [32:41.760] Iran
+- [32:43.600] 47 years, this should have been done by
+- [32:45.519] another president a long time ago or
+- [32:47.279] somebody else, another country, but they
+- [32:49.840] got stronger and stronger and now
+- [32:51.279] they're weak.
+- [32:51.919] >> Are you going to reost?
+- [32:53.039] >> You know, don't forget we knocked out
+- [32:54.880] 159 ships in one week. That's good even
+- [32:56.960] for you, right? 159. Their entire navy
+- [33:00.080] is at the bottom of the sea.
+- [33:02.640] >> And now they have little boats, little
+- [33:04.320] tiny boats that go around. And we
+- [33:06.399] knocked about 28 of them out last night
+- [33:08.880] with the same the same weapon we use for
+- [33:11.600] the drug people. You know, drugs are
+- [33:13.200] down. By the way, drugs by sea are down
+- [33:15.279] 97%.
+- [33:17.120] Meaning, nobody wants to get into those
+- [33:19.679] boats and take drugs into. They're down
+- [33:22.559] 97%.
+- [33:24.399] And we're using the same thing for the
+- [33:26.159] mine boats. You know, they have they
+- [33:27.840] like to drop mines in. And we hit a lot
+- [33:30.640] of them last night. Like 28. We knocked
+- [33:34.080] out 28 boats last night. Little ones.
+- [33:36.799] That's all they have is little ones. Are
+- [33:38.320] you going to try to take out more
+- [33:39.360] tonight?
+- [33:41.679] >> Will we go tonight? You know, normally I
+- [33:43.600] wouldn't tell you. I wouldn't tell you.
+- [33:46.000] But you know what? There's not a thing
+- [33:47.919] they can do about it. So, the answer is
+- [33:50.640] probably
+- [33:54.559] >> you say that's terrible military strate.
+- [33:56.480] He just said he's going to that. Yeah.
+- [33:58.480] >> Because they deserve it.
+- [34:02.480] >> President Trump. President Trump. What
+- [34:04.159] is the effectiveness of last night's
+- [34:06.240] attack? What message does that send?
+- [34:09.839] >> Which attack are you talking about?
+- [34:11.200] >> The attack you guys had on last night
+- [34:13.679] the strikes last night.
+- [34:14.720] >> Oh, I think it has a tremendous impact.
+- [34:17.359] >> Well, first of all, we took out
+- [34:18.560] additional, you know, they were trying
+- [34:20.159] to rebuild their radar and they had
+- [34:22.800] about 60% built. Now they have to have
+- [34:25.200] to start all over again. Look, we're not
+- [34:28.079] attacking at the highest level. the
+- [34:31.200] highest level of the bridges their uh
+- [34:34.800] which we can knock down. I would say in
+- [34:36.480] one day we knocked down every single
+- [34:38.240] bridge in Iran. There's not a thing they
+- [34:40.480] can do about it. Uh their electric
+- [34:44.000] manufacturing facilities, right? Their
+- [34:47.119] electric plants where they make their
+- [34:48.720] electricity and their uh we will if we
+- [34:52.800] have to, we'll take them out. I don't
+- [34:54.480] want to do that, but if we have to,
+- [34:55.919] we'll take them out. They have
+- [34:58.560] desalinization plants. We'll take them
+- [35:00.640] that if we have to. I hate to do that.
+- [35:02.240] That's probably the one I I would like
+- [35:04.079] not to do. At least uh we attacked Car
+- [35:07.520] Island last night. We knocked out a
+- [35:09.200] piece. I said, "Don't don't touch the
+- [35:10.640] oil because maybe we'll take over Car
+- [35:13.520] Island. We may take over Car Island.
+- [35:16.880] There's not a thing they can do about
+- [35:18.400] it." But I said, "Don't hit the pipes.
+- [35:20.720] Just hit everything else." And they hit
+- [35:22.880] it. They may hit it again tonight. So,
+- [35:25.680] you know, as per your question, normally
+- [35:27.200] I'm not that way, but they really
+- [35:29.920] deserve it because they're saying they
+- [35:32.880] want to make a deal, but they don't. You
+- [35:34.560] know, they they asked for a timeout.
+- [35:37.280] They wanted to go to the funeral of
+- [35:38.800] Kmeni, and I said, "Give it to him, and
+- [35:41.839] they start shooting missiles." I mean,
+- [35:44.000] it was the craziest thing.
+- [35:46.480] Now, we did kill him, you know. So, I
+- [35:49.760] guess you have to look at it that way.
+- [35:50.960] that the funeral took place and they
+- [35:55.119] wanted to have a
+- [35:57.359] a period of time and they also asked
+- [36:00.240] that we not kill them and we said we're
+- [36:03.920] not going to kill you. They were worried
+- [36:06.560] we'd kill him during the funeral. I mean
+- [36:08.240] if you can believe what a crazy Did you
+- [36:10.480] ever think I'd be doing this for a
+- [36:11.839] living Marco? Did Did anybody ever think
+- [36:15.520] I'm doing Maybe Pete, but this wasn't
+- [36:17.359] supposed to be for me. Pete loved this
+- [36:19.599] up from day one. But they said to us,
+- [36:24.320] "Please don't kill us during the
+- [36:25.839] funeral." I said, "I won't." And we
+- [36:27.680] didn't. We didn't do anything. In fact,
+- [36:29.839] we made it safe for them actually. And
+- [36:32.320] what happens? They try and knock out two
+- [36:34.800] two ships, a Saudi and I guess Kuwait,
+- [36:37.760] right? Kuwaiti. Oh, no. Qatari
+- [36:41.119] in addition really three. So you had
+- [36:44.320] three of them.
+- [36:46.400] and
+- [36:48.400] they're just I don't know. I just don't
+- [36:50.000] know with them. A lot of people say they
+- [36:51.920] they're very dishonorable people and
+- [36:54.480] they can't keep a deal. So, we'll see.
+- [36:56.400] Now, as to whether or not Steve Whit,
+- [36:59.760] Jared, and JD, and everybody working
+- [37:02.400] that will talk. I guess they can talk,
+- [37:04.560] but I'm not seeing it with them. I, you
+- [37:07.040] know, with the people. My whole life is
+- [37:08.960] deals. I don't see it. I don't see it
+- [37:11.119] with them.
+- [37:14.480] >> And there may be
+- [37:17.040] a big attack tonight and it'll knock out
+- [37:20.480] a lot of stuff. We don't knock out
+- [37:22.880] nothing. We knock out a lot. Pete, do
+- [37:24.800] you want to tell them about last night?
+- [37:26.240] >> Yes, sir. Uh last night, as you said, a
+- [37:28.480] lot of small uh craft that they were
+- [37:30.720] trying to harass shipping with. So, that
+- [37:32.320] was a big part of what we targeted
+- [37:34.240] underground facilities where they were
+- [37:35.680] storing drones or missiles, coastal uh
+- [37:38.400] defense sites, radar sites, surveillance
+- [37:40.960] sites, anything used to harass shipping
+- [37:43.119] in the street of Hormuz. So, anything
+- [37:44.560] they thought they had rebuilt or
+- [37:45.920] capability they were using uh was a
+- [37:48.240] target last night. And tonight, if we
+- [37:50.240] need to on your order, Mr. President, we
+- [37:52.240] will hit even more and even deeper
+- [37:54.240] because that's a consequence.
+- [37:55.200] >> And we may put down the blockade. We may
+- [37:58.160] put it back the blockade.
+- [38:00.880] Uh and it'll only be a blockade for
+- [38:02.880] Iran. Anybody else can have whatever
+- [38:04.640] they want. Now, of course, they'll drop
+- [38:06.320] some mines if they can, you know, if
+- [38:08.079] they can do it. But it's hard because
+- [38:10.160] we're taking out those little boats now
+- [38:11.680] with the same weapon we used to take out
+- [38:14.160] the drug lords and the boats coming in
+- [38:17.359] by sea. Think of it. 97%
+- [38:20.480] for years we had fentanyl and all the
+- [38:22.800] other drugs coming in from different
+- [38:24.240] countries including Venezuela.
+- [38:27.280] And it was, you know, they'd arrest
+- [38:29.440] them, they'd bring them to a court,
+- [38:31.760] they'd be released, and they'd be back
+- [38:33.040] on another boat the next. 97%
+- [38:36.800] that had what was done in the past had
+- [38:38.960] no impact. 97%
+- [38:41.760] drugs down coming in by sea. And now
+- [38:44.320] we're going to start doing it by land.
+- [38:45.680] The land is easier when we had to do sea
+- [38:47.359] first and nobody I mean I think the 3%
+- [38:51.200] of the people that still do that I think
+- [38:53.119] they're the bravest people in the world
+- [38:55.280] and maybe we should probably give him a
+- [38:57.200] medal for bravery because it's a and
+- [38:59.920] we're using the same exact missile to
+- [39:02.800] take out the mind the mind drop they
+- [39:04.800] call them mind droppers but we have mind
+- [39:07.440] sweepers and one of the things that came
+- [39:08.880] up today is that European nations the
+- [39:11.760] NATO group uh they're sending mind
+- [39:14.880] sweepers
+- [39:16.160] We don't need them now. We have pretty
+- [39:17.599] much the minds are cleared out, but
+- [39:18.880] they'll probably drop some more. They're
+- [39:20.720] evil people. They're sick people.
+- [39:22.240] They're really They're mentally
+- [39:23.839] disturbed people. And uh
+- [39:28.000] it should have been done 47 years ago.
+- [39:30.079] Thank you everybody.

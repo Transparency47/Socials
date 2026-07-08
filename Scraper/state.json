@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=9JYvcEVlu3s: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=9JYvcEVlu3s! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption track was empty"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=7WhdyCmritw: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=7WhdyCmritw! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -164751,6 +164751,17 @@
       "title": "President Trump Participates in a Rose Garden Club Lunch, Jul. 6, 2026",
       "url": "https://www.youtube.com/watch?v=453cGvgkOBg"
     },
+    "youtube:whitehouse:47CVa-DGc-I": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-08T17:38:29.986534+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/08/47CVa_DGc_I",
+      "platform": "youtube",
+      "post_id": "47CVa-DGc-I",
+      "published": "2026-07-08T16:38:45+00:00",
+      "title": "President Trump Participates in a Bilateral Meeting with the President of Ukraine",
+      "url": "https://www.youtube.com/watch?v=47CVa-DGc-I"
+    },
     "youtube:whitehouse:47qaB1K0TKk": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -166345,6 +166356,17 @@
       "published": "2025-05-21T20:52:09+00:00",
       "title": "President Trump Welcomes the 2025 Men's NCAA Basketball Champions, The University of Florida Gators",
       "url": "https://www.youtube.com/watch?v=9IIH9WTHHz8"
+    },
+    "youtube:whitehouse:9JYvcEVlu3s": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-08T17:38:26.370011+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/08/9JYvcEVlu3s",
+      "platform": "youtube",
+      "post_id": "9JYvcEVlu3s",
+      "published": "2026-07-08T16:51:28+00:00",
+      "title": "President Trump Participates in a Press Conference, Jul. 8, 2026",
+      "url": "https://www.youtube.com/watch?v=9JYvcEVlu3s"
     },
     "youtube:whitehouse:9K5N6cYCy3M": {
       "account": "WhiteHouse",
@@ -182417,6 +182439,17 @@
       "title": "President Trump Participates in a Working Session with U.S. - ASEAN Leaders",
       "url": "https://www.youtube.com/watch?v=zKVC2Ty2uBE"
     },
+    "youtube:whitehouse:zLkUz7lR8vk": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-08T17:38:28.785699+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/08/zLkUz7lR8vk",
+      "platform": "youtube",
+      "post_id": "zLkUz7lR8vk",
+      "published": "2026-07-08T16:38:50+00:00",
+      "title": "President Trump Participates in a Bilateral Meeting with the President of the Syrian Arab Republic",
+      "url": "https://www.youtube.com/watch?v=zLkUz7lR8vk"
+    },
     "youtube:whitehouse:zPTRMHd_6iU": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -182427,6 +182460,17 @@
       "published": "2025-07-16T23:47:46+00:00",
       "title": "President Donald J. Trump Signs The HALT Fentanyl Act Into Law",
       "url": "https://www.youtube.com/watch?v=zPTRMHd_6iU"
+    },
+    "youtube:whitehouse:zTEXrvAMALo": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-08T17:38:27.578198+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/08/zTEXrvAMALo",
+      "platform": "youtube",
+      "post_id": "zTEXrvAMALo",
+      "published": "2026-07-08T16:50:37+00:00",
+      "title": "2026 NATO Summit: America is RESPECTED AGAIN on the world stage like never before. \ud83c\uddfa\ud83c\uddf8",
+      "url": "https://www.youtube.com/shorts/zTEXrvAMALo"
     },
     "youtube:whitehouse:zUX3vt21lV8": {
       "account": "WhiteHouse",

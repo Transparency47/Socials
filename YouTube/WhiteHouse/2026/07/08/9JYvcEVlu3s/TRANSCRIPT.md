@@ -1,0 +1,1022 @@
+<!-- source: https://www.youtube.com/watch?v=9JYvcEVlu3s -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 9JYvcEVlu3s -->
+<!-- date_published: 2026-07-08T16:51:28+00:00 -->
+<!-- date_accessed: 2026-07-08T17:38:26.370011+00:00 -->
+
+# Transcript: President Trump Participates in a Press Conference, Jul. 8, 2026
+
+- [00:11.520] the 45th and 47th president of the
+- [00:14.319] United States, Donald J. Trump.
+- [00:31.200] That's a lot of press.
+- [00:34.319] Wow.
+- [00:37.520] Well, it's important stuff. And you
+- [00:40.480] know, our team out here that all they've
+- [00:43.599] all become stars, superstars, actually.
+- [00:47.680] But we uh want to thank you very much.
+- [00:49.599] We've had a tremendous
+- [00:51.760] time and I think a great success and we
+- [00:54.559] just concluded a very successful NATO
+- [00:57.359] summit here in Turkey and I want to
+- [01:01.040] thank President Erdogan who's really a
+- [01:03.839] great man he's a great leader he's a
+- [01:06.480] friend of mine been a friend of mine for
+- [01:08.000] a long time he's a strong person a very
+- [01:10.799] strong personality and that's why he
+- [01:13.520] runs such a successful and good company
+- [01:16.559] country and really a great I would say a
+- [01:18.720] great country. Militarily, he's uh very
+- [01:22.480] powerful. People leave him alone,
+- [01:25.920] but he's really done a fantastic job.
+- [01:27.839] And from the moment we got off the
+- [01:30.240] plane, you look at you the airports were
+- [01:32.720] beautiful.
+- [01:34.240] He built they built a new terminal for
+- [01:37.119] our arrival. Everything was beautiful.
+- [01:40.000] And so I just want to thank President
+- [01:42.079] Erdogan who's done a fantastic job in
+- [01:45.200] Turkey. And I also want to thank NATO
+- [01:48.559] Secretary
+- [01:50.160] General Mark Ruta.
+- [01:53.280] Mark is a extraordinary person, smart,
+- [01:57.040] great leader. It's not easy leading so
+- [02:00.240] many leaders like that. Got a lot of
+- [02:02.240] leaders and they're strong
+- [02:04.480] personalities. Every one of them. And
+- [02:06.960] Mark uh Mark does an unbelievable job.
+- [02:11.440] Couldn't find anybody better. Uh, I just
+- [02:14.400] want to say there was tremendous love in
+- [02:16.079] that room. The press got to see the the
+- [02:18.559] sitting, but they didn't get to see the
+- [02:20.160] speaking. And I actually said it's too
+- [02:21.520] bad the press couldn't see this because
+- [02:24.000] every one of them spoke for a little
+- [02:26.000] while and I spoke for a little while and
+- [02:29.920] it's a big it's a lot of speeches. We
+- [02:33.359] kept it short, but it's too bad the
+- [02:36.000] press couldn't have seen what we uh what
+- [02:39.040] we were doing in that room because it
+- [02:40.480] was
+- [02:42.000] uh very smart people and they have a lot
+- [02:45.280] of good in their heart, not evil, good
+- [02:48.400] and they're doing a great job for their
+- [02:50.160] country. The world is doing well. We
+- [02:52.960] have uh as you know, the oil is down.
+- [02:55.839] We'll see whether or not we keep it
+- [02:57.359] down. We should keep it down. We're
+- [02:59.680] doing things that should have been done
+- [03:01.440] 47 years ago with Iran.
+- [03:04.319] And I just want to say that throughout
+- [03:06.319] my first term and over the past 18
+- [03:09.119] months, the United States has led a
+- [03:11.520] historic effort to dramatically increase
+- [03:13.680] the defense spending and to
+- [03:17.680] have equipment that no other country in
+- [03:19.599] the world has. When you look at
+- [03:20.960] Venezuela, when you look at Iran,
+- [03:23.760] essentially demolished their military in
+- [03:26.720] couple of weeks. They had a good
+- [03:28.640] military. They had a good navy. They had
+- [03:30.799] 159 ships. Everyone's at the bottom of
+- [03:32.960] the sea. They had hundreds of airplanes.
+- [03:36.799] They're all gone. They're all lying
+- [03:39.200] burned up on the runways.
+- [03:41.599] They were totally decimated. Their radar
+- [03:44.079] is gone. Their everything is gone. Their
+- [03:46.799] leaders are gone, frankly.
+- [03:49.359] And their combat capability is pretty
+- [03:52.880] low. They have a small percentage of
+- [03:55.359] missiles left. They have some of the
+- [03:58.240] launchers, missile launchers left. Call
+- [04:00.720] them launching pads, but most of that's
+- [04:03.280] been destroyed, too. So, we are uh we
+- [04:08.799] have the strongest military in the world
+- [04:10.400] by far. Not even close. Everybody admits
+- [04:12.960] it. Last year's summit in the
+- [04:15.280] Netherlands was great also. And we
+- [04:17.839] achieved an unprecedented agreement to
+- [04:19.839] increase the annual defense spending.
+- [04:22.480] And that's the benchmark raising it from
+- [04:25.359] 2% to 5% of GDP which everybody said was
+- [04:29.200] impossible. And now they're all thanking
+- [04:30.960] me and and most of the countries have
+- [04:32.880] agreed to it. We have a couple of couple
+- [04:35.200] of that didn't. But I have a feeling
+- [04:37.599] they're going to
+- [04:39.599] and pretty quickly. In fact, today they
+- [04:42.400] were very positive. One of them in
+- [04:43.920] particular was I didn't think a good
+- [04:46.240] team player today was a great team
+- [04:47.760] player. As all of the leaders understand
+- [04:52.079] very well, the United States remains by
+- [04:55.200] far the largest contributor to NATO
+- [04:58.640] monetarily and maybe otherwise and the
+- [05:00.880] strongest military
+- [05:02.880] anywhere in the world. And they respect
+- [05:05.680] us as a country again. They didn't
+- [05:07.520] respect us two years ago. They laughed
+- [05:09.440] at us. NATO laughed at us. Everybody
+- [05:11.920] laughed at us. They don't laugh anymore.
+- [05:14.079] There's no more laughing.
+- [05:16.160] This year we invested a record$1
+- [05:18.240] trillion dollars in our armed forces and
+- [05:21.440] we're going to be asking for $1.5
+- [05:24.880] trillion coming up. We have the money
+- [05:28.240] being spent on the best equipment
+- [05:30.240] anywhere in the world.
+- [05:32.720] In the working session this morning, we
+- [05:34.960] discussed the progress other members are
+- [05:37.760] making toward the 5% target and they're
+- [05:40.079] making great progress. Many of these
+- [05:42.400] countries are very rich, by the way. We
+- [05:44.079] don't have to feel sorry for them.
+- [05:46.319] But it doesn't mean they're properly
+- [05:47.760] protected. There's a big difference.
+- [05:50.240] Some have truly answered the call and
+- [05:52.000] others are making big changes and will
+- [05:55.119] be answering the call. I think I can say
+- [05:57.280] in all cases they're going to be
+- [05:58.559] answering the call. And we'll be we'll
+- [06:02.079] be taking in over a trillion dollars a
+- [06:04.799] year toward defense.
+- [06:07.039] And that's a tremendous amount of money.
+- [06:10.079] That's a big up. They were at 2%. They
+- [06:12.640] were actually at 1%. I got them to 2%.
+- [06:14.799] Then I wanted to get him to five
+- [06:17.760] and uh we got up to five the last time
+- [06:21.280] and there you know just again if you
+- [06:24.400] could have seen the respect and the love
+- [06:26.000] in the room and it's love really for the
+- [06:27.920] country for our country. I don't want to
+- [06:29.119] say me because you'll say, "Oh, he's so
+- [06:30.559] conceited. He's such a conceited
+- [06:32.400] person." But they do. I mean, you know,
+- [06:34.720] they they like the job I'm doing. They
+- [06:37.520] said, "We love." Well, sir, we love you.
+- [06:40.799] These are grown people saying that.
+- [06:42.559] Isn't that nice? Maybe. I don't know.
+- [06:44.000] Maybe they're trying to get to me. And
+- [06:47.760] the way they did because there was
+- [06:49.760] tremendous unity in that room. And I
+- [06:52.799] urge all nations to accelerate their
+- [06:55.200] plans to get the benchmark as quickly as
+- [06:58.559] possible.
+- [07:00.160] The benchmark is going to be that 5%
+- [07:02.480] number. That's the number it should have
+- [07:03.760] been for years.
+- [07:05.680] As a result of the commitment we
+- [07:08.319] achieved last year, defense spending of
+- [07:11.280] other NATO members surged by more than
+- [07:14.319] almost
+- [07:16.000] 150 billion dollars in 2025. And much of
+- [07:20.319] that money is being spent on
+- [07:22.400] Americanmade equipment. They all want
+- [07:24.240] Americanmade equipment. We're we're uh
+- [07:28.640] pushing very hard to have the defense
+- [07:31.839] companies and they're great. We make the
+- [07:33.440] best equipment, the Patriots and the
+- [07:34.880] Tomahawks and everything we have is is
+- [07:37.119] considered to be the best. Not by me,
+- [07:38.799] it's everybody wants it. I wish we made
+- [07:41.280] it faster because we could sell as much
+- [07:44.160] as we could make. And as you know I had
+- [07:46.319] Lheed and uh every one of the companies
+- [07:50.319] all of the companies that were raon as
+- [07:52.319] an example Boeing so many of those great
+- [07:55.359] companies are now building plants. They
+- [07:58.720] had big plants but they were using them
+- [08:01.039] 247.
+- [08:02.559] I said that's not the way to do it. You
+- [08:04.319] have to build more plants. You don't
+- [08:05.920] have to just go overtime.
+- [08:08.400] No tax on overtime. Remember that place.
+- [08:11.280] No tax on overtime. Those people are
+- [08:13.440] happy. But they're going they were doing
+- [08:16.239] literally 24 hours to get the tomahawks
+- [08:19.359] done and the patriots done and all of
+- [08:21.600] the other defensive and offensive
+- [08:23.359] equipment done. It's the most
+- [08:25.120] soughtafter equipment in the world. You
+- [08:27.920] saw that with Venezuela where they had a
+- [08:30.719] lot of great equipment. It wasn't ours
+- [08:32.159] and it didn't work.
+- [08:34.640] Our equip our equipment works but we
+- [08:36.640] have to produce it faster for other
+- [08:38.640] countries for everybody including
+- [08:40.880] ourselves. We have to produce it faster.
+- [08:42.880] So we think within a year, year and a
+- [08:44.640] half max, we'll be instead of waiting
+- [08:47.359] for a year or two years, we'll be having
+- [08:50.719] it on a two week wait, maybe a oneweek
+- [08:53.679] wait. That's what I want. And it'll do
+- [08:57.839] really well. A lot of people are, you
+- [09:00.000] know, just waiting. They're waiting. You
+- [09:01.679] want to get this defensive equipment,
+- [09:04.799] maybe in particular the defensive
+- [09:06.640] equipment, but offensive and defenses.
+- [09:09.359] Much of that money is being spent on
+- [09:12.400] Americanmade
+- [09:14.000] equipment. That's the money that the
+- [09:16.640] European and Canada are spending
+- [09:19.520] European countries mostly and Canada.
+- [09:23.279] And they're spending that with the
+- [09:24.880] United States largely.
+- [09:28.000] And it's Americanmade, made in the USA,
+- [09:30.799] as we say, weapons, munitions,
+- [09:34.159] supporting thousands of American jobs.
+- [09:36.400] This will increase. We have the highest
+- [09:38.719] number of jobs right now. We have the
+- [09:40.239] most people working in the United States
+- [09:42.000] of that we've ever had in the history of
+- [09:44.080] our country. We have the biggest
+- [09:46.080] investment ever made. 19.2 trillion
+- [09:49.679] dollars. That's six times more than
+- [09:51.920] we've ever had. Think of it. Six times.
+- [09:54.320] And what did that were tariffs? Without
+- [09:56.880] the tariffs, I think we would have done
+- [09:58.560] fine like at about two or three. The
+- [10:02.239] last administration
+- [10:04.159] uh had much less than one trillion
+- [10:06.080] invested for four years. We have 19.2
+- [10:10.159] trillion invested in one year. We
+- [10:11.920] haven't gone into the extra almost a
+- [10:14.159] half a year, one and a half years. Those
+- [10:17.280] numbers won't come out for a little
+- [10:18.640] while. So we've have u 19.2 2 trillion,
+- [10:23.520] not billion, not million, trillion with
+- [10:26.159] a T, invested in plants and equipment
+- [10:29.440] that's being built all over the country.
+- [10:32.159] Eli Liy is building plants, big drug,
+- [10:35.360] Merc, all of them, the drug companies
+- [10:37.199] are building. The car companies are
+- [10:39.360] building like crazy. In fact, as you
+- [10:42.000] probably saw a big announcement
+- [10:43.360] yesterday, Toyota is leaving Mexico and
+- [10:46.960] they're going to build one of the
+- [10:48.960] biggest car manufacturing plants in the
+- [10:50.960] world in Texas. That's because of the
+- [10:53.440] tariffs. Because we don't mind if you
+- [10:55.840] build in Mexico, but if you build in
+- [10:57.520] Mexico, you have to pay 25% tariff. If
+- [11:00.560] you build in Japan or if you build in
+- [11:03.840] any place now, China is a much higher
+- [11:05.679] tariff. It's 100% tariff because we
+- [11:08.719] don't want to lose our jobs. We don't
+- [11:10.960] want to have our workers lose their
+- [11:12.560] jobs. We have the we have the largest
+- [11:15.280] number of plants being built for the
+- [11:17.120] most money ever uh in the history of our
+- [11:20.080] country. Car plants, AI plants, and all
+- [11:22.960] other plants, pharmaceutical plants,
+- [11:25.360] chips. We're not giving anything. All
+- [11:27.840] we're saying is if you don't start if we
+- [11:31.120] give them a year and a half to two years
+- [11:33.040] to build their plant if they don't have
+- [11:34.560] that they have to pay 100% 200% even
+- [11:37.840] 250%
+- [11:40.560] if they make a chip or if they make a
+- [11:42.239] car if they make pharmaceuticals. So the
+- [11:44.239] pharmaceutical companies are moving in
+- [11:46.800] at record levels. There's never been
+- [11:49.040] anything like what's happening. Let me
+- [11:51.040] put it a different put it in a more
+- [11:53.520] broad fashion. There has never been
+- [11:55.840] anything like s like has happened with
+- [11:57.840] this country or any other country in the
+- [11:59.600] history of the world.
+- [12:03.199] There has never been growth. There's
+- [12:06.239] never been manufacturing plants being
+- [12:09.120] built. We have so many being built. And
+- [12:11.600] in the big ones like AI, some of the AI,
+- [12:14.719] we let them build their own electric
+- [12:16.159] plants. We force them to build. We don't
+- [12:17.760] want because the old grid that we have
+- [12:20.000] wouldn't be able to supply. They need
+- [12:22.000] just as an industry more energy than the
+- [12:25.199] entire country produces right now when
+- [12:28.080] you think of it which is incredible. So
+- [12:30.800] take all of the energy that the United
+- [12:32.800] States produces and that one industry
+- [12:35.280] which is so big so powerful it needs
+- [12:38.560] more than that in fact some people say
+- [12:40.480] almost double. So this was my idea. I
+- [12:44.159] said you can never service that. You
+- [12:46.960] can't reinvigorate the grid. You can
+- [12:49.120] make it better but nothing like that.
+- [12:50.640] you wouldn't be able to build. And we're
+- [12:52.080] leading China in AI
+- [12:55.040] in most just about everything. But we're
+- [12:57.840] leading China in AI. Even in Tik Tok,
+- [13:00.880] you know, I was watching somebody say,
+- [13:02.239] "Oh, the Tik Tok deal, it's so bad for
+- [13:05.520] Well, because they say the deal was
+- [13:08.640] incredible, but they think the word that
+- [13:11.120] gets out is bad. Except the numbers just
+- [13:13.840] came out and I'm number one on TikTok
+- [13:15.920] and all I do is talk about communism,
+- [13:18.000] right? So, it's h sort of good. I used
+- [13:20.719] it to get elected, too. But, you know,
+- [13:23.920] you have to get your word out. But, it
+- [13:25.920] just the numbers came out just a little
+- [13:27.440] while ago and I was number one. Some
+- [13:29.280] ridiculous number. I never heard of
+- [13:31.040] numbers like that, but number one. And
+- [13:34.000] all these entertainers, they're number
+- [13:35.600] 27, 29. It's crazy. I don't even
+- [13:38.880] understand myself. But that means my
+- [13:41.360] words getting out about how great our
+- [13:43.840] country is, how successful our country
+- [13:45.679] is, and how bad communism is, and how
+- [13:48.320] bad these lunatics are that are running
+- [13:50.239] for election that don't sound good,
+- [13:53.760] don't think good, and don't look good. I
+- [13:56.000] don't see any looker. I don't see
+- [13:58.320] anybody with the look. You know, you
+- [13:59.920] need the look. I guess you need
+- [14:01.679] something, but they don't have it. And I
+- [14:04.880] think they'll fade fast. And it's not
+- [14:07.040] social democrats. This is not a social
+- [14:09.199] debt. These are communists that are
+- [14:10.719] running and uh they don't want God. They
+- [14:15.120] don't want successful things to happen
+- [14:17.360] for our country. They don't want to have
+- [14:18.719] a successful country. I think they're
+- [14:21.520] sort of crazy. As European nations
+- [14:24.640] rebuild their militaries, American
+- [14:26.400] equipment will be the largest
+- [14:30.239] beneficiary. The defense companies are
+- [14:32.560] going to be making most of that
+- [14:34.400] equipment. They want the American
+- [14:35.760] equipment because it works better. It's
+- [14:37.199] not question of anything else. We make
+- [14:39.040] the best equipment in the world. And to
+- [14:41.600] that end, I provided other leaders with
+- [14:44.400] an update on the steps we're taking to
+- [14:46.480] rapidly scale up production in the
+- [14:48.400] United States. And they they wanted to
+- [14:51.199] hear that because they don't really want
+- [14:52.640] to get it in four years, five years.
+- [14:54.239] They want to get it like in a week. And
+- [14:57.199] we'll actually be at a point like that
+- [14:59.040] in the not too distant future with the
+- [15:01.360] plants that are being built, the defense
+- [15:02.960] plants. It's incredible. Um, Lheed is
+- [15:07.040] building, I think, five.
+- [15:09.440] Some of them are building three, four or
+- [15:11.760] five. And they're big ones. It's going
+- [15:14.159] to quadruple the output of we have with
+- [15:17.840] the munitions and and the basic
+- [15:20.320] equipment itself, whether it's a Patriot
+- [15:22.640] or Tomahawk missile or any of the
+- [15:24.800] missiles that we make make many
+- [15:26.159] missiles, different types for different
+- [15:28.480] occasions.
+- [15:30.159] And just today at the summit, we
+- [15:31.840] announced $3 billion of new defense
+- [15:34.880] investments with US companies. And Lheed
+- [15:38.640] Martin will establish a worldclass
+- [15:40.719] Patriot missile sustainment facility, a
+- [15:43.679] big deal in Europe. They're given a
+- [15:46.000] tremendous incentive by Europe to do
+- [15:47.920] that. All goes to the benefit of us and
+- [15:51.280] Europe because they're getting the best
+- [15:52.560] equipment. Northrup Grumman is moving
+- [15:54.960] forward with the sale of advanced
+- [15:56.880] American drone technology. We're
+- [15:59.679] actually the leader in drone tech. A lot
+- [16:01.280] of people don't know that we have the we
+- [16:03.199] have the most sophisticated drones in
+- [16:05.040] the world and uh we're a real I guess
+- [16:08.960] we're the leader but we're we'll soon be
+- [16:11.199] the leader by many times over and Led
+- [16:14.719] and Ryan Metal are announcing a
+- [16:18.719] partnership to build the army tactical
+- [16:22.080] missile systems which is a big deal and
+- [16:26.719] is announcing a deal to build their new
+- [16:30.159] Barracuda missiles, which is a very
+- [16:32.320] highly sophisticated,
+- [16:34.239] fast missile. And we're doing that for
+- [16:36.719] Poland.
+- [16:38.400] Poland's doing very well, by the way,
+- [16:40.080] with a very, very good president, great
+- [16:42.560] president. I think all of these
+- [16:44.640] agreements directly benefit the US
+- [16:46.320] defense industry base. And what it
+- [16:50.000] really does is it means jobs. And again,
+- [16:53.199] I I have to just say that when Toyota
+- [16:56.719] announced yesterday, I wasn't that
+- [16:58.080] surprised, but everybody wanted to get
+- [17:00.000] that. That's the largest I think it's
+- [17:02.640] going to be the largest plant in the
+- [17:04.000] world car plant and they're moving into
+- [17:06.480] the United States and again they're
+- [17:08.080] doing that to avoid paying the tariff
+- [17:10.159] because if you build your product here
+- [17:11.840] you pay no tariff if you don't you pay a
+- [17:13.840] 25% tariff depending 35% sometimes
+- [17:17.520] sometimes 100% 200% depending on what
+- [17:20.640] the product is. As an example we're
+- [17:23.040] doing great on steel because we charge
+- [17:24.640] tariffs. So now all of a sudden the
+- [17:26.159] steel industry which was absolutely dead
+- [17:29.280] a few years ago. I revived it in my
+- [17:31.199] first term pretty good and then they
+- [17:33.600] blew it in in the Biden term. What a
+- [17:38.159] shame. They just blew it right out the
+- [17:39.920] window. They had no idea what they were
+- [17:41.360] doing. And I quickly revived it at the
+- [17:44.080] beginning of my of this term year and a
+- [17:46.480] half. And we are the steel business is
+- [17:50.400] through the roof. We don't even make
+- [17:52.800] aluminum anymore. Now, we're going to
+- [17:54.320] have the largest aluminum plant in the
+- [17:56.159] world being built in Oklahoma. I love
+- [17:58.960] Oklahoma. 77 out of 77 counties, three
+- [18:03.440] times. And it's great. It's a great
+- [18:05.840] state. They're going to be building the
+- [18:07.360] largest aluminum plant in the entire
+- [18:10.480] world in Oklahoma. It's starting very
+- [18:13.600] soon. Over the course of the past two
+- [18:15.760] days, I had a number of excellent
+- [18:18.000] discussions with other leaders at the
+- [18:19.840] summit and held productive bilateral
+- [18:22.560] meetings with essentially all of them.
+- [18:24.960] We had dinner last night. Just about all
+- [18:26.560] of them were there. President Erdogan of
+- [18:29.520] Turkey as well as President Zalinski and
+- [18:32.480] he just came in as you probably saw a
+- [18:35.360] little press conference and also
+- [18:38.400] President Alsher of Syria who's doing an
+- [18:42.000] unbelievable job in unifying Syria. What
+- [18:44.480] a job he's doing. Syria was a mess
+- [18:48.320] with what happened with a previous
+- [18:51.120] government. You know that very dangerous
+- [18:53.840] place and now it's it's just come
+- [18:55.760] together. He's done a fantastic job.
+- [18:57.600] People are talking about it. In every
+- [19:00.400] conversation, it was clear that America
+- [19:03.040] is back and we're stronger and bigger
+- [19:06.880] and better than ever before. We have
+- [19:08.640] more jobs, as I said, than ever before.
+- [19:11.600] And we're respected again like maybe
+- [19:13.520] never before. We are so respected as a
+- [19:16.239] country. That's why I wish I told the
+- [19:19.679] secretary general Mark, I said, "It's
+- [19:22.320] too bad the press could not see what's
+- [19:24.000] happening in this room." You saw the big
+- [19:25.679] round circle with all of the leaders of
+- [19:28.480] all of those countries and I don't know.
+- [19:31.040] I think they should allow it. The theory
+- [19:33.920] is that they won't be speaking quite as
+- [19:37.199] freely and it won't be quite as good,
+- [19:39.440] but who knows? It was amazing actually.
+- [19:42.000] The the unity in that room was
+- [19:44.880] incredible. The the really a love it was
+- [19:48.960] sort of pretty wild. There was a love in
+- [19:50.960] that room that was great. So this was a
+- [19:53.280] tremendously successful summit
+- [19:56.080] and again I want to thank President
+- [19:58.000] Erdogan
+- [19:59.679] Turkey and President uh so many of the
+- [20:04.080] presidents presidents prime ministers
+- [20:06.640] they were all here from NATO the NATO
+- [20:10.719] countries and in particular we have to
+- [20:13.280] thank the secretary general Mark Ruter
+- [20:16.239] for doing a fantastic job. He really put
+- [20:18.159] on a a tremendous His was just something
+- [20:21.360] he just he's a unifier. He's a
+- [20:24.320] tremendous unifier. So I could take a
+- [20:27.040] few questions. We've done a few of these
+- [20:29.520] already today. So I don't think we
+- [20:30.880] should take too many. I don't think we
+- [20:33.040] should take Wait. So we're going to keep
+- [20:34.960] it a little bit short and I know a lot
+- [20:36.640] of you are going home. Some are going
+- [20:38.159] with me. So go ahead, please,
+- [20:41.280] >> sir. Yes.
+- [20:42.560] >> Yes.
+- [20:44.239] >> No, no, no. The gentleman right here.
+- [20:47.440] the very tall gentleman who's very
+- [20:49.199] insecure. He doesn't want to ask the
+- [20:50.800] question. He's a handsome guy, but he's
+- [20:53.199] very insecure. Go ahead.
+- [20:55.600] >> Do you want to shout it out? Give him a
+- [20:57.040] mic. How about giving him He shouted
+- [20:59.040] out.
+- [20:59.440] >> Mr. President, your operation in
+- [21:02.400] Venezuela has a military success and yet
+- [21:07.040] the Iran war seems to be a strategic
+- [21:10.880] dead end for you. Why are you apparently
+- [21:13.920] unable to end the Iran war? So I think
+- [21:16.960] we're doing just the opposite. The Iran
+- [21:19.199] war has been a tremendous military
+- [21:21.199] success and you know I can only answer
+- [21:24.080] the question by saying they're not going
+- [21:25.760] to have a nuclear weapon. I think it's
+- [21:27.520] been I was there for one reason that
+- [21:29.840] Iran cannot have a nuclear weapon. I
+- [21:32.640] call it we uh dnuclearize
+- [21:36.239] Iran and that's happened. They will
+- [21:38.000] never have a nuclear weapon. That stuff
+- [21:39.920] is so far down under a mountain. It's a
+- [21:42.000] granite mountain that collapsed on top
+- [21:43.840] of it. take months to get it out. Uh I
+- [21:47.760] think it's a tremendous success Iran and
+- [21:50.480] you see the oil prices are lower than
+- [21:52.159] they were when I started and people like
+- [21:54.719] to say that but look they have no
+- [21:56.239] military left. Their air force is gone
+- [21:58.800] as I said their ships are gone. 159
+- [22:01.120] ships are gone. They're at the bottom of
+- [22:02.639] the sea. Their radar is gone.
+- [22:05.199] Everything's gone. So when you say not a
+- [22:07.679] success, it's a tremendous success. The
+- [22:09.679] fake news likes to say how well they're
+- [22:11.360] doing. They're doing terribly. They have
+- [22:12.800] 350% inflation. When the war started,
+- [22:16.000] they had like 6% 5%.
+- [22:19.040] They have uh they want to make a deal,
+- [22:21.360] but they don't know how to make a deal.
+- [22:22.719] And then they go around shooting ships
+- [22:24.159] at night. I don't like that. You know,
+- [22:26.080] they're dealing with very fine people.
+- [22:28.159] They're dealing with Steve Whit. They're
+- [22:30.000] dealing with Jared Kushner and J. D.
+- [22:32.400] Vance. And they're dealing with Marco
+- [22:35.199] and Scott. They're dealing with great
+- [22:36.800] people, but I don't I don't know. I
+- [22:39.280] think they're a little loco. They're a
+- [22:41.040] little crazy.
+- [22:42.480] But they told us they'd like to go to
+- [22:44.080] the funeral. The funeral of
+- [22:48.400] a very uh person who was killed a lot of
+- [22:52.719] people.
+- [22:54.320] Kmeni killed a lot of people over the
+- [22:57.440] years and there for a long time. Don't
+- [22:59.920] forget what we did should have been done
+- [23:02.080] 47 years ago. It could have been done
+- [23:03.760] any time within 40. This has gone on for
+- [23:05.600] they were the bully of the Middle East.
+- [23:07.840] So, they're a much different country
+- [23:09.840] now. In one day, all of their
+- [23:12.719] anti-aircraft
+- [23:14.320] things are gone. That doesn't mean
+- [23:15.600] they're not going to get a plane at some
+- [23:17.199] point, but all of it's gone.
+- [23:20.080] Everything's gone. Their leaders are
+- [23:21.840] gone. They had leaders. They're gone.
+- [23:24.159] And they had another set of leaders.
+- [23:25.679] They're gone. Now, they have another set
+- [23:26.960] of leaders. They may be gone. Who knows?
+- [23:30.320] And and you know what? I may be gone,
+- [23:32.159] too, because I'm their number one
+- [23:34.000] target. It's out all over the place. I'm
+- [23:36.480] their number because they're scum.
+- [23:38.080] That's the way they act and that's the
+- [23:39.440] way they've done it for 47 years. But
+- [23:42.480] I'm doing what's right for the country.
+- [23:44.080] I'm doing really what's right for the
+- [23:45.440] world. They have to be stopped. And
+- [23:47.199] they've killed thousands, hundreds of
+- [23:49.120] thousands of people. They killed 52,000
+- [23:52.320] protesters over the last three months.
+- [23:54.960] So when you say we're not doing well, I
+- [23:56.480] think we're doing phenomenally well. We
+- [23:58.560] our military has been incredible. Plus,
+- [24:00.719] we had a blockade. Did we have a
+- [24:02.159] blockade? Did you ever see a blockade
+- [24:03.679] work that way? you know, for you that
+- [24:05.120] said we're not doing well there. We did
+- [24:06.560] great in Venezuela. That was a one-day
+- [24:10.000] war and they're very good military. You
+- [24:12.400] know, it's a very military country. We
+- [24:15.040] took out one of the worst human beings
+- [24:16.800] in the world, Maduro, and we uh he's in
+- [24:20.080] jail waiting for trial. But what he did
+- [24:22.639] to this country was incredible,
+- [24:24.239] including the fact not only the drugs,
+- [24:26.400] but he had people pour into the country
+- [24:28.960] from prisons. They opened up their
+- [24:30.480] prisons. They allowed them to come in.
+- [24:32.320] We're getting them out. We're getting
+- [24:33.679] them all out. But we have uh with the
+- [24:36.639] Biden open border policy with Kamla as
+- [24:39.520] your borders are remember she was a
+- [24:41.120] borders but she never called border
+- [24:42.639] patrol. Never once and she never went to
+- [24:44.320] the border. The border was a disaster.
+- [24:46.639] Now it's fixed. It's fixed where we have
+- [24:49.760] nobody. And I don't I don't do these
+- [24:51.600] numbers. Zero people come in through our
+- [24:54.400] border through our southern border.
+- [24:56.159] Zero. And that's been announced now
+- [24:58.800] every month for the last 12 months.
+- [25:01.280] Zero. We had millions of people come in
+- [25:03.760] under 25 million people. I think more
+- [25:05.760] than that under Biden and they weren't
+- [25:08.400] people that you want and for the most
+- [25:10.320] part they were drug dealers. They were
+- [25:13.600] escaped from think of it. All the
+- [25:16.080] prisons and I'm not just talking about
+- [25:17.679] from South America. I'm talking about
+- [25:19.120] from the Congo. I'm talking about from
+- [25:20.800] all over the world. The prisons were
+- [25:22.239] emptied out. They were emptied out into
+- [25:24.480] our country.
+- [25:26.320] But they had uh the worst murderers.
+- [25:28.639] They had to we had people allowed in our
+- [25:31.199] country that should never and they
+- [25:32.719] walked in through an open border policy
+- [25:35.920] and uh all I'm saying is that you're
+- [25:38.480] lucky we won this election. Yeah, please
+- [25:41.280] >> go ahead. Go ahead.
+- [25:42.800] >> No. Yes. Go ahead.
+- [25:44.239] >> Thank you, Mr. President. Iris.
+- [25:47.040] >> Who you with? Why don't you say your
+- [25:48.560] name and who you're with? It always
+- [25:49.920] helpful.
+- [25:50.320] >> Thank you, Mr. President, for doing
+- [25:51.520] this. Iris Tao with NTD with Assist
+- [25:53.840] Media with the Epoch Times on communism.
+- [25:56.639] You've been issuing a wakeup call to
+- [25:58.800] Americans at home about the dangers of
+- [26:01.440] communism and now you're speaking on the
+- [26:03.120] world stage. What's your message to
+- [26:05.520] people both living under communist and
+- [26:08.159] socialist regimes, but also people
+- [26:10.320] living under democracies like in Europe
+- [26:12.239] and America who might not have realized
+- [26:14.639] how close communism has come to home.
+- [26:16.639] >> Yeah, that's a great question actually.
+- [26:18.239] But look, I want to get the word out
+- [26:20.080] because what's forming is communism in
+- [26:22.719] the country and communism's easy to
+- [26:25.280] sell. I would be the greatest communist
+- [26:27.120] in history. I'd be right up there with
+- [26:29.199] Lenin. I'd be I'd be as good as anybody.
+- [26:32.560] You've got free rent for the rest of
+- [26:35.120] your life. What they don't say is that
+- [26:36.560] you'll be living in squalor in 12
+- [26:39.040] months. You've got the free house. Would
+- [26:41.360] anybody like to have a free house? We'll
+- [26:42.800] take it away from somebody. We'll give
+- [26:44.159] it to you. You'll have murders all over
+- [26:46.480] the place. Communism is a disaster. It's
+- [26:48.800] been proven to be for thousands of years
+- [26:51.120] under different names, but same thing.
+- [26:54.000] It's um very important. And you know,
+- [26:56.560] it's funny. One of the reasons I do well
+- [26:58.960] so well with the Hispanic people. I I
+- [27:01.679] set a record Republicans. I get great
+- [27:04.400] numbers for the election. Helped me get
+- [27:06.480] elected in a landslide. The Hispanics
+- [27:09.040] because a lot of them came from
+- [27:11.520] countries that were essentially
+- [27:13.840] communist. You know, whether you call
+- [27:15.760] them radical socialists or communists,
+- [27:17.600] there's not that much, but there is a
+- [27:19.120] little difference. when they say social
+- [27:21.440] democrats. We're social democrats. It
+- [27:23.360] sounds so nice. It's not nice. It's a
+- [27:25.520] very dangerous term. So, I do talk about
+- [27:28.080] it and I talk about it on TikTok and I
+- [27:30.159] talk about it everywhere. I talk about
+- [27:31.520] it here. And you're right, it has become
+- [27:33.520] international. But, uh, it's never
+- [27:35.600] worked and it's not going to work. What
+- [27:38.080] is working is the United States. Think
+- [27:39.920] of it. We have more jobs than we've ever
+- [27:41.440] had. People are making more money than
+- [27:43.600] they've ever made. I'm talking about
+- [27:45.120] workers now. Talking about workers.
+- [27:47.199] They're making higher salaries than
+- [27:49.120] they've ever made before. It's just the
+- [27:51.600] best system and it's got flaws, but
+- [27:53.840] everything's going to have a little
+- [27:54.880] flaw, but it's uh it's been amazing. And
+- [27:58.080] when I watch what's happening and I see
+- [28:00.239] these low lives getting I mean they're
+- [28:01.920] low lives. I watch them. I know good
+- [28:04.000] people. I know quality people. These are
+- [28:06.159] essentially low lives. And when I see
+- [28:08.800] what they're talking, I think they're
+- [28:10.000] very dangerous in many ways. And I've
+- [28:12.080] said it and then I said, "Boy, that's a
+- [28:13.360] pretty big statement." Then I realized,
+- [28:14.719] you know, a couple of people said, "I
+- [28:15.920] think you're probably right. I think
+- [28:18.000] this country with this thing that's
+- [28:20.560] going around is in more danger than it
+- [28:24.159] was during World War I, World War II.
+- [28:27.760] Uh, if you talk about September 11th, if
+- [28:30.400] you talk about Pearl Harbor, that was
+- [28:33.360] big danger. I think this is I think the
+- [28:36.000] concept of us going communist because
+- [28:38.000] one thing that happens when you go
+- [28:39.360] communist, you never come back. Never
+- [28:41.280] comes back. You die in squalor. You die.
+- [28:44.320] You die a horrible death. You die in
+- [28:46.239] squalor and it gets very evil and very
+- [28:48.639] nasty. Yeah, please go ahead.
+- [28:54.239] >> Mr. President, Tyler Pager with the New
+- [28:56.159] York Times. Last month you said Iranian
+- [28:58.400] leaders were very rational people, nice
+- [29:00.560] people to deal with, strong people,
+- [29:02.719] smart people. Today you said they were
+- [29:04.719] scum, sick people and being led by sick
+- [29:07.120] people. What changed? And do you think
+- [29:09.280] they're
+- [29:09.520] >> I got to know them. So
+- [29:11.760] >> I've said that about a lot. Now when you
+- [29:13.760] say rational, I think they're much more
+- [29:15.760] rational than level one, level two.
+- [29:17.600] Level
+- [29:18.560] >> one is gone, level two is gone. This is
+- [29:21.120] level three. I think they are more
+- [29:23.120] rational, but based on their actions
+- [29:25.440] over the last week or two. Uh they're
+- [29:28.800] not they're not doing a service to the
+- [29:30.560] people and I think more than anything
+- [29:32.800] else as I got to know them. And I'm not
+- [29:35.280] sure I want to make a deal with them. We
+- [29:37.040] can play games, but I'm not sure I want
+- [29:38.880] to make a deal. Let's just finish the
+- [29:40.320] job. Yeah, please go ahead. Go ahead. Go
+- [29:43.440] ahead.
+- [29:44.400] >> Go ahead.
+- [29:45.600] >> Thank you,
+- [29:48.400] >> thank you, Mr. President. Steve Cedric
+- [29:49.840] from CNBC. Uh, the oil markets are up
+- [29:51.840] today around about 7% for WTI and Brent
+- [29:54.560] as well. The world is taking you at your
+- [29:56.719] word, sir, that theou is over, that the
+- [29:59.360] ceasefire is over. What happens next,
+- [30:01.760] sir? Are we on the cusp of a fullscale
+- [30:04.560] return to
+- [30:05.920] >> Well, I'll tell you what happens next.
+- [30:07.840] Uh we're never going to see Iran have a
+- [30:09.920] nuclear weapon because that's much more
+- [30:12.239] important than the numbers you're
+- [30:13.440] talking about. The prices of oil are
+- [30:15.600] dropping like a rock. Now they'll be up
+- [30:17.679] a little bit and this will end very
+- [30:19.280] quickly. We have a tremendous we have an
+- [30:21.040] oil lut right now because we got all
+- [30:22.800] those votes out of the straight and uh
+- [30:25.199] it's going to drop and I've predicted
+- [30:26.719] everything. I've been right about
+- [30:29.120] everything and I have been for a long
+- [30:30.800] time. That's how I got to be president
+- [30:32.880] three times. It's how I won three
+- [30:34.400] elections. I did very well in the second
+- [30:36.000] one. won. It was a rigged election, but
+- [30:38.800] I've been right. And uh oil's coming
+- [30:41.679] down. Now, I got to make I have to make
+- [30:43.760] sure of one thing that we don't have
+- [30:47.280] lunatics having control over nuclear
+- [30:50.480] weapons. So, uh we have that now.
+- [30:53.280] There's no way they have a nuclear
+- [30:54.560] weapon. We have cameras, as an example,
+- [30:56.960] on the site that those beautiful B2s at
+- [30:59.440] 1:00 in the morning 10 months ago blew
+- [31:01.679] up. Uh they blew it up. We have cameras.
+- [31:05.679] It's called Space Force if they're in
+- [31:07.840] space. But we have cameras that can read
+- [31:10.400] the badge of the person going over to a
+- [31:13.199] site. Mohamad something. We say it's
+- [31:16.560] Muhammad something is there with
+- [31:18.639] shovels. Well, shovels won't get you
+- [31:20.239] there. Uh the biggest machinery in the
+- [31:24.320] world probably won't get you there if
+- [31:25.840] you want to know the truth. It's way way
+- [31:27.840] below. But we we're watching that and if
+- [31:30.719] anybody goes there, they get blown up.
+- [31:32.880] So nobody's going to touch that.
+- [31:34.239] Eventually, we'll take it. But what we
+- [31:36.880] do have is we have that that's gone. If
+- [31:39.840] we wouldn't have had that, they would
+- [31:41.280] have had a nuclear weapon and they would
+- [31:43.280] have wiped out Israel. If I weren't
+- [31:45.040] president, Israel wouldn't exist. And we
+- [31:46.880] did it two times. When the G JC POA, the
+- [31:51.440] Obama deal, when that was originally
+- [31:54.320] conceived, everything went to Iran. 1.7
+- [31:57.840] billion in cash, hundreds of billions of
+- [31:59.920] dollars. They thought they could buy
+- [32:01.920] peace with these people. You can't do
+- [32:03.679] that. So, the big thing we have is more
+- [32:07.199] important than anything we can talk
+- [32:08.719] about is you can't let lunatics have
+- [32:10.560] nuclear weapons. And we've stopped that.
+- [32:13.040] And that should have been stopped on a
+- [32:14.560] couple of other occasions too with
+- [32:16.000] different countries, but they didn't do
+- [32:17.199] that. Yeah, please.
+- [32:24.159] >> Stephen Nelson from the New York Post.
+- [32:26.080] Um, I'd like you to address uh
+- [32:29.199] speculation that you're leaving uh
+- [32:31.920] Ankura not in the new Air Force One
+- [32:34.159] because of security concerns involving
+- [32:36.080] Iran. Uh, you've spoke spoken today
+- [32:38.960] twice about them possibly assassinating
+- [32:40.800] you and possibly being successful. Did
+- [32:42.880] that concern have something to do with
+- [32:44.159] >> Well, I speak about it a lot because you
+- [32:46.719] know the life of a president is very
+- [32:48.880] dangerous. It's 5.2%.
+- [32:51.920] You know what a race car driver is?
+- [32:53.440] onetenth of 1% a bull rider. That looks
+- [32:56.560] pretty dangerous to me. It's onetenth of
+- [32:58.159] 1%. No, it's 5.2%
+- [33:02.320] is you don't make it. You should have
+- [33:04.560] told me you're an excellent reporter.
+- [33:05.760] You should have told me that years ago.
+- [33:07.120] Maybe I wouldn't have run. It's a very
+- [33:09.280] dangerous profession. No, I'm number one
+- [33:11.679] on the kill list for
+- [33:14.560] Iran. They're lovely people. I'm number
+- [33:16.719] one. So, I don't know. I can't tell you
+- [33:18.159] that.
+- [33:19.120] I don't really care because I'm doing my
+- [33:20.960] job and I'm doing it, I hope, better
+- [33:22.639] than anybody's ever done it because we
+- [33:24.800] have a country that's hot and really
+- [33:27.280] really successful. But I mention it only
+- [33:30.080] because it's on the list. I mean, it
+- [33:31.920] came out there was another list came out
+- [33:33.600] yesterday and I'm I'm number one on I
+- [33:36.800] like being number one on TikTok better,
+- [33:39.360] but I'm number one on the list for uh
+- [33:41.920] for killing.
+- [33:46.800] Go ahead. Go ahead.
+- [33:49.360] >> Hey, Sean McCree, New York Times. But
+- [33:51.600] why aren't you flying the new plane
+- [33:52.960] home?
+- [33:54.000] >> Say what?
+- [33:54.639] >> Why aren't you flying on the new Air
+- [33:55.920] Force One?
+- [33:56.800] >> It's flying to Europe to one of the big
+- [33:59.040] bases, two or three of the big bases
+- [34:00.719] where we can show it to the people and
+- [34:03.440] we'll be going home by uh normal
+- [34:06.320] methods. But we uh we have it going to
+- [34:10.719] Europe to a couple of bases. Actually,
+- [34:13.120] one in particular, but it's going to go
+- [34:14.719] to a couple of bases. Stop. so the
+- [34:17.040] soldiers can see it because it's truly
+- [34:19.040] magnificent. Yeah, please.
+- [34:21.440] >> Go ahead. Do you want to go?
+- [34:24.320] Okay. Go ahead.
+- [34:26.960] >> Mr. President Har,
+- [34:30.159] Mr. President, it seems that the war
+- [34:32.639] with Iran may start again. What do you
+- [34:34.800] expect from your European allies?
+- [34:37.199] >> No, I don't think it's going to start
+- [34:38.239] again. I think it's going to go very
+- [34:40.239] quickly. Uh they hit a couple of ships
+- [34:43.520] and so we hit them much harder. when
+- [34:45.120] they hit, we hit 10 times harder. You
+- [34:46.719] know, we hit much harder than they do.
+- [34:48.400] We have a lot better equipment than they
+- [34:50.080] do. Um, we may even Somebody asked
+- [34:53.600] before, "Do you think you'll hit them
+- [34:54.639] tonight?" I said, "We might." Yeah, we
+- [34:56.080] might, but when they hit, we hit. You
+- [34:58.159] know, it's what they're We use We use
+- [35:00.239] their language. We speak their language.
+- [35:02.400] No, I don't think so. I think it
+- [35:04.400] anything that happens is going to be
+- [35:05.760] over very quickly. And we'll only And
+- [35:08.239] we'll only make it safer, including for
+- [35:10.159] oil. Oil is going to be very free, very
+- [35:14.239] easy, and it's going to happen very
+- [35:17.199] fast. Uh we have the harmony, the boats
+- [35:20.800] have pulled out. I mean, there's a
+- [35:22.800] there's a gusher of oil right now. We
+- [35:24.639] have a lot of oil and no anything that
+- [35:27.760] happens is going to happen very fast.
+- [35:29.520] We're not we're not looking we're not
+- [35:31.520] looking for long term. Okay. Go ahead,
+- [35:35.280] Red.
+- [35:35.920] >> Mr. Mr. President, you said today with
+- [35:38.719] MS Now, you said today that country
+- [35:40.800] >> you're with who?
+- [35:41.520] >> MS Now.
+- [35:42.800] >> MS Now. What a That's a failing network.
+- [35:44.960] Why would you want to work for them?
+- [35:46.880] >> MS Now. Can you imagine? They wanted to
+- [35:49.120] get away. They took the name NBC because
+- [35:50.960] they were embarrassed by it. Go ahead.
+- [35:52.320] Let's go. When you hear this question,
+- [35:54.800] >> you said today that countries like
+- [35:56.320] Spain, Italy, and the UK were not there
+- [35:58.719] for the US and its war with Iran. Should
+- [36:01.040] those countries be attacked? Will the US
+- [36:03.360] be there for them?
+- [36:04.159] >> Well, I'll tell you what. Number one,
+- [36:05.520] Spain has been very bad, but you know,
+- [36:08.080] the uh Italy has been good and almost
+- [36:11.199] all of the countries have been good.
+- [36:12.560] They just had a bad moment. They didn't
+- [36:14.719] help us. We didn't need the help, but if
+- [36:17.679] we would have wanted their help, I said,
+- [36:19.120] "By the way, if I want help, sir, would
+- [36:21.280] rather remain on the sidelines." And I
+- [36:23.520] didn't like that answer. UK gave an
+- [36:25.280] answer that was sort of weirder than
+- [36:26.719] that. We They went out. I said, "Would
+- [36:29.520] you like to help?" They said, "We do,
+- [36:30.880] but we want to wait till the war is
+- [36:32.239] over." This was not in the spirit of
+- [36:34.719] Winston Churchill. So, uh, yeah. I mean,
+- [36:39.040] I'll tell you what, I can only say if if
+- [36:40.880] there's one word that comes out of
+- [36:43.280] today, it's unification. I've never seen
+- [36:45.520] anything like it. Every one of those
+- [36:47.760] countries, they love us. They love each
+- [36:51.040] other. That was tremendous unification.
+- [36:53.280] It was a nice thing to say. And it's a
+- [36:54.800] very fair question, too. Yeah. Green.
+- [36:57.920] Green. Yeah. You're wearing green,
+- [37:00.159] right?
+- [37:02.400] Thank you, Mr. President. Adatur from
+- [37:05.280] Habar Global TV, Turkey. Mr. President,
+- [37:09.040] after your meeting with President Ardan,
+- [37:11.199] can you tell us whether you and
+- [37:12.639] President Ardan reach an understanding
+- [37:14.800] on Turkeykey's return to the F-35
+- [37:17.199] program and the future of US- Turkey
+- [37:19.199] defense cooperation? And do you believe
+- [37:22.080] US Turkey relations are entering a new
+- [37:24.639] chapter right now?
+- [37:27.280] Well, I had a great relationship in my
+- [37:30.800] first term. You remember Pastor Brunson
+- [37:33.840] and he was put in jail for 35 years. And
+- [37:36.800] I called, he was an evangelical hero
+- [37:39.840] actually, very good man. And I called
+- [37:43.280] President Erdogan and he let him out. I
+- [37:45.360] didn't pay anything like Obama and Biden
+- [37:47.520] pay billions of dollars all the time. I
+- [37:49.760] didn't I never paid any for anybody. I
+- [37:53.199] just tell them, "Let him out. Let them
+- [37:55.440] out.
+- [37:56.639] But in this case, I didn't say it the
+- [37:58.320] second way. I said it the first way. I
+- [37:59.920] said, "Look, he's been he's a good man.
+- [38:02.159] He's highly respected in the evangelic
+- [38:04.159] and I'd like you to let him out." And he
+- [38:05.679] was in my office in the Oval Office the
+- [38:08.159] following day, Pastor Brunson. I had a
+- [38:10.400] great relationship when sleepy Joe Biden
+- [38:13.119] got in. Bad things happened with a lot
+- [38:16.480] of things between the border. Everything
+- [38:19.199] was bad. We were laughed at all over the
+- [38:22.000] world. And we had a very bad
+- [38:23.360] relationship with a lot of countries. I
+- [38:25.199] think Turkey was one of those countries.
+- [38:28.000] But that changed on November 5th when we
+- [38:31.040] had the election and we've I've it's one
+- [38:34.880] of our best relationships. We have a
+- [38:36.480] great relationship and they're talking
+- [38:38.320] about the F-35 airplane and it's the
+- [38:41.840] best plane and everybody wants it and we
+- [38:44.880] have to make a decision who we give it
+- [38:46.400] to. I mean, my inclination because he
+- [38:48.960] again, he stayed out of he's not a huge
+- [38:51.760] fan of BB and he's not a huge fan of
+- [38:54.719] Israel, but he stayed out of that war.
+- [38:56.800] He could have gone into that war very
+- [38:58.159] easily and he didn't at my request. He
+- [38:59.920] stayed out of that war. He's been a very
+- [39:02.480] good ally. I mean, Marco could tell you
+- [39:04.480] we have a very strong relationship with
+- [39:06.800] Turkey. You know, it's a very big
+- [39:07.920] country. It's a very powerful
+- [39:09.679] militarily. It's a very it's the second
+- [39:11.679] most powerful country in NATO. It's a
+- [39:14.719] NATO country. So whether or not we uh do
+- [39:17.920] that, I haven't totally made up my mind.
+- [39:20.159] But my inclination is to say, look, he's
+- [39:23.040] done everything we he's helped us in so
+- [39:25.280] many different ways. And you know who
+- [39:27.199] else has been good to us? China. China
+- [39:29.760] never came into the war. They get 50% of
+- [39:33.040] their oil from Haru Strait. They never
+- [39:35.520] came into the war. They never said, "I'm
+- [39:37.520] going to send a ship in five destroyers
+- [39:40.159] along each side of the ship." They never
+- [39:42.960] did. No, he was he's been President Xi
+- [39:45.600] has been great. Everyone's been sort of
+- [39:47.760] great to be honest. You know why?
+- [39:49.040] Because they respect our country again.
+- [39:52.000] They laughed at our country. They
+- [39:53.440] thought we were a bunch of fools. They
+- [39:56.000] saw a president that couldn't talk. He
+- [39:57.840] couldn't walk. It was a disaster. They
+- [40:01.440] lost respect for our country. But now
+- [40:03.119] they have more respect for our country
+- [40:05.199] than they've ever had before. Thank you
+- [40:07.040] all very much. We'll see you back.
+- [40:09.600] >> Thank you very much, everybody.
+- [40:19.440] I don't know.
