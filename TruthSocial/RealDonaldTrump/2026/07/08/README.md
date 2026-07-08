@@ -1,7 +1,34 @@
 # TruthSocial / RealDonaldTrump / 2026-07-08
 
-- Posts: 23
+- Posts: 32
 
+- [22:16 UTC - We just landed and met up with our new Air Force One, which was sent earlier to RAF Milden...](116886666473252596/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116886666473252596
+  - We just landed and met up with our new Air Force One, which was sent earlier to RAF Mildenhall, so we could show the wonderful Servicemembers, as per the entire Base’s request. The...
+- [22:07 UTC - Truth Social post 116886629363843331](116886629363843331/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116886629363843331
+  - _No text content captured._
+- [22:06 UTC - Truth Social post 116886628869904639](116886628869904639/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116886628869904639
+  - _No text content captured._
+- [22:06 UTC - Truth Social post 116886628487341946](116886628487341946/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116886628487341946
+  - _No text content captured._
+- [22:06 UTC - Truth Social post 116886628263438180](116886628263438180/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116886628263438180
+  - _No text content captured._
+- [22:06 UTC - Truth Social post 116886627867234710](116886627867234710/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116886627867234710
+  - _No text content captured._
+- [22:06 UTC - Truth Social post 116886627817219318](116886627817219318/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116886627817219318
+  - _No text content captured._
+- [22:06 UTC - Truth Social post 116886625826460236](116886625826460236/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116886625826460236
+  - _No text content captured._
+- [21:48 UTC - Truth Social post 116886555360846505](116886555360846505/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116886555360846505
+  - _No text content captured._
 - [21:35 UTC - This is in retribution for yesterday’s bombing of ships by Iran. If it happens again, it w...](116886505160658220/)
   - Source: https://truthsocial.com/@realDonaldTrump/116886505160658220
   - This is in retribution for yesterday’s bombing of ships by Iran. If it happens again, it will get much worse!
