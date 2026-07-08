@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=7WhdyCmritw: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=7WhdyCmritw! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=9JYvcEVlu3s: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=9JYvcEVlu3s! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption track was empty"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -10167,6 +10167,17 @@
       "published": "2026-07-08T01:54:22+00:00",
       "title": "\ud83e\udd23\ud83e\udd23\ud83e\udd23",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7659969561613045006"
+    },
+    "tiktok:whitehouse:7660186937533238542": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-07-08T15:58:54.695038+00:00",
+      "path": "TikTok/WhiteHouse/2026/07/08/7660186937533238542",
+      "platform": "tiktok",
+      "post_id": "7660186937533238542",
+      "published": "2026-07-08T15:57:47+00:00",
+      "title": "Last few days of the Great American State Fair \ud83c\uddfa\ud83c\uddf8\ud83c\udfa1",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7660186937533238542"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
