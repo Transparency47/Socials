@@ -1,0 +1,94 @@
+<!-- source: https://www.youtube.com/shorts/xHsUflrnNWY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: xHsUflrnNWY -->
+<!-- date_published: 2026-07-09T20:29:03+00:00 -->
+<!-- date_accessed: 2026-07-09T20:50:15.743725+00:00 -->
+
+# Transcript: Americans are feeling REAL relief from the Working Families Tax Cuts
+
+- [00:00.000] We pride ourselves a lot on overtime
+- [00:02.120] around here and we spend more time here
+- [00:04.080] than we do at home with our families.
+- [00:06.080] So, being able to keep that money in our
+- [00:08.000] pocket and
+- [00:09.400] being able to utilize [music] it a lot
+- [00:11.160] more is going to help out tremendously.
+- [00:12.880] >> The tax cuts that
+- [00:14.960] in the big beautiful bill are wonderful.
+- [00:17.000] We've been able to expand our business
+- [00:18.760] and year to date we've added an extra
+- [00:20.280] 328 [music]
+- [00:21.120] people. So, we're super excited.
+- [00:23.040] >> Those larger child tax credits are
+- [00:24.640] really beneficial. Just a massive
+- [00:26.600] blessing [music] on a family.
+- [00:27.720] >> I was
+- [00:28.560] happy to be able to give my employees a
+- [00:30.880] little bit more money [music] at the end
+- [00:31.960] of the week.
+- [00:32.599] >> It's really helped me be able to provide
+- [00:34.520] for my family better with more money
+- [00:36.240] coming in. So, I'm very grateful for
+- [00:38.040] that.
+- [00:38.440] >> When you start talking about social
+- [00:39.955] [music] security, people sit up, pay
+- [00:41.960] attention because guess what? They're
+- [00:44.080] either on it or they're going to be on
+- [00:45.880] it.
+- [00:46.120] >> If we didn't have this tax [music]
+- [00:47.200] deduction,
+- [00:48.440] it would be very tight.
+- [00:49.680] >> One of the things I really like about
+- [00:51.320] the big beautiful bill, being a senior,
+- [00:53.400] is that we get the $6,000 [music]
+- [00:55.720] deduction if we're per single or the
+- [00:57.680] $12,000 per couple.
+- [00:59.200] >> Livestock indemnity program moving from
+- [01:01.240] 75% to 100% compensating [music]
+- [01:04.239] ranchers fairly for their losses for
+- [01:06.280] Mexican gray wolves. It's about time.
+- [01:08.280] >> We certainly are noticing [music] more
+- [01:10.120] money in the pockets of the working
+- [01:11.720] class.
+- [01:12.200] >> You can reduce your tax burden by 20
+- [01:14.670] >> [music]
+- [01:14.680] >> by $10,000 for individuals, 20,000 for
+- [01:17.640] couples. So, if you purchased an
+- [01:19.440] American made [music] car last year new,
+- [01:21.480] you just have to put your VIN number.
+- [01:23.080] So, it's a great thing.
+- [01:24.280] >> So, the one [music] big beautiful bill
+- [01:25.800] had some things in it that you were
+- [01:27.680] personally benefiting from with
+- [01:30.000] >> constant taxes. Tell me about that.
+- [01:32.000] >> That's true for millions of Americans.
+- [01:35.200] >> We don't want to start a child care
+- [01:36.680] program run by the federal government.
+- [01:38.760] But, [music] so we think a tax credit
+- [01:40.520] and tax deductions is the better way to
+- [01:42.560] do it. So, those are a couple of huge
+- [01:44.920] things we
+- [01:45.456] >> [music]
+- [01:45.640] >> got accomplished in this working family
+- [01:47.480] tax cuts bill.
+- [01:48.360] >> The working families tax cuts give
+- [01:50.060] [music] real relief to farmers so we can
+- [01:51.960] protect what we've built and pass it on
+- [01:53.880] to the next generation.
+- [01:55.080] >> Thank you so much for passing this bill,
+- [01:57.080] for helping mothers like me be able to
+- [01:59.760] uh help our kids be more prepared for
+- [02:01.440] their future. [music]
+- [02:02.400] >> cuts really do help everyday Americans
+- [02:04.320] like me and my little one here who's 18
+- [02:07.080] months.
+- [02:07.520] >> For restaurant workers in Iowa alone,
+- [02:10.360] there's about $59 million
+- [02:13.360] that will be saved from federal income
+- [02:15.240] taxes in year one of no tax on tips.
+- [02:19.200] >> I'm incredibly grateful for not only for
+- [02:20.920] the inheritance tax being changed, but
+- [02:24.000] for all the other tax cuts and benefits
+- [02:26.200] coming from this bill.
+- [02:27.376] >> [music]
