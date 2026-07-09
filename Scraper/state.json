@@ -1,17 +1,17 @@
 {
   "last_errors": [
-    "X/DHSgov: HTTPError: 503 Server Error: Service Unavailable for url: https://x.com/DHSgov",
+    "X/DHSgov: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/EnvoyNoem: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/FBIDirectorKash: HTTPError: 503 Server Error: Service Unavailable for url: https://x.com/FBIDirectorKash",
+    "X/FBIDirectorKash: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/ICEgov: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/POTUS: HTTPError: 503 Server Error: Service Unavailable for url: https://x.com/POTUS",
+    "X/POTUS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/PressSec: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/RapidResponse47: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/RealDonaldTrump: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/RealDonaldTrump",
-    "X/SecMullinDHS: HTTPError: 503 Server Error: Service Unavailable for url: https://x.com/SecMullinDHS",
+    "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=g-L3UdEASB0: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=g-L3UdEASB0! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=g-L3UdEASB0&ei=beFOarejBoHoybgPrtDM6Qs&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1783579613&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=90E02E394DA2EFD2CFA014CFE74EA3AD7ECC6967.CDC79F72FBD8CEE5761D9371F67CBADABAE10BD3&key=yt8&kind=asr&lang=en&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=xHhlrvRwGt8: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=xHhlrvRwGt8! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=xHhlrvRwGt8&ei=B_dOauDrBfr6sfIP3M7LqQo&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1783585143&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=E304D093D47425D2D0C86190521FA2F40E465436.3A29AC6A4245716878DA0D6789DA0F548E216AEF&key=yt8&kind=asr&lang=en&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -123082,6 +123082,28 @@
       "published": "2026-07-08T23:23:03.574000+00:00",
       "title": "The newly revamped West Wing of the White House, including signage and renovated walls, ma...",
       "url": "https://truthsocial.com/@realDonaldTrump/116886928331817100"
+    },
+    "truthsocial:realdonaldtrump:116887137680697133": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-09T01:18:40.259820+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/09/116887137680697133",
+      "platform": "truthsocial",
+      "post_id": "116887137680697133",
+      "published": "2026-07-09T00:16:17.990000+00:00",
+      "title": "Truth Social post 116887137680697133",
+      "url": "https://truthsocial.com/@realDonaldTrump/116887137680697133"
+    },
+    "truthsocial:realdonaldtrump:116887138484719000": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-09T01:18:40.259473+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/09/116887138484719000",
+      "platform": "truthsocial",
+      "post_id": "116887138484719000",
+      "published": "2026-07-09T00:16:30.253000+00:00",
+      "title": "Truth Social post 116887138484719000",
+      "url": "https://truthsocial.com/@realDonaldTrump/116887138484719000"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
