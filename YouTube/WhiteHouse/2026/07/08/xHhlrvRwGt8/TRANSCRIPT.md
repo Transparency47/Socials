@@ -1,0 +1,412 @@
+<!-- source: https://www.youtube.com/watch?v=xHhlrvRwGt8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: xHhlrvRwGt8 -->
+<!-- date_published: 2026-07-08T23:45:48+00:00 -->
+<!-- date_accessed: 2026-07-09T14:38:35.243726+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One En Route Joint Base Andrews, Jul. 8, 2026
+
+- [00:00.719] It was a long walk to you.
+- [00:03.679] >> It's about three times the walk we used
+- [00:05.279] to take, right?
+- [00:06.879] >> Uh I hope you like it. So we had a very
+- [00:09.200] good day, very good two days and a lot
+- [00:12.320] of things were determined and what was
+- [00:14.960] really determined is the country is
+- [00:16.560] doing very well. We made a lot of good
+- [00:18.000] trade deals with Turkey and uh they've
+- [00:21.680] been a very good partner. He's been
+- [00:23.119] great by the way. President Erdogan's
+- [00:26.000] been great and I hope you had a good
+- [00:28.320] time. Any questions, Mr.
+- [00:29.760] >> President? What was the security concern
+- [00:31.359] that caused us to change planes? What
+- [00:33.040] was the security concern that caused us
+- [00:34.880] to change planes?
+- [00:36.160] >> Uh, we sent this one in so that the Air
+- [00:39.520] Force base here. It was in the same
+- [00:41.040] exact line. So, you saw Did you see the
+- [00:43.440] picture with
+- [00:44.000] >> We did. We did.
+- [00:44.879] >> Hundreds of hundreds of people. Let me
+- [00:46.719] see that.
+- [00:49.039] You can't see it too well, but there are
+- [00:51.039] hundreds of people out there.
+- [00:52.879] >> So, they wanted to see. So, they came a
+- [00:54.399] little bit early. We switched plans.
+- [00:55.840] >> So, you're saying there wasn't a
+- [00:56.800] security concern?
+- [00:57.760] >> No. You know why? Was there any other
+- [00:59.680] issue? No, no issues.
+- [01:00.960] >> No, no, except except we sent it a
+- [01:03.520] little early. Same line going back.
+- [01:06.799] >> We sent it a little bit early so that we
+- [01:08.479] could uh let them see the base. The
+- [01:10.560] whole base came out and saw the plane
+- [01:12.400] and then we landed.
+- [01:13.200] >> Do you know Do you know why they had us
+- [01:14.479] close our our window blinds? That was
+- [01:16.720] usually
+- [01:18.000] >> Well, yeah. Because uh you're you know
+- [01:22.159] probably on a dangerous leg because of
+- [01:24.560] the le bags that we have to deal with.
+- [01:26.320] same thing that Iran was possibly
+- [01:28.479] thinking of trying.
+- [01:29.200] >> Well, I mean, if they asked you to close
+- [01:30.400] your windows, probably they'd feel that
+- [01:31.759] way. They didn't ask me to close mine,
+- [01:33.280] but if they did, I would have done it.
+- [01:35.520] These are sick people.
+- [01:37.439] >> So, I could see something like that. I
+- [01:39.119] didn't I didn't know they did that, but
+- [01:40.720] I could see something like that.
+- [01:42.000] >> Were you aware of any credible threat by
+- [01:43.680] Iran against
+- [01:44.799] >> I have a threat all the time. I'm number
+- [01:46.799] one on their list before you,
+- [01:49.520] >> but if I go, you go.
+- [01:51.200] >> Right.
+- [01:51.520] >> But was there specific? Perhaps perhaps
+- [01:53.439] someday you want to change
+- [01:55.119] >> professions. What do you have? Daniel
+- [01:58.479] posted that strikes on
+- [02:01.280] >> they just we just hit him very hard and
+- [02:04.079] I say we hit him 20 to1. Every time they
+- [02:06.159] hit us we're going to hit them 20. And
+- [02:08.800] we did it last night. They did a little
+- [02:11.520] something today, but it was really
+- [02:13.760] retribution for last night. They hit
+- [02:16.319] actually three boats, not two.
+- [02:19.280] And when they hit, we hit back much
+- [02:20.959] harder. Are we returning to a fullscale
+- [02:22.959] military conflict, sir?
+- [02:24.239] >> I don't know. I I don't know. Would win
+- [02:26.080] it very quickly. It's another way of
+- [02:27.840] deal. We have many ways we can win, but
+- [02:30.080] we've already won militarily. They have
+- [02:32.239] very little. They have very little left.
+- [02:34.400] And they want to make a deal so badly.
+- [02:36.080] They called a little while ago. They
+- [02:38.480] want to make a deal so badly. I just
+- [02:40.720] don't know if they're worthy of making a
+- [02:42.239] deal. I don't know that they're going to
+- [02:43.200] honor the deal. That's the problem.
+- [02:44.800] >> If they want to make a deal, why do you
+- [02:46.640] think they attacked commercial vessels?
+- [02:49.680] because
+- [02:52.319] they're sort of crazy to be honest with
+- [02:54.319] you. They're sort of crazy. They're a
+- [02:56.879] little bit out of control, but they want
+- [02:58.319] to make a deal badly.
+- [03:01.440] >> So, have you spoken to Senator Mitch
+- [03:04.239] McConnell since
+- [03:05.440] >> No, I am.
+- [03:06.159] >> How's he doing?
+- [03:07.040] >> I have no idea.
+- [03:08.159] >> I know how he's doing.
+- [03:09.120] >> I have no idea how he's doing.
+- [03:12.080] >> At the beginning of At the beginning of
+- [03:13.599] before this before the NATO summit, you
+- [03:15.840] um spoke uh who are you with? Reuters,
+- [03:19.519] uh, you you had
+- [03:20.800] >> not the best.
+- [03:21.840] >> You had issues with uh, you said you had
+- [03:23.599] issues with leaders of Spain, UK,
+- [03:26.319] >> Spain. I will say I did have issues with
+- [03:28.400] Germany and I still do,
+- [03:30.159] >> but Spain came back all the way today.
+- [03:32.959] >> Spain was very generous today.
+- [03:35.440] >> You know, I told them I'm going to stop
+- [03:36.720] trading. What What did Spain do there?
+- [03:38.879] >> They made
+- [03:40.959] uh they they honored a request for lots
+- [03:44.400] of payments. And if they didn't, we
+- [03:46.799] wouldn't even talk to them. They were
+- [03:48.720] very bad. They behaved very badly in my
+- [03:50.640] opinion. But it was great unity in that
+- [03:53.120] room today. The NATO room was pretty
+- [03:55.680] much pretty amazing actually. There was
+- [03:57.760] something very good about it. I actually
+- [03:59.599] wish the press was able to stay. Now
+- [04:02.480] they may may have been different if the
+- [04:03.920] press was there, but there was
+- [04:05.280] tremendous unity and togetherness. It
+- [04:08.239] was it was quite nice.
+- [04:09.280] >> Sir, are you going to pull more US
+- [04:10.959] troops out of Europe? And if so, how
+- [04:13.040] many and where specifically? I haven't
+- [04:14.640] made that final determination. A lot's
+- [04:17.199] going to depend on Greenland and a lot a
+- [04:19.759] lot. I mean, you know, I make a very
+- [04:21.919] good deal on Greenland and if we don't,
+- [04:24.560] maybe I will. And uh
+- [04:27.440] a lot's dependent on Iran. I mean, they
+- [04:30.320] uh they want to help. Now, you know,
+- [04:32.240] it's a little late to the thing because
+- [04:33.840] essentially there's not that much
+- [04:35.199] fighting to be done, but some will
+- [04:37.600] depend on Iran. You know, when they had
+- [04:40.400] a chance, an opportunity to help, they
+- [04:42.800] chose not to. So, but we're sort of
+- [04:45.360] forgetting about that. And now they want
+- [04:47.360] to help. They all want to go and they
+- [04:49.040] want to help on Iran so badly. But we
+- [04:51.440] don't really need help. It's it's little
+- [04:53.840] things, but we don't really need help.
+- [04:55.759] >> Did President Alshara make any
+- [04:57.360] commitments to you on helping with
+- [04:58.720] Hezbollah and Lebanon?
+- [05:00.240] >> Yeah, he did. He's done a great job.
+- [05:02.880] He's unified Syria, the president. Uh
+- [05:06.880] I'm not going to say what he said, but
+- [05:08.800] but yeah, he did. He was he was great
+- [05:11.039] today. He was great. And President
+- [05:13.440] Zullinsky was great today. We had a lot
+- [05:15.759] of good meetings today.
+- [05:17.199] >> Sir, you suggested that the only reason
+- [05:18.800] you came to the summit was because it
+- [05:20.240] was held in Turkey. Was this your last
+- [05:21.759] NATO summit?
+- [05:23.039] >> No. Uh I think they came a long way
+- [05:25.759] today. They made some concessions and I
+- [05:28.080] think NATO came a long way today. And
+- [05:30.720] one of the things, you know, we
+- [05:31.840] shouldn't be paying for the kind of
+- [05:32.880] money we pay for. No, no pre I did in my
+- [05:35.840] first term, but Biden immediately gave
+- [05:38.320] it back. No president should be having
+- [05:41.840] to pay the kind of money we pay. And
+- [05:44.080] again, we're really there for protecting
+- [05:45.680] them, not for protecting us. So it was
+- [05:48.720] ultimately was protected against this
+- [05:51.120] protection against the Soviet Union, now
+- [05:54.160] Russia, but it was against the Soviet
+- [05:56.479] Union. And you know, honestly, we're
+- [05:58.720] very far away. We have an ocean
+- [06:00.720] separating.
+- [06:02.320] We'll uh we'll see. The meeting today
+- [06:05.680] settled a lot of things. It was a very
+- [06:07.680] very good meeting and people understand
+- [06:10.080] that the United States is we've been
+- [06:11.759] treated very unfairly and then on top of
+- [06:13.840] that they weren't there for a uh a
+- [06:17.280] really dnuking because it's really not a
+- [06:19.919] war so much. It's a dnuking of Iran
+- [06:22.400] dnucarization
+- [06:24.560] of Iran. So, uh, this is all about
+- [06:28.080] taking nuclear weapons, not allowing
+- [06:30.000] Iran to have nuclear weapons, and
+- [06:32.639] everybody should like that, even you.
+- [06:35.840] You have a question?
+- [06:36.720] >> Yeah. The housing bill becomes law on
+- [06:38.560] Friday night if you don't sign it. What
+- [06:40.080] do you plan to do
+- [06:41.120] >> about what
+- [06:41.759] >> the housing bill?
+- [06:43.440] >> That's a very good question. See, I'm a
+- [06:45.280] big fan of
+- [06:47.440] many bills,
+- [06:50.160] but I'm a much bigger fan of the most
+- [06:53.600] important bill. It's called the Save
+- [06:54.960] America Act. It's voter ID. It's proof
+- [06:58.240] of citizenship and it's no mail in
+- [07:00.639] ballots. Other than it would be very,
+- [07:02.880] you know, easier than this, frankly. But
+- [07:04.639] military illness, disability,
+- [07:08.240] vacations, you can't get there. You're
+- [07:10.160] away business. But other than that, you
+- [07:12.960] should go and vote. And if you don't,
+- [07:15.440] people cheat. People cheat. You look at
+- [07:17.599] California. Look at what happened in
+- [07:18.960] this Spencer Pratt thing. You know, the
+- [07:21.599] with the mo votes, hundreds of
+- [07:23.280] thousands, probably billions of votes
+- [07:25.759] gone where he didn't make the runoff, he
+- [07:27.919] was so far ahead of third place, it was
+- [07:30.800] ridiculous. Maybe ahead of first place,
+- [07:33.120] but look at that. Look at what's
+- [07:34.400] happened with Steve Hill. Had the US
+- [07:37.599] attorney not started an investigation,
+- [07:40.319] they would have gotten Steve Hill now,
+- [07:41.919] too. So, it's a, you know, it's a very
+- [07:44.800] we have a we're a third world country in
+- [07:47.120] some states with respect to voting.
+- [07:50.560] Friday is the deadline for the housing.
+- [07:52.319] Friday is the deadline after which the
+- [07:54.000] housing vote comes along without your
+- [07:55.360] signature. Will you make
+- [07:56.319] >> I'll make a decision. Not that I dislike
+- [07:58.319] it. I dislike the fact that people
+- [08:01.440] aren't voting for voter ID with a
+- [08:04.080] picture. How can you not vote for voter
+- [08:06.560] ID? And by the way, the public wants it
+- [08:08.560] 94%.
+- [08:10.319] Voter ID, proof of citizenship, no mail
+- [08:13.199] and ballots other than with the
+- [08:15.039] exceptions. on Venezuel on Venezuela.
+- [08:17.120] Did you uh did you tell Machado not to
+- [08:19.360] go back to Venezuela the other week? And
+- [08:20.800] what's your relationship?
+- [08:21.680] >> You mean can I tell [clears throat] him
+- [08:23.120] a long time ago?
+- [08:24.400] >> No. No. Maria Kur Machado, the the
+- [08:26.639] opposition figure. Did you tell her not
+- [08:28.400] to go back?
+- [08:29.280] >> Oh, no. No, no, not at all. No, she's
+- [08:31.919] terrific. She's a wonderful person. Uh
+- [08:35.519] did she go back, I guess, right?
+- [08:37.120] >> Uh she didn't. It was reported that
+- [08:38.959] >> she did or didn't. She did not. It was
+- [08:40.479] reported that
+- [08:40.959] >> I did not tell anyone not go back. I
+- [08:43.519] think she's a good person. She gave me
+- [08:44.720] the Nobel Prize, right? So, how can I
+- [08:46.800] dislike her? She gave me the She won the
+- [08:48.480] Nobel Prize. She said the only one that
+- [08:50.720] should win it is Trump. I didn't know
+- [08:52.080] her at all. So, she said Trump settled
+- [08:54.720] eight wars, which is true. They were
+- [08:56.240] talking about it today. A Nazera. I
+- [08:59.519] mean, think of the wars I settled eight
+- [09:02.399] wars that were going for 30. Even if you
+- [09:04.480] look in the Congo, the Congo versus
+- [09:07.360] Rwanda, I settled after 14 years and
+- [09:10.800] about 15 million people had their heads
+- [09:12.800] chopped off. I said 11. I said late
+- [09:15.519] wars. And when she won the Nobel Prize
+- [09:18.959] for Peace, she said, "I can't believe I
+- [09:21.360] won it. The only one that should win it
+- [09:23.680] is Trump." Actually, they probably will
+- [09:26.640] do the wrong thing. It's very sad with
+- [09:28.320] Norway, but I would say I should have
+- [09:31.279] won that award more than anybody that
+- [09:34.399] ever received the Nobel Peace Prize
+- [09:36.880] because nobody settled wars. I I settled
+- [09:39.200] eight of them because I'm a certain type
+- [09:41.519] of personality I was able to settle.
+- [09:43.760] Think of it. India and Pakistan, you
+- [09:46.240] know, cuz you covered it. That war was
+- [09:48.480] raging. They were a week into it. 11
+- [09:51.120] planes were shot down and that war was
+- [09:53.279] going to go nuclear. The prime minister
+- [09:55.680] of Pakistan said President Trump saved
+- [09:58.320] from 30 to 50 million lives. Well, guess
+- [10:00.800] what? It could have been a lot more than
+- [10:02.399] that.
+- [10:03.440] >> Democrats should be able to pick a
+- [10:04.720] replacement.
+- [10:05.040] >> A story that hasn't gotten a lot of
+- [10:06.560] attention. Starting on July 1st,
+- [10:08.480] Medicare is now covering GOP1 drugs for
+- [10:11.360] weight loss only. That's the first time
+- [10:12.959] it's ever happened. It happened under
+- [10:14.399] your leadership. How big of a deal is
+- [10:16.480] that for people?
+- [10:17.200] >> Well, we because of favorite nations,
+- [10:19.680] the drug prices have come down
+- [10:21.200] tremendously. And also, if you look at
+- [10:24.079] Trump RX, it's been unbelievable the
+- [10:27.360] price. But take a look at what we've
+- [10:29.760] done in terms of favorite nations. We
+- [10:31.839] paid the highest drug price in the
+- [10:34.160] entire world and now we pay the lowest
+- [10:37.040] drug price in the entire world and that
+- [10:39.760] means four, five, 600% difference. Think
+- [10:42.720] of it. The press doesn't want to write
+- [10:44.959] about it. And to get that, I had to get
+- [10:47.200] the drug companies to do it. And they
+- [10:48.880] were good, but they were good because
+- [10:50.800] they knew that I couldn't get the
+- [10:52.240] countries to do it. You had to get both.
+- [10:54.480] And I called the countries. I said, "If
+- [10:56.000] you don't do it, I'm going to put a very
+- [10:57.519] big tariff on you. That's more money."
+- [10:59.680] and every country agreed to it. So we
+- [11:02.160] went from the highest drug prices in the
+- [11:04.240] world like in New York a pill would cost
+- [11:08.560] $130 and in London it cost $10.
+- [11:12.240] So now it cost $20 and $20 because the
+- [11:16.079] world is a bigger place. So it's not
+- [11:18.160] really split 50/50. So we got it down
+- [11:21.279] and it's a great question because that
+- [11:23.200] should have a huge impact on healthcare
+- [11:25.040] because prescription drugs is a big
+- [11:27.200] press but prescription drugs have come
+- [11:29.519] down 400 to 500 to 600%.
+- [11:32.959] Under Trump and that alone should win us
+- [11:35.279] the midterms and the Democrats will
+- [11:37.920] terminate it and try and blame somebody
+- [11:41.519] else like us did as I call up the
+- [11:43.440] Democrats.
+- [11:44.160] >> Do you do Democrats? Speaking speaking
+- [11:46.640] of Democrats, um do you think that the
+- [11:48.320] Democrats should be able to pick a
+- [11:49.680] replacement for Graham Platner? He's had
+- [11:51.440] all these new allegations that have come
+- [11:52.880] out and now Democrats are talking about
+- [11:54.720] picking a replacement for him. Should
+- [11:56.160] they be able to do that?
+- [11:57.040] >> They're picking what?
+- [11:57.839] >> A replacement for Graham Platner if he
+- [11:59.920] steps out of the race.
+- [12:00.720] >> So, he won the primary, right?
+- [12:02.160] >> Mhm. And now there's these allegations.
+- [12:03.760] >> It's very hard for them to do that. And
+- [12:06.560] it's really a question of whether or not
+- [12:08.000] you believe the woman. A lot of people
+- [12:11.360] say big falsehoods.
+- [12:13.519] It's uh he's in a bind. He's in a bind,
+- [12:18.160] but uh should they be able to do it?
+- [12:20.160] Well, he's I guess he's going to lose. I
+- [12:22.399] would imagine he's going to lose. Uh
+- [12:25.680] it's very interesting. When a Republican
+- [12:28.560] woman came out with the same charge,
+- [12:30.160] nobody believed her. When this woman
+- [12:31.519] came out, everybody believed her, right,
+- [12:33.120] Doug? Did you get any pictures every
+- [12:35.120] time? You don't want to It wouldn't sell
+- [12:38.720] that.
+- [12:40.000] >> Any other questions?
+- [12:41.920] New Federal Reserve working paper came
+- [12:44.320] out and it suggested that the illegal
+- [12:46.720] migration surge under Joe Biden caused
+- [12:49.120] housing costs to spike 30 30%. What is
+- [12:52.000] the lesson to be learned in that?
+- [12:53.440] >> Well, what's happening is housing costs
+- [12:55.040] are going down because and rental costs
+- [12:57.120] are going down because we're getting so
+- [12:59.120] many illegals out of the country. But
+- [13:01.600] Joe Biden raised the cost of housing by
+- [13:04.240] 40 and 50%. the cost of rental because
+- [13:07.839] they were housing illegal aliens in the
+- [13:10.320] uh in all of those empty units. And now
+- [13:12.240] they're coming down because we're
+- [13:13.839] removing people that are here illegally,
+- [13:16.160] criminals from the Congo, from
+- [13:19.279] Venezuela. We love Venezuela, but he
+- [13:22.560] emptied Maduro, emptied out his jails.
+- [13:24.959] They opened up their jails. They let
+- [13:26.480] them in. But many countries did that. 25
+- [13:29.519] million people and we've gotten I think
+- [13:31.839] we're getting most of the bad ones out
+- [13:33.440] and we start the process. But we've done
+- [13:35.920] very well in that. But it caus it was a
+- [13:38.240] tremendous increase in housing costs by
+- [13:41.600] allowing you. You don't even think of
+- [13:42.959] that. And you know who paid for it? The
+- [13:44.240] federal government. So the federal
+- [13:46.160] government is renting at tremendous
+- [13:48.079] prices all of these houses to service
+- [13:51.200] illegal immigrants, but they're not
+- [13:52.560] taking care of our soldiers. They didn't
+- [13:54.959] take care of our soldiers. So it's a sad
+- [13:57.680] thing. Enjoy the flight. Okay.
+- [14:00.399] >> Thank you, Mr. President.
+- [14:01.519] >> Thank you, sir. I was number five or six
+- [14:03.199] or seven today. And every every question
+- [14:06.160] is a kill. But then we have Daniel and
+- [14:08.880] some very good reporters. You're a great
+- [14:10.320] reporter, brother. Thank you. Thank you
+- [14:12.160] very much, everybody. Thank you, Mr.
+- [14:13.519] President.

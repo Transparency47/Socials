@@ -1,0 +1,956 @@
+<!-- source: https://www.youtube.com/watch?v=g-L3UdEASB0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: g-L3UdEASB0 -->
+<!-- date_published: 2026-07-08T18:52:50+00:00 -->
+<!-- date_accessed: 2026-07-09T14:38:36.589916+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks in Milwaukee, WI
+
+- [00:09.825] [music]
+- [00:21.615] [music]
+- [00:23.119] Thank you. It's great to be here.
+- [00:26.560] USA.
+- [00:30.130] [cheering]
+- [00:35.120] >> How we doing, Milwaukee?
+- [00:37.520] >> There we go. So,
+- [00:40.239] we had an event earlier today. Please
+- [00:42.079] take a seat. Take a seat. We had an
+- [00:43.440] event earlier today at the Fister Hotel
+- [00:45.440] in downtown Milwaukee. Beautiful place.
+- [00:48.320] But I got to be honest, I had a little
+- [00:49.680] bit of PTSD because the last time that I
+- [00:52.719] was in that hotel was the 2024 RNC
+- [00:56.960] convention. [cheering]
+- [00:59.199] And if y'all remember, I flew to
+- [01:01.600] Milwaukee the Monday morning that the
+- [01:03.920] RNC convention starts. And I get there
+- [01:07.600] and I have no idea if I'm the VP nominee
+- [01:10.400] or not. So I get to my hotel, which is
+- [01:12.720] not the Fister. It's at the other hotel
+- [01:14.560] for the RNC convention. And I get a
+- [01:17.280] phone call. Actually, it was a text
+- [01:18.799] message from Susie Wilds, who was the
+- [01:21.119] campaign manager in 2024. And the text
+- [01:23.280] message says, "J, you just missed a very
+- [01:26.400] important phone call." I'm like, "Oh
+- [01:28.799] no." So I call the president of United
+- [01:31.040] States and I say, "Sir, I hear I missed
+- [01:32.799] an important phone call." and he said,
+- [01:34.079] "Jie, you did miss a very important
+- [01:36.479] phone call and now I'm going to have to
+- [01:37.920] pick somebody else."
+- [01:41.119] And like, you know, my entire body
+- [01:43.439] clenches up. I'm like, "Is this is this
+- [01:45.280] is this real?" And then at the same
+- [01:46.960] time, my seven-year-old, who's now nine,
+- [01:48.720] but at the time, my seven-year-old boy
+- [01:50.479] is talking to me about Pokemon cards.
+- [01:52.479] So, I'm trying to talk to the the
+- [01:53.680] president of the United States about
+- [01:54.960] becoming the vice presidential nominee.
+- [01:57.360] And meanwhile, my seven-year-old is
+- [01:59.439] talking to me about Charmander cards.
+- [02:01.360] And I have no idea what's going on. But
+- [02:04.880] so walking through the Fister Hotel,
+- [02:07.360] I've got this like moment of remembrance
+- [02:10.319] of the moment where I almost missed the
+- [02:12.879] president's phone call. But here I am.
+- [02:15.440] It worked out. I'm the vice president of
+- [02:16.800] the United States. Thanks to you.
+- [02:23.760] So we're here to talk about fraud. We're
+- [02:25.920] here to talk about protecting your
+- [02:27.599] taxpayer money. And most importantly,
+- [02:29.599] we're here to talk about protecting the
+- [02:32.080] programs that exist that are funded by
+- [02:34.720] the generosity of the people in this
+- [02:36.480] room and that ought go to the people
+- [02:38.800] they're meant for and not to make
+- [02:40.959] fraudsters rich. It's a very very simple
+- [02:43.200] principle. Now, there are a lot of
+- [02:44.800] people that I have to thank and make
+- [02:46.959] this work possible. And first of all,
+- [02:49.360] I've got to thank our our great CMS
+- [02:51.760] administrator, Dr. Oz. Where is Dr. Oz
+- [02:54.720] at? They might be backstage, but
+- [02:59.760] doc Dr. Oz and our team at the fraud
+- [03:02.080] task force, Kim Brady and Scott, excuse
+- [03:04.800] me, Kim Brandt and Scott Brady. Kim and
+- [03:07.680] Scott, please give a round of applause
+- [03:09.120] to these guys. They have protected more
+- [03:11.120] of your money than anybody.
+- [03:15.440] Now, we could not have done what we did
+- [03:19.280] were it not for the support of our
+- [03:21.200] incredible congressional allies. We're
+- [03:22.800] going to talk a little bit about the
+- [03:24.159] fact that we've saved you all billions
+- [03:27.040] and billions of dollars that was going
+- [03:28.800] to fraudsters. That's money in your
+- [03:31.040] pocket, which is exactly where it
+- [03:32.959] belongs. But we couldn't do that without
+- [03:35.760] a couple of great congressional
+- [03:37.519] representatives. And in particular, I've
+- [03:40.239] got to give a shout out to
+- [03:42.159] Representative Brian Style. Where is
+- [03:44.239] Brian Style? Please stand up, man.
+- [03:48.597] >> [applause]
+- [03:51.200] >> He has been a phenomenal champion for
+- [03:53.840] the state of Wisconsin. He has taken the
+- [03:55.920] fraud issue more seriously than anybody.
+- [03:58.000] So Brian, thank you so much for what
+- [03:59.519] you're doing. I've also got to give a
+- [04:01.840] shout out to our great representative
+- [04:04.560] Derek Van Orton. Derek, please stand up.
+- [04:06.720] Thank you for everything that you're
+- [04:07.840] doing.
+- [04:13.280] And I I got to say it would be so nice
+- [04:16.079] to have a governor in this incredible
+- [04:18.639] state. One of the most beautiful states
+- [04:20.239] in the union, especially this time of
+- [04:22.320] year. I love Wisconsin or as you guys
+- [04:24.720] say, Wisconsin. Love Wisconsin. But we
+- [04:28.080] have got to have a governor who takes
+- [04:31.120] fraud as seriously as the president of
+- [04:33.440] the United States who's trying to save
+- [04:35.040] your money as much as we are in
+- [04:37.600] Washington. And that's Tom Tiffany. Tom
+- [04:40.080] Tiffany is who we got to elect the next
+- [04:42.160] governor.
+- [04:47.759] And I also want to give a shout out to
+- [04:50.000] Representative Glenn Grothman. Where is
+- [04:52.080] Glenn at? Glenn, thank you for
+- [04:53.440] everything that you're doing. God bless
+- [04:55.520] you.
+- [04:59.040] And then Representative Tony Weeden.
+- [05:00.960] Where is Tony at, Tony? Thank you so
+- [05:03.120] much, man.
+- [05:07.199] So proud of you. And of course, he's a
+- [05:09.039] little far away from home, but our
+- [05:11.520] representative, or not yet a
+- [05:12.880] representative, run up from north. Look,
+- [05:14.800] this stand up. Good-looking guy, young
+- [05:16.960] guy, is going to make the great
+- [05:18.400] congressman.
+- [05:24.000] So, here's here's here's the crazy
+- [05:26.000] thing, ladies and gentlemen. We don't
+- [05:28.240] have two parties that disagree about tax
+- [05:31.440] policy or regulatory policy. We've got a
+- [05:35.120] party that is fighting for fraud and a
+- [05:38.320] party that is fighting against fraud.
+- [05:41.120] And I don't know about you, but how
+- [05:43.280] about we give more authority, more
+- [05:46.320] power, and more influence to the party
+- [05:48.479] that is trying to save your money and
+- [05:50.800] send the fraudsters to prison. That's
+- [05:52.560] all we're trying to do.
+- [05:55.014] [applause]
+- [05:58.320] Now, here's let me talk about a few of
+- [06:00.960] the things that we've been accomplishing
+- [06:02.560] here. So the very day after the state of
+- [06:05.039] the union address where the president
+- [06:06.639] makes me the leader of the anti-fraud
+- [06:08.800] task force, what we do is we go about
+- [06:11.759] the business of stopping these companies
+- [06:15.120] that are set up to provide durable
+- [06:18.560] medical equipment. You know, this is
+- [06:20.319] hospital beds, oxygen tanks, things like
+- [06:22.560] that. Things that the American people
+- [06:24.400] need and the Medicare program exists to
+- [06:27.120] ensure that our seniors have access to.
+- [06:30.160] Now, what happens though is that there
+- [06:32.800] are people setting up these programs,
+- [06:36.479] setting up companies that sell durable
+- [06:38.639] medical equipment, and they're not
+- [06:40.240] selling a single product, but they are
+- [06:43.199] billing for lots of product. Billions
+- [06:45.919] and billions of dollars was being buil
+- [06:50.479] to the program that exists to ensure
+- [06:53.039] that our seniors have healthcare. And
+- [06:55.280] you know what that means? Number one,
+- [06:56.639] the fraudsters were getting rich. But
+- [06:58.560] number two, our seniors who desperately
+- [07:01.280] needed those resources, who needed the
+- [07:03.759] hospital beds and the oxygen tanks, they
+- [07:06.400] weren't getting them because the
+- [07:07.759] fraudsters were getting rich off the
+- [07:09.599] generosity of the American taxpayer. So,
+- [07:11.759] you know what we did? We came in and we
+- [07:14.000] said, "We are not sanctioning a single
+- [07:16.720] one of these companies to defraud the
+- [07:19.360] American people. If you say that you're
+- [07:21.919] going to provide medical equipment to
+- [07:23.919] our seniors, we're going to confirm that
+- [07:25.840] you're actually delivering product
+- [07:27.919] before we pay a single one of those
+- [07:29.680] bills. And we save billions of dollars.
+- [07:35.520] And you know what happened is we had
+- [07:36.960] great support from Brian Style and Derek
+- [07:38.960] Van Orton and all of the other great
+- [07:40.800] congressional representatives to keep
+- [07:43.199] that money out of the hands of
+- [07:44.720] fraudsters to ensure that it went to the
+- [07:46.479] seniors who needed it. And you know what
+- [07:48.319] happened? Not a single congressional
+- [07:50.720] Democrat stood up and said, "We are
+- [07:52.800] going to fight back against fraud." And
+- [07:55.120] that's the problem with modern
+- [07:57.360] congressional Democrats. You know, I was
+- [07:59.199] raised by bluecollar Democrats. They
+- [08:01.599] were Christian patriotic people, union
+- [08:04.960] steel workers who loved the United
+- [08:06.800] States of America. But my mama and papa,
+- [08:09.199] the people who raised me, they supported
+- [08:11.520] Democrats because they felt like the
+- [08:13.599] Democrats of 20, 30, 40 years ago had
+- [08:15.919] better policy. Now, you may agree or
+- [08:18.080] disagree with that, but today this is
+- [08:20.639] not about better or worse policy. This
+- [08:22.879] is about who is supporting the
+- [08:24.479] fraudsters and who's supporting you. And
+- [08:27.199] I know beyond a shadow of a doubt that
+- [08:29.440] if Mama and Papal were alive today, they
+- [08:32.320] would not recognize the modern
+- [08:34.399] Democratic Party in 2026. They would not
+- [08:37.519] recognize a party that tries to send
+- [08:39.839] your money to illegal aliens instead of
+- [08:42.399] our hardworking seniors who earned those
+- [08:44.959] benefits and ought to have access to
+- [08:46.880] them. They would not recognize a party
+- [08:49.120] that raises your taxes so that we can
+- [08:51.440] give more money to the fraudsters. And
+- [08:53.360] they would not recognize a party that
+- [08:55.680] rewards the fraudsters rather than
+- [08:57.680] sending them to prison. So I ask you a
+- [08:59.760] very simple question. When it you come
+- [09:01.920] to vote in November, are you going to
+- [09:04.160] vote for the pro- fraud party?
+- [09:07.600] >> Are you going to vote for the party who
+- [09:09.440] is sending your tax money to the
+- [09:11.040] fraudsters?
+- [09:13.519] >> No. We're going to support the party
+- [09:15.680] that is sending the fraudsters to jail
+- [09:17.839] and is protecting your money. We're
+- [09:19.680] going to vote for Derek Van Orton and
+- [09:21.440] for Brian Style.
+- [09:27.920] Now, I want to talk about another fraud
+- [09:30.160] crackdown. And this is almost hard to
+- [09:32.800] believe, but you know, we have a program
+- [09:34.880] called the H1B visa program. And this
+- [09:37.600] goes to show how broad-based the fraud
+- [09:40.320] tax force is. Is we're we're fighting
+- [09:42.800] for your taxpayer money, but we're also
+- [09:44.959] making sure that fraudsters don't take
+- [09:47.040] advantage of these visa programs. Now,
+- [09:50.000] why does this program exist? This is a
+- [09:51.920] visa program that was set up to ensure
+- [09:54.800] that if you were a brilliant technology
+- [09:56.959] person or a brilliant scientist or a
+- [09:59.120] brilliant doctor, you could come to the
+- [10:01.279] United States and get access to this
+- [10:03.200] visa program. But you know what's
+- [10:04.800] happening way too much is that big
+- [10:07.040] corporations and fraudsters overseas are
+- [10:10.080] using this program to undercut the wages
+- [10:13.279] of American workers. So you know what
+- [10:15.279] we're doing in the Trump administration?
+- [10:16.959] We're saying no more. If you were trying
+- [10:19.440] to take advantage of that visa program,
+- [10:21.519] you were not allowed in to the United
+- [10:23.120] States of America.
+- [10:28.000] Today, I'm proud to announce that the
+- [10:29.839] federal department of labor has started
+- [10:33.040] dozens of subpoenas and investigations
+- [10:36.000] into foreign fraudsters who are trying
+- [10:37.920] to take advantage of the H1B visa
+- [10:40.959] program. Here's a simple pro here's a
+- [10:43.519] simple principle, ladies and gentlemen.
+- [10:45.680] American jobs ought to go to American
+- [10:49.120] workers and not foreign fraudsters. And
+- [10:51.120] the Department of Labor is fighting back
+- [10:52.720] against it.
+- [10:58.000] Now, here I want to talk about something
+- [11:00.079] else here. To my right, to your left,
+- [11:02.800] this is a program again. There is so
+- [11:05.120] much fraud or there was so much fraud in
+- [11:07.600] the federal government. We're taking
+- [11:09.040] taking it off of the books, but so much
+- [11:11.839] fraud. I didn't even know this program
+- [11:13.600] existed. Okay. So what is what is
+- [11:15.680] alligraphs? These are the you know skin
+- [11:17.839] grafts that people get when they get a
+- [11:19.760] wound or they get a burn. A very very
+- [11:22.079] important medical procedure but a
+- [11:23.920] medical procedure that was being
+- [11:26.399] radically taken advantage of. So if you
+- [11:28.959] go back to 2019, 2020, 2021, you see
+- [11:32.640] less than a billion dollars is paid for
+- [11:35.360] these skin grafts. Again, these are very
+- [11:37.680] important procedures for the people who
+- [11:39.200] need them. What happens under the Biden
+- [11:41.200] administration? All of a sudden, we go
+- [11:43.920] from less than a billion dollars spent
+- [11:45.920] on these skin graphs to $15 billion in
+- [11:50.320] 2025. And actually, in 2026, the number
+- [11:53.760] was supposed to be $25
+- [11:56.480] billion. But because we cut down on
+- [11:59.839] fraudulent payments and fraudulent
+- [12:02.160] billing, we saved you $25 billion, that
+- [12:05.440] number is now well below a billion
+- [12:07.200] dollars today. That's a simple good
+- [12:10.160] government action.
+- [12:14.079] And again, my friends, we want the
+- [12:16.639] people who deserve these treatments, who
+- [12:18.560] need these treatments, to have access to
+- [12:20.160] them. If we spend all your money giving
+- [12:23.040] these treatments to fraudsters instead
+- [12:26.079] of giving them to the people who need
+- [12:27.920] them, then those programs aren't going
+- [12:30.160] to exist anymore. And I just have this
+- [12:33.040] very, look, we're a generous country. I
+- [12:36.000] love that we're a generous country. My
+- [12:38.240] family sometimes benefited from these
+- [12:41.200] programs that ensured that poor children
+- [12:43.600] would have a bite to eat or would be
+- [12:45.440] able to see a doctor. I sometimes had a
+- [12:48.480] meal because the American people were
+- [12:50.720] generous enough to say that we're not
+- [12:52.800] going to let our young American kids go
+- [12:55.120] hungry because their parents can't
+- [12:56.800] afford a bite to eat. I think that's an
+- [12:58.959] amazing amazing thing about our great
+- [13:01.920] country is we're generous enough to lend
+- [13:04.079] a helping hand to our fellow citizens in
+- [13:06.320] need. But when we allow when your
+- [13:09.519] government allows whether in the state
+- [13:11.760] or the federal level, when we allow that
+- [13:14.560] money that ought by rights go to feed
+- [13:17.279] poor children but instead goes to
+- [13:19.279] fraudsters, we destroy the social fabric
+- [13:22.639] of the United States of America. So,
+- [13:25.120] what I take very seriously as your vice
+- [13:27.279] president, what Derek Van Orton and
+- [13:29.440] Brian Style take very seriously as your
+- [13:31.600] congressional representatives, and what
+- [13:33.440] Donald Trump takes seriously as the
+- [13:35.279] president of the United States is this
+- [13:37.680] sacred promise that it exists between
+- [13:40.480] the government of the United States and
+- [13:42.399] its citizens. That when you pay your tax
+- [13:45.040] dollars, it goes to the people who need
+- [13:47.680] it, not to the fraudsters. Which is why
+- [13:49.920] we're throwing those fraudsters in
+- [13:51.680] prison. It's exactly where they belong.
+- [13:54.479] >> [applause]
+- [14:00.079] >> Let me talk about another program. So,
+- [14:02.079] we have again these things that I didn't
+- [14:05.199] even know existed until I got into
+- [14:07.199] politics. We have a program, an amazing
+- [14:09.839] program to help young mothers. And I,
+- [14:13.279] you know, I care about this very
+- [14:14.480] personally. Usha is currently pregnant
+- [14:16.639] with baby number four. She is 37 weeks
+- [14:18.959] pregnant. And I appreciate your prayers.
+- [14:21.120] I love you, honey, if you're watching at
+- [14:22.639] home.
+- [14:25.199] But we have a program to ensure that at
+- [14:27.839] risk moms can get the prenatal care that
+- [14:29.920] they need. Now, you may not know this,
+- [14:31.920] but one of the leading causes of infant
+- [14:34.480] mortality in the world is actually not
+- [14:36.880] what happens what when the baby is born.
+- [14:39.519] It's what happens before the baby is
+- [14:41.120] born. When the mom can't get the medical
+- [14:43.040] treatment she needs, when the mom can't
+- [14:44.959] get access to the resources that she
+- [14:47.519] needs. Okay, we try to solve that
+- [14:49.920] problem. And again, we we are able to do
+- [14:52.639] so in part because of the generosity of
+- [14:55.360] the American taxpayer. But you know
+- [14:57.440] what? In Milwaukee, with the government
+- [15:01.199] of this state looking the other way, we
+- [15:04.240] had people who were allowing fraudsters
+- [15:07.360] to get rich off of that prenatal care
+- [15:10.079] without providing a dime of services to
+- [15:13.519] the young moms who need it. And I want
+- [15:15.360] to I want to point to this woman
+- [15:21.440] Now, I want to be clear that the woman
+- [15:23.839] in the back did nothing wrong.
+- [15:26.560] But look at this woman in the front with
+- [15:28.399] the smug look in the Louis Vuitton bag.
+- [15:31.279] A woman who quite literally stole from
+- [15:34.560] young mothers who needed prenatal care.
+- [15:37.760] And the state of Wisconsin, ladies and
+- [15:40.399] gentlemen, had to scale down that
+- [15:42.320] program because of insufficient funds so
+- [15:45.519] that this woman could go and buy a Louis
+- [15:47.680] Vuitton bag. There were young mothers in
+- [15:50.399] Wisconsin who did not get access to the
+- [15:53.360] prenatal care that they needed. That
+- [15:55.360] endangers the moms. That endangers the
+- [15:57.839] babies. And you know what? Derek Van
+- [16:00.000] Orton and Brian Style fought against it.
+- [16:02.399] and the congressional Democrats that
+- [16:04.240] they go to work with every single day
+- [16:06.480] fought for it. So, here's a simple
+- [16:08.639] question. Here's a simple principle. If
+- [16:11.279] you fight to take money away from needy
+- [16:14.720] moms and give it to this woman and her
+- [16:17.040] Louis Vuitton bags, you should have your
+- [16:19.839] ass thrown the hell out of Washington
+- [16:21.519] DC. You don't belong there. You don't
+- [16:23.600] belong anywhere in a position of
+- [16:25.440] influence.
+- [16:30.720] And I'm sorry, excuse my language. I
+- [16:32.560] know we got a couple of kids in the
+- [16:33.920] audience. My my wife, I love her. She
+- [16:36.959] gets on me all the time because I've got
+- [16:39.120] I was raised by a guntoing fbomb f-bomb
+- [16:42.800] dropping grandmother.
+- [16:44.880] And we've got an F-bomb dropping
+- [16:47.199] grandmother right over here. I can tell.
+- [16:49.759] And you know,
+- [16:52.560] old habits die hard, ladies and
+- [16:54.079] gentlemen. That's all I'll say. Even as
+- [16:55.360] vice president, old habits die hard. But
+- [16:57.120] I try to work on it. I try to work on
+- [16:58.959] it. And here's here's what I want to
+- [17:01.600] close with and we'll take some uh we'll
+- [17:03.120] take some questions from the reporters.
+- [17:05.760] We have an opportunity to keep the
+- [17:07.520] momentum of the last couple of years and
+- [17:10.480] particularly the last few months. We can
+- [17:12.799] keep on fighting fraud or we can reward
+- [17:14.959] the fraudsters. We can kick criminal
+- [17:17.360] illegal aliens out of our country or we
+- [17:19.760] can reward people for stealing your tax
+- [17:22.160] money. We can protect those moms who
+- [17:25.360] need that that prenatal care or we can
+- [17:28.160] give it away to people who are trying to
+- [17:29.840] take advantage of you and take advantage
+- [17:31.919] of the system. This is not a normal
+- [17:34.320] election because we're not running
+- [17:35.679] against people who maybe have different
+- [17:37.200] ideas about tax policy or regulatory
+- [17:40.080] policy. To the people watching at home,
+- [17:42.400] I understand you're of course not going
+- [17:44.480] to agree with the president and the vice
+- [17:46.320] president about every single issue. But
+- [17:49.120] what I hope we can all agree on is the
+- [17:51.440] simple principle that the people's
+- [17:53.360] government exists to fight for the
+- [17:55.679] people and not the fraudsters. So
+- [18:00.320] thank you.
+- [18:04.160] So please help us out by sending Derek
+- [18:07.760] Van Orton and Brian Style back to
+- [18:10.400] Washington DC. Keep the pro- fraud party
+- [18:13.360] out of Washington. Keep these guys
+- [18:15.520] fighting for you. Thank you ladies and
+- [18:17.360] gentlemen. It's an honor to be here.
+- [18:20.412] [applause and cheering]
+- [18:25.652] [applause]
+- [18:27.440] Now,
+- [18:30.480] I I I'm going to take some questions
+- [18:32.640] here, but it's funny. You know,
+- [18:35.360] sometimes people call, I got to make
+- [18:36.559] sure it's not the president. He's over
+- [18:37.679] at NATO right now. Um, okay. It's not
+- [18:40.559] the president. Um,
+- [18:44.400] but let me uh let me start with the
+- [18:46.080] local reporters here and go ahead guys
+- [18:48.960] and uh fire away. I'm an open book. I'll
+- [18:51.360] answer any question.
+- [18:53.360] >> Mr. Vice President, welcome to
+- [18:55.039] Milwaukee. Welcome to Wisconsin. Welcome
+- [18:56.880] back. I'm Julia Fellow with 620 WTMJ.
+- [19:01.280] You've been overseas. The president is
+- [19:03.039] just coming back from Turkey. Memorandum
+- [19:05.520] of understanding. We're looking at gas
+- [19:07.760] prices. What's going on with the
+- [19:09.039] straight hormuz? The president was
+- [19:11.919] saying that he was going to strike
+- [19:14.000] tonight like now. So, can you tell us
+- [19:17.280] what is going on right now? Where are we
+- [19:20.320] with the war in Iran?
+- [19:22.480] >> Yeah. So, so look, we made a deal with
+- [19:25.520] the Iranians and we had to step back a
+- [19:27.440] little bit before before you even get to
+- [19:28.960] the deal. The simple fact is that thanks
+- [19:31.120] to the incredible efforts of our amazing
+- [19:33.520] US military to Pete Hexth and Dan Kaine,
+- [19:36.480] the president of United States, just
+- [19:37.760] amazing people.
+- [19:42.400] But but most of all, thanks to the
+- [19:43.760] troops, we came into the situation with
+- [19:45.520] maximum leverage and maximum strength.
+- [19:47.919] Their nuclear program was destroyed.
+- [19:50.080] Their their conventional military was
+- [19:52.559] destroyed. And you've got some people
+- [19:54.480] within the Iranian system who are
+- [19:56.000] saying, you know what, we want to change
+- [19:58.000] our relationship with the United States.
+- [19:59.840] We want to turn over a new leaf. And the
+- [20:01.280] president said, okay, we will sit down
+- [20:03.919] at the table and negotiate and see if
+- [20:06.320] the smart people in that system can take
+- [20:08.400] over from the crazy people. Well, here's
+- [20:10.799] the basic deal that we cut. The basic
+- [20:12.960] deal that we cut was we'll lift our
+- [20:15.200] blockade if you stop shooting at ships.
+- [20:17.679] But if you shoot at ships, we are going
+- [20:19.360] to punch back and we're going to punch
+- [20:20.880] back harder than ever before. That was
+- [20:23.280] the deal. They said they would stop
+- [20:25.919] shooting at ships. And what happened 24
+- [20:27.600] hours ago? They started shooting at
+- [20:29.280] ships again. Now, they were good. They
+- [20:31.120] were well behaved for about a week, but
+- [20:32.880] then they started shooting at ships. So,
+- [20:34.480] the deal is very simple. If they shoot
+- [20:36.320] at ships, we're going to knock the hell
+- [20:37.840] out of them. And it's that simple. And
+- [20:39.520] that's the basic way it's going to work.
+- [20:47.360] Now, the president maintains a lot of
+- [20:49.120] options. I'm obviously not going to tell
+- [20:50.400] you exactly what's going to happen
+- [20:52.000] tonight, but the president has said to
+- [20:54.000] them very simply, the straight of Hormuz
+- [20:56.640] is going to be open. That means oil and
+- [20:58.559] gas is going to flow to the American
+- [21:00.159] people. That's why we see gas prices
+- [21:03.679] starting to come down. That's why we see
+- [21:05.600] the oil prices so low is because the
+- [21:07.600] president said that crucial artery
+- [21:10.720] through which we ship a lot of the
+- [21:12.320] world's energy, that artery has got to
+- [21:14.559] remain open. And that is what the
+- [21:16.480] Iranians have to know. If they try to
+- [21:18.480] close it down, there's going to be
+- [21:20.080] response for the American military. It's
+- [21:22.559] that simple. That's the deal. They can
+- [21:25.039] either follow it or they can have
+- [21:27.280] exactly what happened to them last
+- [21:28.640] night. It's just going to keep on
+- [21:29.840] happening until they open up that lane
+- [21:31.919] and stop shooting at ships. It's simple.
+- [21:40.799] Next.
+- [21:42.480] Thank you, Mr. Vice President. Matt
+- [21:43.840] Smith from WISN TV in Milwaukee. The
+- [21:46.720] president has talked about election
+- [21:48.000] fraud as well a lot. Just yesterday,
+- [21:50.799] Milwaukeee's mayor sent your office a
+- [21:52.799] letter saying he would love to meet with
+- [21:54.720] you and some election officials here in
+- [21:57.679] the city after agents started asking
+- [22:00.000] questions and interviewing people about
+- [22:01.600] 2020 again. So, I'm curious, what can
+- [22:03.919] you tell us about the FBI investigation
+- [22:05.840] here in Milwaukee into 2020? And why are
+- [22:08.159] they relooking at that election here in
+- [22:09.840] the city?
+- [22:11.200] Well, first of all,
+- [22:13.760] if
+- [22:15.760] I did get the letter from the mayor of
+- [22:17.520] Milwaukee and he wants to meet and he's
+- [22:20.320] welcome to come to Washington DC. I'll
+- [22:21.840] sit down and meet with him. We don't
+- [22:23.200] have time to meet with him today because
+- [22:24.640] we got to get back to Washington, but
+- [22:26.559] I'm happy to meet with him. I will say
+- [22:29.360] it was a little bit of a heth protest
+- [22:32.240] too much because I came here to talk
+- [22:34.320] about financial fraud. I came here to
+- [22:36.000] talk about the fraud against our our
+- [22:37.679] prenatal program for our young moms. And
+- [22:40.480] some guy sends me a letter, the mayor of
+- [22:42.159] Milwaukee, and says, "We don't do any
+- [22:45.200] election fraud. If we don't do any
+- [22:46.400] election fraud, we don't do any election
+- [22:47.840] fraud." And my response to that is, "You
+- [22:50.480] know what? It kind of reminds me of like
+- [22:52.240] a couple weeks ago. I get home to the
+- [22:54.880] Naval Observatory, the nicest public
+- [22:56.799] housing anywhere in the United States of
+- [22:58.720] America. And my six-year-old greets me
+- [23:01.360] and I love my little boy, but he's a
+- [23:03.760] little mischievous. And he gives me a
+- [23:05.440] big hug. He says, "Daddy, I'm glad
+- [23:06.799] you're home. I didn't steal any of the
+- [23:08.400] cookies."
+- [23:11.039] I said, "Huh, that's interesting that
+- [23:13.039] you volunteered that when I wasn't even
+- [23:15.280] talking about that." Well, of course, he
+- [23:17.440] stole the cookies. So when I hear a guy
+- [23:20.000] protesting out of nowhere, I did not do
+- [23:22.880] any election fraud. I did not do any
+- [23:24.559] election fraud. It makes me wonder why
+- [23:26.559] is that guy protesting so aggressively?
+- [23:28.880] It's a little odd.
+- [23:35.200] And the second thing I'll say is look,
+- [23:36.960] there's of course this big debate about
+- [23:39.280] how much election fraud happens in the
+- [23:41.120] United States of America. You guys know
+- [23:43.039] my views. We're not going to settle this
+- [23:44.400] here. First of all, any election fraud
+- [23:47.520] is too much election fraud in the
+- [23:49.440] world's greatest and oldest
+- [23:51.280] constitutional republic.
+- [23:56.159] And number two, if Democrats want us to
+- [23:58.960] stop talking about election fraud, I
+- [24:00.720] make them a simple deal. Pass the Save
+- [24:02.960] America Act and get voter ID and we'll
+- [24:05.200] stop talking about election fraud.
+- [24:10.186] >> [applause]
+- [24:12.320] >> We are the only advanced democracy
+- [24:14.880] anywhere in the entire world that
+- [24:16.960] doesn't require you to show a voter ID
+- [24:18.960] to vote. It's simple. Just give us
+- [24:22.799] election integrity laws. Give us voter
+- [24:24.960] ID and then we will have the confidence
+- [24:27.279] to say the American people there's no
+- [24:28.960] cheating. But when they say number one,
+- [24:31.200] we don't want voter ID and number two
+- [24:33.679] there's not that much cheating in our
+- [24:35.120] elections. It's natural for all of us to
+- [24:37.440] say not much cheating is still way too
+- [24:40.400] much cheating. So stop it and give the
+- [24:42.400] American people voter ID. Thank you.
+- [24:45.200] Next question. [applause]
+- [24:48.000] Thank you, Mr. Vice President. Vanessa
+- [24:49.840] Kelson, Gray Media. What will happen if
+- [24:52.880] Wisconsin Governor Tony Ivers does not
+- [24:55.200] hand over the SNAP roles or the Medicaid
+- [24:57.760] enrollment data to your administration?
+- [25:00.000] >> Well, look, we're going to look at what
+- [25:01.200] we can do to force him to give over that
+- [25:03.279] data. And and just to give some context
+- [25:04.880] to the question for for those of you who
+- [25:06.480] don't know, so the SNAP program, which
+- [25:10.159] is one of the most important programs
+- [25:11.760] that exists in the federal government,
+- [25:13.120] it ensures that low-income families have
+- [25:15.760] enough food to eat when they're down on
+- [25:17.440] their luck. Would you be shocked to know
+- [25:20.559] that most states do not do eligibility
+- [25:25.520] checks for the SNAP rolls anywhere?
+- [25:29.360] Doesn't happen in California. Doesn't
+- [25:30.720] happen a lot of other places. I'm the
+- [25:32.080] vice president of the United States and
+- [25:34.000] I could not tell you, not because I
+- [25:36.000] don't want to, but I cannot tell you
+- [25:38.799] whether the state of Wisconsin has
+- [25:41.440] illegal aliens who are ineligible who
+- [25:44.559] are receiving food stamp benefits paid
+- [25:46.480] for by your tax dollars. And the reason
+- [25:48.799] why I don't know the answer is because
+- [25:51.600] the governor of this state will not give
+- [25:53.919] us the data that allows us to say,
+- [25:56.320] "Well, this person is eligible. This
+- [25:58.559] person is an illegal alien. scratch them
+- [26:00.880] off the list. Now ask yourself,
+- [26:03.502] [applause]
+- [26:05.679] ladies and gentlemen, that is in my view
+- [26:08.480] borderline criminal. If you
+- [26:12.960] if you are administering a program
+- [26:15.520] collecting billions and billions of
+- [26:17.919] dollars and you don't check whether the
+- [26:20.799] people you're giving that money to are
+- [26:22.320] actually entitled to it, that is a
+- [26:24.400] complete scam that's being perpetrated
+- [26:26.400] on every single person in this room. So,
+- [26:29.440] what we've asked the governor to do is
+- [26:31.760] just give us the data so that we can
+- [26:34.159] check whether you've got illegal aliens
+- [26:36.080] on your food stamp rolls. And he's
+- [26:37.919] saying absolutely not. And I think the
+- [26:40.400] only plausible explanation for that is
+- [26:42.320] that he cares more about protecting
+- [26:44.080] illegal aliens than he does the good
+- [26:46.000] citizens of Wisconsin. It's a scam and
+- [26:48.159] it has to stop. [applause]
+- [26:55.840] >> Let's do a couple more questions. Go
+- [26:57.760] ahead. Hi, Mr. Vice President. Ellie Law
+- [26:59.520] Liberte, Channel 3 out of Madison. Now,
+- [27:01.760] last month, the Wisconsin Department of
+- [27:03.279] Justice joined a multi-suit lawsuit
+- [27:05.279] against the Trump administration over
+- [27:06.720] its implementation of new Medicaid work
+- [27:08.799] requirements. Our attorney general
+- [27:10.320] wrote, quote, "The Trump administration
+- [27:11.760] is lawlessly trying to restrict access
+- [27:13.520] to Medicaid coverage." What's your
+- [27:15.200] response?
+- [27:16.480] >> Well, my response is, again, we have
+- [27:21.039] what you might call a social contract in
+- [27:23.679] the United States of America. It exists
+- [27:25.840] between all of us fellow citizens,
+- [27:28.480] between those citizens and their
+- [27:29.919] government. And the basic idea is when I
+- [27:32.640] hand over a dollar to the federal
+- [27:34.320] government, I expect my government
+- [27:36.400] officials to spend it wisely to make
+- [27:38.559] sure it's not going to fraud. And if you
+- [27:40.720] have somebody who's receiving those
+- [27:42.159] benefits, to make sure that they're at
+- [27:44.000] least looking for a job before they get
+- [27:46.559] a lot of free money from the federal
+- [27:47.919] government. So when I hear
+- [27:54.159] when I hear the attorney general of this
+- [27:55.919] state saying that we don't want to
+- [27:58.080] confirm that people are looking for work
+- [28:01.279] before they receive federal benefits, my
+- [28:03.679] natural question is why are you so
+- [28:06.720] against people looking for a job? That's
+- [28:09.840] it. We're not saying
+- [28:12.799] we're not saying that we want anybody to
+- [28:14.399] go without medical benefits. What we're
+- [28:16.080] saying is that we want you, if you're
+- [28:17.919] going to receive these benefits, we want
+- [28:19.919] you at least to try to find a job. And I
+- [28:22.960] think in the same way that every single
+- [28:25.360] person in this room and every single
+- [28:27.760] taxpaying citizen of Wisconsin hands
+- [28:30.559] their money over to the government, it's
+- [28:32.640] totally reasonable for them to expect
+- [28:34.880] the beneficiaries of that money to at
+- [28:36.880] least be looking for work. That's the
+- [28:39.760] contract. And if you violate that
+- [28:41.600] contract, you shouldn't get a dime of
+- [28:43.200] federal money.
+- [28:44.634] >> [applause]
+- [28:47.360] >> Why don't we do one more question?
+- [28:50.399] >> Hi, I'm Mary Spakuza with Milwaukee
+- [28:52.399] Journal Sentinel newspaper. My c-orker
+- [28:54.880] and I started investigating prenatal
+- [28:56.880] fraud here in Milwaukee almost a decade
+- [28:58.960] ago and we noticed that um state
+- [29:02.399] officials started investigating, federal
+- [29:04.399] officials, federal prosecutors. So,
+- [29:06.880] two-part question. Do you think because
+- [29:09.440] all those people came together, is that
+- [29:11.360] an example of people of people working
+- [29:14.000] together and doing what they're supposed
+- [29:15.360] to do? And what do you do now to make
+- [29:18.080] sure that the women and babies who are
+- [29:20.000] supposed to be getting help are actually
+- [29:21.520] getting help?
+- [29:23.279] >> Yeah. So, first of all, the most
+- [29:25.840] important way to ensure that the people
+- [29:27.360] who deserve the help, who need the help
+- [29:29.200] actually get it, is to cut down on the
+- [29:31.120] fraud because money doesn't grow on
+- [29:32.880] trees and there are limited resources.
+- [29:34.720] This is one of the reasons why I
+- [29:36.080] personally care so much about fraud. I
+- [29:38.000] want to save every single one of you
+- [29:39.200] money, but I also want to ensure that
+- [29:41.360] when a young mom goes in to get some
+- [29:43.600] prenatal vitamins and she can't afford
+- [29:45.840] them, she's able to get access to them
+- [29:47.679] because a fraudster hasn't taken
+- [29:49.600] advantage of that program. Part of what
+- [29:52.159] we're trying to do is to ensure that
+- [29:54.559] these programs exist for the next
+- [29:56.559] generation. Look, ju just take the one
+- [29:58.720] of the biggest the biggest federal
+- [30:01.679] programs out there, Social Security.
+- [30:04.000] People pay into Social Security for
+- [30:06.159] their entire working lives. Every single
+- [30:08.559] day or every two weeks, I should say, we
+- [30:10.640] get a paycheck and we see on that
+- [30:12.559] paycheck the amount of money that is
+- [30:14.399] going to Social Security. I am worried
+- [30:17.200] that if we don't stop sending Social
+- [30:18.799] Security checks to illegal immigrants,
+- [30:20.480] the people who paid into it for their
+- [30:22.080] entire lives are never going to have
+- [30:23.520] access to that money. That's that's a
+- [30:25.600] scam and it's totally unacceptable. So
+- [30:28.000] the most important thing we can do to
+- [30:30.320] ensure those benefits exist for the
+- [30:32.480] people who earned them is to make sure
+- [30:34.720] that the fraudsters don't get them that
+- [30:36.640] the American people do.
+- [30:43.919] But you also asked about this mail fraud
+- [30:45.760] investigation and absolutely the answer
+- [30:47.600] to your question is yes. I think that's
+- [30:49.039] a great example of the federal
+- [30:50.960] government and the state government
+- [30:52.399] working together to cut down on fraud.
+- [30:54.480] And we want to see that model replayed
+- [30:56.320] and replicated on a number of programs.
+- [30:58.640] The problem is there are certain
+- [31:00.640] programs that for whatever reason, most,
+- [31:03.440] not all, by the way, because I'll give
+- [31:05.120] great credit to the blue state governors
+- [31:06.799] who are working with us, but most blue
+- [31:09.200] state governors, if you want to check,
+- [31:10.880] for example, whether illegal aliens are
+- [31:12.880] getting food stamps, most of them are
+- [31:14.640] saying we're not going to do that. If
+- [31:16.559] you want to check if illegal aliens are
+- [31:18.159] getting access to Medicaid health
+- [31:19.600] benefits, most of the blue state
+- [31:21.440] governors are not willing to do that.
+- [31:23.200] And I think it's it's just sad that this
+- [31:26.000] should be a bipartisan issue. If you're
+- [31:28.720] a Democrat and you believe that Medicaid
+- [31:31.919] should exist to provide good health
+- [31:34.480] benefits to people who can't afford
+- [31:36.080] them, then why don't you want to cut
+- [31:37.919] down on the fraud? If you care more
+- [31:40.320] about fraud than you do about these
+- [31:42.159] health benefits, it starts to make it
+- [31:44.640] look that you care more about illegal
+- [31:46.640] aliens than you do about the citizens of
+- [31:48.399] Wisconsin. That's what it looks like to
+- [31:50.559] me.
+- [31:54.720] So, so, so I'll say to the the governor
+- [31:56.720] of this state, even though he's not in
+- [31:58.240] my political party, the attorney
+- [31:59.679] general, anybody else, you have a open
+- [32:05.440] offer to come into the White House and
+- [32:07.840] to talk about how we can combat fraud
+- [32:10.080] together. I will work with you. I will
+- [32:12.720] make it easier. I will give you federal
+- [32:14.399] resources. I will do whatever I need to
+- [32:16.399] do, but it's got to be a two-way street.
+- [32:18.880] If you're hiding the food stamp roles
+- [32:21.679] because you don't want to tell us
+- [32:23.679] whether illegal aliens are getting food
+- [32:25.360] stamped, that that that's not
+- [32:27.039] cooperation. That is you hiding criminal
+- [32:30.720] conduct from the American people and
+- [32:32.399] it's a scandal and it absolutely has to
+- [32:34.640] stop.
+- [32:40.559] So, let me let me let me just close here
+- [32:42.320] with with an observation, and that's
+- [32:44.159] that, you know, we're getting into
+- [32:45.279] election season, and you all obviously
+- [32:47.360] care a lot about politics, and sometimes
+- [32:49.919] in election season, it starts to feel a
+- [32:51.919] little bit like red team and blue team.
+- [32:53.519] People look at the fundraising numbers,
+- [32:55.200] they read the media stories, you know,
+- [32:57.519] they they read the scandals,
+- [32:58.880] particularly in Maine, if you're into
+- [33:00.399] political scandals, might I recommend a
+- [33:02.640] Google search on Graham Platner.
+- [33:05.919] But we got to remember that this is not
+- [33:09.200] red team versus blue team. This is about
+- [33:11.600] whether the American people get wise and
+- [33:14.480] honest political leadership or whether
+- [33:17.039] they are represented by a bunch of crazy
+- [33:18.799] people in their Congress. Every two
+- [33:21.519] years, the American people get to vote
+- [33:23.519] on who represents them in the United
+- [33:25.440] States Congress and the United States
+- [33:27.039] Senate. Every two years, we come
+- [33:29.200] together as a country and make this
+- [33:30.799] determination together. My pitch to the
+- [33:33.360] voters out there, especially the voters
+- [33:35.200] who haven't made up their minds on on
+- [33:37.279] Derek Van Orton, on Brian Style, on all
+- [33:39.519] of our great congressional
+- [33:40.559] representatives, it's not that you're
+- [33:42.159] going to agree with us every single time
+- [33:44.080] because nobody, even the a committed
+- [33:46.159] Republican, is not going to agree with
+- [33:47.919] me on every single issue. It's not that
+- [33:50.960] we're always going to see eye to eye.
+- [33:54.240] What I will tell you is that what
+- [33:56.320] separates Derek Van Orton, Brian Style,
+- [33:59.200] and all these great congressional
+- [34:00.559] representatives from their Democrat
+- [34:02.559] counterparts is that right now the
+- [34:04.799] Democrats don't even pretend to be
+- [34:06.640] fighting for you. Now, we could
+- [34:08.800] disagree, for example, about what what
+- [34:10.879] should the police department's budget
+- [34:12.639] be? That's a reasonable, rational
+- [34:14.720] conversation for Republicans and
+- [34:16.639] Democrats to have. That's not the
+- [34:18.399] conversation that we're having. We're
+- [34:20.159] having the conversation about whether we
+- [34:21.760] support our police officers, which is
+- [34:23.760] what Republicans want to do, or whether
+- [34:25.760] we abolish police departments, which is
+- [34:28.079] what the Democrats are proposing to do.
+- [34:31.440] We can
+- [34:34.480] we can talk about what our exact
+- [34:36.560] immigration level should be. Of course,
+- [34:38.720] reasonable minds are going to disagree,
+- [34:40.879] but that's not the debate that we're
+- [34:42.240] having. The Democrats that are running
+- [34:44.159] today are running on abolishing ICE and
+- [34:47.200] opening up the American southern border.
+- [34:49.919] We can disagree.
+- [34:52.639] We can disagree about tax policy and
+- [34:54.639] what the optimal tax rate should be.
+- [34:56.800] That's not what they're doing. The
+- [34:58.320] Democrats are running on confiscating
+- [35:00.800] your money and giving it to fraudsters
+- [35:03.359] and illegal aliens. They openly brag
+- [35:06.560] about fighting not for you, but fighting
+- [35:08.960] for some of the worst human beings that
+- [35:11.520] exist anywhere in the world. This is not
+- [35:14.400] a normal election. And so my request to
+- [35:16.880] you is not that you say that the vice
+- [35:19.920] president is right about every issue. My
+- [35:22.240] request to you is that you send people
+- [35:24.880] to Washington who are of good character
+- [35:27.440] and recognize that you are their boss.
+- [35:30.400] Not the fraudsters, not the illegal
+- [35:32.880] aliens, and not the bosses of the 21st
+- [35:36.079] century Democratic party. There are a
+- [35:37.599] lot of Democrats out there, a lot of
+- [35:39.599] independents, and of course, a lot of
+- [35:40.960] Republicans who look to Washington and
+- [35:43.599] don't recognize the congressional
+- [35:45.839] leadership of the Democratic Party in
+- [35:47.920] 2026. Well, I'd say to you, if you don't
+- [35:51.359] recognize that congressional leadership,
+- [35:53.599] you can join this movement. If you want
+- [35:57.280] an American political party that fights
+- [35:59.440] for the police instead of against them,
+- [36:01.839] vote for Derek Van Orton and Brian
+- [36:03.839] Style. [applause]
+- [36:10.640] If you want an American political party
+- [36:13.200] that cuts your taxes instead of raising
+- [36:16.240] your taxes to give it to fraudsters,
+- [36:18.560] then you got to support Glenn Gothman
+- [36:20.800] and Tony Weed.
+- [36:27.280] If you want somebody who ensures that
+- [36:29.839] whether you're rich or poor or black or
+- [36:32.160] white, public safety should be the
+- [36:35.040] god-given right of every single
+- [36:36.960] American. That you ought to be able to
+- [36:38.720] walk down the street without the fear of
+- [36:40.720] being mugged. That you ought to be able
+- [36:42.079] to take your family to a nice dinner
+- [36:43.680] downtown without having your car jacked.
+- [36:46.160] If you believe in basic public safety
+- [36:48.400] for all of us, rich or poor, then send
+- [36:51.280] Michael Alfonso to Congress. Don't send
+- [36:53.440] the crazy person running against them.
+- [36:59.280] My point is that this is not a normal
+- [37:01.280] election of people who disagree about
+- [37:03.839] this or that issue. By and large, there
+- [37:06.240] are exceptions, of course, but by and
+- [37:08.000] large, the Democrats have thrown their
+- [37:10.160] lot in with the people who want to
+- [37:12.160] abolish the police, who want to open the
+- [37:14.320] border, and want to give your money to
+- [37:16.000] fraudsters instead of moms who need it.
+- [37:19.359] Ladies and gentlemen, I have a simple
+- [37:21.280] request. When you go to the ballot in
+- [37:23.359] November, when you cast your vote, send
+- [37:26.320] us people to Washington DC who fight for
+- [37:29.760] you and send the crazy people back home
+- [37:32.640] where they belong. God bless you and
+- [37:34.320] thank you for having me here in
+- [37:35.280] Milwaukee.
+- [37:36.720] >> Detroit [music]
+- [37:37.920] Auto, let me thank you for your time.
+- [37:41.440] You work 40hour week for a living
+- [37:44.361] [music]
+- [37:45.760] just to send it on down the line.

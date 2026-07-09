@@ -1,7 +1,13 @@
 # YouTube / WhiteHouse / 2026-07-08
 
-- Posts: 8
+- Posts: 10
 
+- [23:45 UTC - President Trump Gaggles with Press on Air Force One En Route Joint Base Andrews, Jul. 8, 2026](xHhlrvRwGt8/)
+  - Source: https://www.youtube.com/watch?v=xHhlrvRwGt8
+  - [00:00.719] It was a long walk to you. - [00:03.679] >> It's about three times the walk we used - [00:05.279] to take, right? - [00:06.879] >> Uh I hope you like it. So we had a...
+- [18:52 UTC - Vice President JD Vance Delivers Remarks in Milwaukee, WI](g_L3UdEASB0/)
+  - Source: https://www.youtube.com/watch?v=g-L3UdEASB0
+  - [00:09.825] [music] - [00:21.615] [music] - [00:23.119] Thank you. It's great to be here. - [00:26.560] USA. - [00:30.130] [cheering] - [00:35.120] >> How we doing, Milwaukee? -...
 - [16:51 UTC - President Trump Participates in a Press Conference, Jul. 8, 2026](9JYvcEVlu3s/)
   - Source: https://www.youtube.com/watch?v=9JYvcEVlu3s
   - [00:11.520] the 45th and 47th president of the - [00:14.319] United States, Donald J. Trump. - [00:31.200] That's a lot of press. - [00:34.319] Wow. - [00:37.520] Well, it's impo...
