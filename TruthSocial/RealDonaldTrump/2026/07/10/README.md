@@ -1,7 +1,28 @@
 # TruthSocial / RealDonaldTrump / 2026-07-10
 
-- Posts: 7
+- Posts: 14
 
+- [20:32 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116897573892334933 The Base of ...](116897581533989497/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116897581533989497
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116897573892334933 The Base of the Magnificent White House Face, around the Column area, at its front door — It hasn’t be...
+- [20:30 UTC - Truth Social post 116897573892334933](116897573892334933/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116897573892334933
+  - _No text content captured._
+- [20:19 UTC - It is my Great Honor to endorse America First Patriot, Jay Feely, who is running to repres...](116897532575497667/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116897532575497667
+  - It is my Great Honor to endorse America First Patriot, Jay Feely, who is running to represent the wonderful people of Arizona’s 1st Congressional District! I know Jay well, and he...
+- [20:18 UTC - It is my Great Honor to endorse MAGA Warrior Mark Lamb, who is running to represent the Gr...](116897527945577853/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116897527945577853
+  - It is my Great Honor to endorse MAGA Warrior Mark Lamb, who is running to represent the Great People of Arizona’s 5th Congressional District. As the former Sheriff of Pinal County,...
+- [20:17 UTC - Congressman Abe Hamadeh is an America First Patriot who is doing a fantastic job represent...](116897524028856826/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116897524028856826
+  - Congressman Abe Hamadeh is an America First Patriot who is doing a fantastic job representing Arizona’s 8th Congressional District! A Brave U.S. Army Veteran, and former Criminal P...
+- [20:09 UTC - Congressman Juan Ciscomani is a Tremendous Champion for Arizona’s 6th Congressional Distri...](116897493274525628/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116897493274525628
+  - Congressman Juan Ciscomani is a Tremendous Champion for Arizona’s 6th Congressional District! As a Member of the POWERFUL Appropriations Committee, Juan is fighting hard to Keep ou...
+- [20:09 UTC - Congressman Eli Crane is an America First Patriot who is doing an incredible job represent...](116897491478017561/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116897491478017561
+  - Congressman Eli Crane is an America First Patriot who is doing an incredible job representing Arizona’s 2nd Congressional District! A retired Navy SEAL, Eli bravely served our Nati...
 - [18:51 UTC - Congressman Paul Gosar, D.D.S., is an America First Patriot, who is doing a fantastic job ...](116897186404287809/)
   - Source: https://truthsocial.com/@realDonaldTrump/116897186404287809
   - Congressman Paul Gosar, D.D.S., is an America First Patriot, who is doing a fantastic job representing Arizona’s 9th Congressional District! A MAGA Warrior, who has been with us fr...
