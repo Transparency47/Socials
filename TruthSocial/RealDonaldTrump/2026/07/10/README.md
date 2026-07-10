@@ -1,7 +1,22 @@
 # TruthSocial / RealDonaldTrump / 2026-07-10
 
-- Posts: 14
+- Posts: 19
 
+- [23:48 UTC - This was crooked right from the beginning! Trump hush money prosecutor played larger role ...](116898351933543428/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116898351933543428
+  - This was crooked right from the beginning! Trump hush money prosecutor played larger role in federal cases against prez than known, logs show: [https:// nypost.com/2026/07/10/us-ne...
+- [23:37 UTC - Washington D.C. went from High Crime to NO CRIME — Thank you President Trump!](116898310140486440/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116898310140486440
+  - Washington D.C. went from High Crime to NO CRIME — Thank you President Trump!
+- [23:36 UTC - Micron Accelerates U.S. Investments, Pours First Concrete at New York Fab: [https:// inves...](116898307111920626/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116898307111920626
+  - Micron Accelerates U.S. Investments, Pours First Concrete at New York Fab: [https:// investors.micron.com/news-rele ases/news-release-details/micron-accelerates-us-investments-pour...
+- [23:35 UTC - “Last week, I shared with President Trump that, because of his leadership and policies, Mi...](116898302549383361/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116898302549383361
+  - “Last week, I shared with President Trump that, because of his leadership and policies, Micron would announce today that we are ahead of schedule and increasing our U.S. manufactur...
+- [23:35 UTC - BIGGER INVESTMENTS JUST KEEP COMING! The Trump Effect is REAL! Micron is accelerating its ...](116898300053530163/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116898300053530163
+  - BIGGER INVESTMENTS JUST KEEP COMING! The Trump Effect is REAL! Micron is accelerating its U.S. spending to a MASSIVE 250 BILLION DOLLARS to build Memory Chips right here in the U.S...
 - [20:32 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116897573892334933 The Base of ...](116897581533989497/)
   - Source: https://truthsocial.com/@realDonaldTrump/116897581533989497
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116897573892334933 The Base of the Magnificent White House Face, around the Column area, at its front door — It hasn’t be...
