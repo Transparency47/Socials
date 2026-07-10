@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-07-10
 
-- Posts: 4
+- Posts: 7
 
+- [18:51 UTC - Congressman Paul Gosar, D.D.S., is an America First Patriot, who is doing a fantastic job ...](116897186404287809/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116897186404287809
+  - Congressman Paul Gosar, D.D.S., is an America First Patriot, who is doing a fantastic job representing Arizona’s 9th Congressional District! A MAGA Warrior, who has been with us fr...
+- [18:30 UTC - It is my Great Honor to endorse Highly Respected America First Congressman, Andy Biggs, wh...](116897104018811634/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116897104018811634
+  - It is my Great Honor to endorse Highly Respected America First Congressman, Andy Biggs, who is running to be the next Governor of the wonderful State of Arizona, a State I won BIG!...
+- [18:26 UTC - It is my Great Honor to endorse America First Patriot, Zach Lahn, a tremendous Candidate r...](116897087893823307/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116897087893823307
+  - It is my Great Honor to endorse America First Patriot, Zach Lahn, a tremendous Candidate running to be the next Governor of the Wonderful State of Iowa, a place I love and WON BIG...
 - [17:05 UTC - Truth Social post 116896769648484382](116896769648484382/)
   - Source: https://truthsocial.com/@realDonaldTrump/116896769648484382
   - _No text content captured._
