@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-10
 
-- Posts: 3
+- Posts: 4
 
+- [17:05 UTC - Truth Social post 116896769648484382](116896769648484382/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116896769648484382
+  - _No text content captured._
 - [14:32 UTC - The Islamic Republic of Iran has asked us to continue “talks.” We have agreed to do so, bu...](116896167446779964/)
   - Source: https://truthsocial.com/@realDonaldTrump/116896167446779964
   - The Islamic Republic of Iran has asked us to continue “talks.” We have agreed to do so, but the United States has stated to them, in no uncertain terms, that the Cease Fire is OVER...
