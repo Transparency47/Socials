@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-07-11
 
-- Posts: 9
+- Posts: 11
 
+- [12:17 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116901293654083857](116901297125942108/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116901297125942108
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116901293654083857
+- [12:16 UTC - Wow! Palm Beach has always been a special place to me. So Beautiful!!! President DONALD J....](116901293654083857/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116901293654083857
+  - Wow! Palm Beach has always been a special place to me. So Beautiful!!! President DONALD J. TRUMP
 - [04:07 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) 1000 Missiles are Locked ...](116899369667899641/)
   - Source: https://truthsocial.com/@realDonaldTrump/116899369667899641
   - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) 1000 Missiles are Locked and Loaded and aimed at the Islamic Republic of Iran, with thousands of more to immediatel...
