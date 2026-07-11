@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-07-11
 
-- Posts: 13
+- Posts: 16
 
+- [20:56 UTC - The Radical Left Lunatics, often referred to as Dumocrats, have lost control of their Part...](116903339663442384/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116903339663442384
+  - The Radical Left Lunatics, often referred to as Dumocrats, have lost control of their Party. They are being led by loud and unattractive people who have totally lost their way. Hop...
+- [20:55 UTC - I would often say in Speeches, and otherwise, America will never be a Socialist Country, a...](116903335965643997/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116903335965643997
+  - I would often say in Speeches, and otherwise, America will never be a Socialist Country, and I was 100% correct, the Dumocrats skipped Socialism, and went all the way down to Commu...
+- [20:54 UTC - With only bad Press and Fake News, I won the Presidential Election IN A LANDSLIDE. Therefo...](116903331181803059/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116903331181803059
+  - With only bad Press and Fake News, I won the Presidential Election IN A LANDSLIDE. Therefore, the Media has NO CREDIBILITY! If it did, that Historic Win would not have been possibl...
 - [19:16 UTC - It’s incredible! I win the Election IN A LANDSLIDE against the entire Dumocrat Party, and ...](116902945158204426/)
   - Source: https://truthsocial.com/@realDonaldTrump/116902945158204426
   - It’s incredible! I win the Election IN A LANDSLIDE against the entire Dumocrat Party, and almost 100% negative news — I won 86% of the Counties in America, 2,750 to 525, won the El...
