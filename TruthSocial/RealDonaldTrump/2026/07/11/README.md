@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-07-11
 
-- Posts: 16
+- Posts: 18
 
+- [22:07 UTC - Truth Social post 116903617004321449](116903617004321449/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116903617004321449
+  - _No text content captured._
+- [21:27 UTC - This is the horrible front of the White House, and it’s been like that for years. The cond...](116903460037642922/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116903460037642922
+  - This is the horrible front of the White House, and it’s been like that for years. The condition is deplorable, just like our Country was when I inherited it from Sleepy Joe Biden....
 - [20:56 UTC - The Radical Left Lunatics, often referred to as Dumocrats, have lost control of their Part...](116903339663442384/)
   - Source: https://truthsocial.com/@realDonaldTrump/116903339663442384
   - The Radical Left Lunatics, often referred to as Dumocrats, have lost control of their Party. They are being led by loud and unattractive people who have totally lost their way. Hop...
