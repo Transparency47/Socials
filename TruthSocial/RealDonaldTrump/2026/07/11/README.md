@@ -1,7 +1,22 @@
 # TruthSocial / RealDonaldTrump / 2026-07-11
 
-- Posts: 18
+- Posts: 23
 
+- [22:56 UTC - Truth Social post 116903810555788410](116903810555788410/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116903810555788410
+  - _No text content captured._
+- [22:56 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116903805619949346](116903809790696608/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116903809790696608
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116903805619949346
+- [22:55 UTC - Truth Social post 116903805619949346](116903805619949346/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116903805619949346
+  - _No text content captured._
+- [22:28 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116903700547339247](116903701258945277/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116903701258945277
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116903700547339247
+- [22:28 UTC - Truth Social post 116903700547339247](116903700547339247/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116903700547339247
+  - _No text content captured._
 - [22:07 UTC - Truth Social post 116903617004321449](116903617004321449/)
   - Source: https://truthsocial.com/@realDonaldTrump/116903617004321449
   - _No text content captured._
