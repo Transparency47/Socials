@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-11
 
-- Posts: 11
+- Posts: 12
 
+- [16:23 UTC - Maggot Hagerman has covered me incorrectly for ten years. Her book is a joke! 90% of it is...](116902264897167883/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116902264897167883
+  - Maggot Hagerman has covered me incorrectly for ten years. Her book is a joke! 90% of it is Fake News. She has made a living off her bad reporting, and will pay the price when our M...
 - [12:17 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116901293654083857](116901297125942108/)
   - Source: https://truthsocial.com/@realDonaldTrump/116901297125942108
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116901293654083857
