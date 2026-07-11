@@ -10,7 +10,8 @@
     "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle."
+    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=ZOgCEjVSsi0: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=ZOgCEjVSsi0! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=ZOgCEjVSsi0&ei=KmtSav_MA5Clir4Pla6XuAs&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1783811482&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=918F1EF1A81F701F3E75797A35F4EAAB55FA4C83.7DB30941DAE767D89A00391E56F22C2B431828A9&key=yt8&kind=asr&lang=en&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -10276,6 +10277,17 @@
       "published": "2026-07-10T20:24:08+00:00",
       "title": "\ud83e\udd2b",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7660997673704557837"
+    },
+    "tiktok:whitehouse:7661301935684783374": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-07-11T16:11:16.953817+00:00",
+      "path": "TikTok/WhiteHouse/2026/07/11/7661301935684783374",
+      "platform": "tiktok",
+      "post_id": "7661301935684783374",
+      "published": "2026-07-11T16:04:54+00:00",
+      "title": "Boss.",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7661301935684783374"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
