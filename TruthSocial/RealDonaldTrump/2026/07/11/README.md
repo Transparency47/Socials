@@ -1,7 +1,25 @@
 # TruthSocial / RealDonaldTrump / 2026-07-11
 
-- Posts: 3
+- Posts: 9
 
+- [04:07 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) 1000 Missiles are Locked ...](116899369667899641/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116899369667899641
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) 1000 Missiles are Locked and Loaded and aimed at the Islamic Republic of Iran, with thousands of more to immediatel...
+- [04:04 UTC - I was able to cut a MUCH BETTER DEAL for America, and by so doing, will be allowing the ne...](116899360552761411/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116899360552761411
+  - I was able to cut a MUCH BETTER DEAL for America, and by so doing, will be allowing the new and spectacular Gordie Howe International Bridge, spanning Detroit and Windsor, Ontario,...
+- [03:25 UTC - Truth Social post 116899205527599897](116899205527599897/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116899205527599897
+  - _No text content captured._
+- [03:18 UTC - 1000 Missiles are Locked and Loaded and aimed at the Islamic Republic of Iran, with thousa...](116899176820572671/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116899176820572671
+  - 1000 Missiles are Locked and Loaded and aimed at the Islamic Republic of Iran, with thousands of more to immediately follow, should the Iranian Government act on its threat, pronou...
+- [02:24 UTC - Truth Social post 116898966439455831](116898966439455831/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116898966439455831
+  - _No text content captured._
+- [02:17 UTC - Jack Smith’s team may have exposed classified info while probing Trump for allegedly doing...](116898940297902797/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116898940297902797
+  - Jack Smith’s team may have exposed classified info while probing Trump for allegedly doing the same: [https:// justthenews.com/government/con gress/jack-smiths-team-may-have-expose...
 - [00:43 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116898569732588886](116898570615667187/)
   - Source: https://truthsocial.com/@realDonaldTrump/116898570615667187
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116898569732588886
