@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-12
 
-- Posts: 9
+- Posts: 10
 
+- [22:12 UTC - [https://www. youtube.com/watch?v=55mGpfhO-l g](https://www.youtube.com/watch?v=55mGpfhO-l...](116909300964979990/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116909300964979990
+  - [https://www. youtube.com/watch?v=55mGpfhO-l g](https://www.youtube.com/watch?v=55mGpfhO-lg)
 - [20:00 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Thank you to Ben Domenech...](116908781848543413/)
   - Source: https://truthsocial.com/@realDonaldTrump/116908781848543413
   - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Thank you to Ben Domenech, for all of the great things he has been saying. We’re doing well. Our Country has never...
