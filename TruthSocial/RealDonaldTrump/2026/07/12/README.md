@@ -1,7 +1,25 @@
 # TruthSocial / RealDonaldTrump / 2026-07-12
 
-- Posts: 3
+- Posts: 9
 
+- [20:00 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Thank you to Ben Domenech...](116908781848543413/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116908781848543413
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Thank you to Ben Domenech, for all of the great things he has been saying. We’re doing well. Our Country has never...
+- [20:00 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) In honor of the remarkabl...](116908781708997194/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116908781708997194
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) In honor of the remarkable life and achievements of Senator Lindsey Graham, a dear friend of mine, and a truly grea...
+- [19:55 UTC - Truth Social post 116908761396454362](116908761396454362/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116908761396454362
+  - _No text content captured._
+- [19:55 UTC - Truth Social post 116908760894915302](116908760894915302/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116908760894915302
+  - _No text content captured._
+- [19:55 UTC - Truth Social post 116908760345852543](116908760345852543/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116908760345852543
+  - _No text content captured._
+- [19:54 UTC - Truth Social post 116908755653709814](116908755653709814/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116908755653709814
+  - _No text content captured._
 - [18:50 UTC - Thank you to Ben Domenech, for all of the great things he has been saying. We’re doing wel...](116908506444196312/)
   - Source: https://truthsocial.com/@realDonaldTrump/116908506444196312
   - Thank you to Ben Domenech, for all of the great things he has been saying. We’re doing well. Our Country has never been stronger, and it’s nice to be recognized! More importantly,...
