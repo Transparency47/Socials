@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-07-13
 
-- Posts: 43
+- Posts: 46
 
+- [19:59 UTC - It is my Great Honor to endorse America First Patriot, Dr. John Cowan, who is running to r...](116914437675973643/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116914437675973643
+  - It is my Great Honor to endorse America First Patriot, Dr. John Cowan, who is running to represent the Wonderful People of Georgia’s 11th Congressional District! A Proven Leader, J...
+- [19:45 UTC - Nobody knows Henry Cuellar better than Donald J. Trump. I studied his records, learned abo...](116914384616098938/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116914384616098938
+  - Nobody knows Henry Cuellar better than Donald J. Trump. I studied his records, learned about his financing, and listened to his two wonderful daughters beg me to help the mother an...
+- [19:35 UTC - It is my Great Honor to endorse America First Patriot and Highly Respected Jenny Costa Hon...](116914346797303834/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116914346797303834
+  - It is my Great Honor to endorse America First Patriot and Highly Respected Jenny Costa Honeycutt, who is running to represent the fantastic people of South Carolina’s 1st Congressi...
 - [18:45 UTC - President Trump will be making a Speech to the Nation on Thursday evening, at 9 P.M. Easte...](116914147668764804/)
   - Source: https://truthsocial.com/@realDonaldTrump/116914147668764804
   - President Trump will be making a Speech to the Nation on Thursday evening, at 9 P.M. Eastern. Thank you for your attention to this matter!
