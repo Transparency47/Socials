@@ -1,0 +1,578 @@
+<!-- source: https://www.youtube.com/watch?v=C_Y-udVHdb4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: C_Y-udVHdb4 -->
+<!-- date_published: 2026-07-13T22:09:22+00:00 -->
+<!-- date_accessed: 2026-07-13T23:34:14.095819+00:00 -->
+
+# Transcript: President Trump Signs an Executive Order, Jul. 13, 2026
+
+- [00:01.520] governor of Utah and we have a lot of
+- [00:03.360] other very high representatives from
+- [00:05.839] Utah, at least mostly from Utah. And
+- [00:08.720] we're doing something very dramatic and
+- [00:10.800] very important for the people of Utah,
+- [00:12.639] the people of our country because many
+- [00:14.160] people use it. We're terminating certain
+- [00:16.880] monuments. They call it monuments, not
+- [00:18.560] the ones we have outside, but these are
+- [00:20.720] large thousands of acres. It's a total
+- [00:23.359] of almost 3 million acres and we're
+- [00:26.800] going to be discussing it. But uh in
+- [00:29.119] fact, I think we'll start discussing it
+- [00:30.560] right now before I sign. After that,
+- [00:32.719] we're going to be signing two documents
+- [00:35.360] that are close to a million and a half
+- [00:37.120] acres each. And governor, do you want to
+- [00:39.360] say a few words about what we're doing
+- [00:40.800] and explain it to the press?
+- [00:43.120] >> Yeah. Well, thank you, Mr. President.
+- [00:44.719] This is a big day for uh for for Utah.
+- [00:47.200] Um the the president did something very
+- [00:49.200] similar several years ago during his
+- [00:50.879] first term. Of course, the monuments
+- [00:52.480] were re-expanded under the past
+- [00:54.800] administration and and this matters to
+- [00:56.800] Utah. We believe that under the
+- [00:58.160] Antiquities Act, it's very clear that
+- [01:00.879] that these uh these monument
+- [01:02.239] designations are supposed to be the
+- [01:03.600] smallest area possible to uh to protect
+- [01:07.040] the uh the antiquities and uh these uh
+- [01:10.000] these multi-million acre monuments that
+- [01:12.560] are bigger than the the state of
+- [01:14.000] Delaware certainly do not fit that that
+- [01:16.720] designation. Now, we care. We definitely
+- [01:19.360] care about protecting these antiquities
+- [01:21.680] and will continue to do so. The problem
+- [01:24.159] is with these giant monument
+- [01:25.600] designations, there are no resources
+- [01:27.280] that come with those. We have nine
+- [01:29.119] monuments in Utah. Seven of them are
+- [01:31.600] around 700 acres to 7,000 acres. That's
+- [01:34.640] what this was meant to be. Um, not
+- [01:36.880] millions of acres as as what happened
+- [01:38.880] with uh with Grand Staircase Escalani
+- [01:41.040] and uh and Bear's Ears. And so we're
+- [01:42.960] grateful that the president has uh has
+- [01:45.040] made a determination that we need to
+- [01:46.720] rightsize these monuments. Again, this
+- [01:48.560] does not remove the other protections
+- [01:50.320] that already exist in those areas, just
+- [01:52.560] making the monuments more manageable so
+- [01:54.799] that we have the resources necessary to
+- [01:57.040] uh to continue to protect these
+- [01:58.399] antiquities. I know we have the the uh
+- [02:00.079] the deputy secretary of the department
+- [02:02.479] of interior here with us. K. Is there
+- [02:03.920] anything you'd like to add?
+- [02:04.719] >> I'll just say um the antiquities act is
+- [02:07.119] 120 years old, but the first monument
+- [02:09.200] that was created was only 1,200 acres.
+- [02:12.000] So, if you think about it, since then,
+- [02:14.480] uh, President Clinton, President Obama,
+- [02:16.560] and President Biden have increased the
+- [02:18.480] acreage in the state of Utah and locked
+- [02:20.480] those acres up over 3 million acres.
+- [02:23.280] >> So, nobody to use, right? You can't do
+- [02:25.280] anything. You can't go hunting. You
+- [02:27.200] can't go fishing. You can't do anything.
+- [02:29.520] You can virtually not even walk on it.
+- [02:32.239] >> That's exactly right, sir. So, you were
+- [02:33.840] remedying that time.
+- [02:34.640] >> I remember. I do remember. I have a
+- [02:36.480] great memory.
+- [02:37.120] >> And, Mr. Mr. President, I know Senator
+- [02:38.400] Lee
+- [02:38.560] >> and this is actually better than the
+- [02:39.840] first time what we're doing.
+- [02:41.360] >> It is better. Yeah, Senator Lee's been
+- [02:43.040] very involved, I know, in conversing
+- [02:44.480] with you.
+- [02:45.040] >> Good. That's true. Mike,
+- [02:46.959] >> smallest area compatible with the
+- [02:49.440] objects to be protected. That's always
+- [02:52.080] been the standard under the Antiquities
+- [02:54.160] Act. President Biden, President Clinton,
+- [02:57.360] and President Obama overlooked that
+- [02:59.440] standard. President Trump is fixing it
+- [03:01.200] today.
+- [03:03.200] >> You had Thanks, Mike. You had something
+- [03:04.879] to say. I thought that was very
+- [03:06.800] >> Celeste.
+- [03:07.680] >> Well, I I think it's worth noting for
+- [03:09.280] the press in the room that both of these
+- [03:10.879] monuments were created over the
+- [03:13.200] unanimous opposition of Utah's federal
+- [03:15.760] delegation, our governors, um
+- [03:18.560] >> county commissioners,
+- [03:19.360] >> the county commissioners, the the locals
+- [03:21.280] who are worried about losing multiple
+- [03:23.200] uses on these federal lands. Um, and
+- [03:26.080] we're standing here with the governor,
+- [03:27.840] the speaker of the Utah House, the
+- [03:29.680] entire Utah federal delegation
+- [03:32.159] supporting a president listening to the
+- [03:34.400] people of Utah and saying, "We know you
+- [03:37.120] value this land. You want it used for
+- [03:39.120] multiple use and not locked up." Uh, and
+- [03:41.760] so this is a very different process than
+- [03:44.159] how the monuments were created.
+- [03:46.159] >> Well, they took the land away from the
+- [03:48.000] people. Quite honest, it was ridiculous.
+- [03:49.920] And I remember Orin Hatch before he
+- [03:52.799] passed away who was a great guy who's a
+- [03:54.720] friend of mine and he felt so strongly
+- [03:56.879] about this and we signed and then they
+- [03:59.120] terminated it after they got in office
+- [04:01.680] which was crazy and we're putting it
+- [04:04.239] back but we're actually giving more than
+- [04:06.319] we did the first time back to the people
+- [04:08.080] of Utah. Please go ahead.
+- [04:10.560] >> Couldn't say it better than repres
+- [04:13.439] I think people don't understand Utah is
+- [04:15.599] over twothirds owned by the federal
+- [04:17.840] government. These counties where these
+- [04:19.759] monuments are at are over 90% federal
+- [04:22.320] land. When people make decisions about
+- [04:25.440] this 2,000 miles away, you can see how
+- [04:27.680] that steps on the local people who only
+- [04:30.240] control about 5 or 10% of the land with
+- [04:32.720] local government. So, not only do you
+- [04:35.040] have all these dynamics, you have a an
+- [04:37.520] economy. You can't you can't pay road,
+- [04:40.240] you can't build schools, you can't pay
+- [04:41.840] fire uh people, police department
+- [04:43.840] because of this dynamic of 95% federal
+- [04:46.320] lands. The other part of that is Utons
+- [04:49.120] will tell you they love these lands.
+- [04:51.280] They manage them better than people
+- [04:53.040] 2,000 miles away. So if this is about
+- [04:55.280] good management, it really should be
+- [04:56.880] done in Utah by people who have
+- [04:58.960] demonstrated over decades and decades
+- [05:01.120] and decades and generations that they're
+- [05:03.280] good managers of this land.
+- [05:05.440] >> Great job. Well said. Anybody? No,
+- [05:09.039] >> you're leaving. I can't believe it.
+- [05:10.560] >> Very we're excited.
+- [05:11.440] >> I can't believe it. You're excited.
+- [05:12.880] Where are you going from here?
+- [05:14.000] >> Well, can I say this? First of all, uh
+- [05:15.759] we uh we sat down with the previous
+- [05:17.280] administration and and said, "Don't we
+- [05:18.960] just work this out so we don't have to
+- [05:20.000] keep going back and forth? Just work
+- [05:21.440] with us."
+- [05:22.320] >> Uh and we promise if we didn't that we
+- [05:24.400] once we have the power, we're going to
+- [05:25.759] make sure the people's voices are heard.
+- [05:27.440] So, thank you for helping us keep our
+- [05:29.199] promise and unfortunately the last
+- [05:30.880] administration did not understand that
+- [05:32.880] this would happen one day. So, thank you
+- [05:34.400] so much.
+- [05:35.039] >> Great honor. Let's sign.
+- [05:38.080] This is very nice. I'm very happy about
+- [05:40.320] this and better than the first time.
+- [05:54.320] Okay, here's number one.
+- [06:04.160] Okay, number two. Here you go. Go. Thank
+- [06:07.600] you.
+- [06:11.520] Almost 3 million acres
+- [06:14.400] going to be well taken care of now.
+- [06:26.880] Okay.
+- [06:29.520] Uh Pen, who should I give this to? Huh?
+- [06:32.080] Maybe the governor's representative,
+- [06:33.840] right? And Mike, how about taking one?
+- [06:36.080] Right.
+- [06:36.400] >> Thank you. So,
+- [06:38.800] we've done something that was, I think,
+- [06:41.840] very desperately needed. It was very
+- [06:43.759] unfair to the people of Utah. And now
+- [06:46.400] fairness has been brought back. It's
+- [06:48.880] going to be better taken care of, and
+- [06:51.680] they'll be able to use it a little bit.
+- [06:54.000] So, there's something very nice about
+- [06:55.600] that.
+- [06:56.720] >> Okay.
+- [06:57.520] >> Thank you, Mr. President.
+- [06:58.560] >> Thank you.
+- [07:04.400] >> You have any questions about this? First
+- [07:06.000] of all, most importantly, anybody want
+- [07:08.000] to talk about that?
+- [07:08.960] >> I've got one I've got one on Iran, too,
+- [07:11.199] but I'll start with this. Just you you
+- [07:13.199] said that 70% of the land was federal.
+- [07:16.240] Um, was there any other way to turn this
+- [07:18.639] around? How is it that that I guess my
+- [07:21.520] question is how how did it get there? If
+- [07:23.280] if it's a state,
+- [07:24.160] >> go ahead. You want to discuss that,
+- [07:25.520] please?
+- [07:28.160] the the land ownership is what it is.
+- [07:31.280] But under the Antiquities Act 120 years
+- [07:34.240] ago, Congress made the decision to give
+- [07:36.720] presidents the power to designate by
+- [07:39.199] executive proclamation
+- [07:41.599] certain land as monument. It was
+- [07:44.240] supposed to be the smallest area
+- [07:45.919] compatible with the objects to be
+- [07:48.800] protected in connection with that. Now,
+- [07:51.120] initially, as the deputy secretary of
+- [07:52.800] the interior explained a minute ago,
+- [07:54.400] that meant a few hundred, maybe a
+- [07:56.080] thousand or two acres at the most. These
+- [07:58.560] are 3 million acres. As I explained to
+- [08:00.960] President Biden, that's two Delawarees.
+- [08:03.280] Uh, it's been abused. And so, it it was
+- [08:06.319] done by executive action. President
+- [08:07.919] Trump is right sizing it to bring it in
+- [08:09.919] compliance with what the law says.
+- [08:12.080] >> And Mr. President, just on Iran, um, you
+- [08:14.879] have said now to Congress that we are
+- [08:16.560] back at war. How long do you expect this
+- [08:18.560] to take? And what's the legal basis?
+- [08:20.479] >> What? Take what?
+- [08:21.280] >> The war.
+- [08:22.319] >> Well, I think it's going very fast.
+- [08:23.759] We've demolished their military. We're
+- [08:25.840] hitting them very hard. We had a deal
+- [08:28.240] yesterday or the day before. Yesterday,
+- [08:29.919] it was all done and then they broke up
+- [08:32.000] that deal immediately because they found
+- [08:33.839] out there was something in the deal they
+- [08:35.200] didn't like and they're wired
+- [08:37.120] differently and we're not going to put
+- [08:38.959] up with it. Uh we are just going
+- [08:41.279] forward. We're attacking them tonight.
+- [08:43.919] and we're taking out all of their
+- [08:45.360] capability for uh anything having to do
+- [08:48.000] with the straight with the harmless
+- [08:49.279] straight and I think in the end uh we
+- [08:51.680] will end up just controlling the whole
+- [08:54.800] thing
+- [08:55.600] >> and what they're doing is being very
+- [08:57.360] foolish, very stupid and they've treated
+- [08:59.200] people horribly. They killed 52,000
+- [09:02.080] protesters so far that we can determine
+- [09:04.959] it might be more than that but 52,000
+- [09:07.200] protesters have been killed and it's
+- [09:10.080] really terrible situation.
+- [09:13.120] We'll have it under control very
+- [09:14.399] quickly.
+- [09:14.800] >> You mentioned that you're going to quick
+- [09:16.399] follow. You mentioned Wait a minute
+- [09:17.600] wait. Just hold on one second.
+- [09:19.760] >> Wait, Jeff.
+- [09:20.399] >> I'm sorry. I was ask Be nice, Jeff. Go
+- [09:22.399] ahead, please.
+- [09:23.279] >> Thank you, Mr. President.
+- [09:24.320] >> Teach him to be nice.
+- [09:25.760] >> Thank you, Mr. President. On your
+- [09:27.120] presidency, so a lot of us here actually
+- [09:29.120] witnessed a miracle two years ago today
+- [09:31.360] as we were on the ground covering your
+- [09:33.200] rally in Butler, Pennsylvania. You said
+- [09:35.279] a lot of times that you believe that God
+- [09:37.279] has saved your life. Has there been a
+- [09:39.760] moment throughout your presidency so far
+- [09:41.839] where you thought this is why God kept
+- [09:44.240] you here?
+- [09:45.839] >> Well, we're doing a lot. You know, we
+- [09:47.600] have a country that I I use the
+- [09:49.440] expression make America great again. And
+- [09:51.360] we've done far more than anyone thought
+- [09:53.279] possible, including maybe even me. We've
+- [09:55.680] done things that are unreal. At $19.2
+- [09:58.320] trillion, the money being invested in
+- [10:00.720] our country is more than any country has
+- [10:03.040] ever had by many times. We have uh
+- [10:06.240] trillions of dollars coming in because
+- [10:07.920] of the tariffs and the proper use of
+- [10:09.760] tariffs because all all of the things I
+- [10:12.240] think because of the election November
+- [10:13.760] 5th was a very important day. When you
+- [10:16.399] look at the military, we have the
+- [10:17.680] strongest military in the world. We
+- [10:19.200] rebuilt it largely during my first term
+- [10:21.120] and uh we have recruitment now. We're
+- [10:23.440] setting records in recruitment. We had
+- [10:25.920] uh if you go back to the campaign when I
+- [10:28.160] used to talk about it, the last
+- [10:30.320] administration, they couldn't recruit
+- [10:31.920] soldiers. We needed soldiers in every
+- [10:34.480] single branch of our military and that
+- [10:36.720] included police and firemen. Nobody
+- [10:38.720] wanted to do anything having to do with
+- [10:40.240] the uniform in this country because they
+- [10:42.240] weren't proud of the country and now the
+- [10:43.839] people are very very proud to be an
+- [10:45.839] American. Our country is doing
+- [10:47.680] phenomenally well. We're respected all
+- [10:50.079] over the world. If I go no matter where
+- [10:51.760] I go, we just got back from NATO and I
+- [10:54.160] think you saw the response. It was like
+- [10:56.160] a very beautiful thing actually. It was
+- [10:58.000] a total total response. Totally positive
+- [11:00.560] response. uh no matter where we go,
+- [11:02.959] we're respected again. Maybe respected
+- [11:05.040] more than ever before. So, I appreciate
+- [11:07.279] the question, but uh that's pretty uh
+- [11:09.760] pretty much it.
+- [11:10.959] >> Mr. President, thank you. Cameron Arim
+- [11:12.880] with town hall. I was curious about our
+- [11:15.040] reports about Iranian drones in Cuba.
+- [11:18.720] There are concerns about that. Where
+- [11:20.720] does the relationship with the US stand
+- [11:22.399] there? Is military intervention still on
+- [11:24.480] the table there?
+- [11:25.279] >> Well, if they do have that, and they
+- [11:26.720] might very well have that, we'll take
+- [11:28.160] care of it. Marco is just in the other
+- [11:29.760] room. And if they do have that, we'll
+- [11:32.000] take care of it in short order. Uh we're
+- [11:34.560] we're not going to have a problem. We're
+- [11:35.920] not going to allow that to happen. So it
+- [11:37.920] could be that they're storing some.
+- [11:39.680] We're looking into it now. It could be
+- [11:41.440] so and it maybe isn't,
+- [11:43.360] >> but we'll figure it out fast.
+- [11:44.399] >> And what are you expected to speak about
+- [11:45.920] on Thursday, you think?
+- [11:47.680] >> Uh I'm going to speak on Thursday. We
+- [11:50.160] were thinking one of the nights, but
+- [11:51.680] this has been such a busy news day today
+- [11:53.760] with all that's happening. A lot of very
+- [11:55.760] positive things have happened, including
+- [11:57.360] the uh Indie. We're going to have an
+- [11:59.200] Indie race. uh as you know in 41 days
+- [12:02.720] and that's going to be incredible around
+- [12:04.480] the capital around down Pennsylvania
+- [12:06.240] Avenue. It's going to be something they
+- [12:07.680] have 250,000 tickets ordered. It'll be
+- [12:10.560] like UFC which set every record in the
+- [12:13.519] book for for that business which is the
+- [12:16.320] business of fighting. Uh so we have the
+- [12:18.720] indie cars coming and it's going to be
+- [12:20.240] great. And I just while we're talking I
+- [12:22.320] have to pay on behalf of Mike and myself
+- [12:24.320] and I think everybody standing behind me
+- [12:26.639] very strongly. And I want to pay my
+- [12:27.920] respects to Lindsay who was our friend.
+- [12:30.000] He was a friend of all of us. He was a
+- [12:32.639] great guy. He was a great politician
+- [12:34.240] actually. And uh it's hard to believe
+- [12:36.720] he's gone. Spoke to me just before he
+- [12:38.880] passed away just to say hello. He got
+- [12:41.440] back. He felt fine. He was a little
+- [12:43.040] tired. And then this uh whole thing
+- [12:46.160] happened. And it's h boy it's tough. So,
+- [12:50.000] the flags are at half half mask until uh
+- [12:53.680] Saturday evening, which is an extended
+- [12:56.639] period of time, you know, generally
+- [12:58.240] speaking, but I think he deserves it.
+- [13:00.480] And he is a he's a fantastic person. It
+- [13:03.360] just he was a fantastic man. He was
+- [13:05.600] actually a great politician. He got
+- [13:07.760] along with almost everybody. And when he
+- [13:10.079] didn't get along, they knew it. He was
+- [13:12.720] he was tough, but he was he was a good
+- [13:15.440] man. He was very much in favor of the
+- [13:17.440] Save America Act. He called me about
+- [13:19.279] that. We were talking about that and
+- [13:21.200] some other things, but he he just felt
+- [13:23.440] tired and but he felt fine. And then
+- [13:27.120] this horrible thing happened just a
+- [13:28.880] short time afterwards. So, it was
+- [13:30.560] terrible. I just want to pay our
+- [13:32.160] respects.
+- [13:32.639] >> Mr. President, Mr. President,
+- [13:34.480] >> you mentioned that Iran has agreed to to
+- [13:37.440] a deal and then walked away from it.
+- [13:39.519] Have you reached the conclusion that a
+- [13:42.399] negotiated settlement won't be able to
+- [13:44.800] happen?
+- [13:45.200] >> No, I never reached that conclusion, but
+- [13:47.120] we're hitting them very heavy tonight.
+- [13:48.720] As you know, we're hitting them. We have
+- [13:50.399] tremendous amounts of ammunition. We
+- [13:52.399] have numbers that we haven't had in
+- [13:54.639] years and we're hitting them very hard
+- [13:56.720] and it'll continue and we'll see what
+- [13:58.639] happens. But we're knocking out all of
+- [14:00.800] their offensive capability.
+- [14:03.120] Uh, and we're controlling the straits.
+- [14:05.760] We're putting the blockade back. And
+- [14:07.600] it's a blockade, not for anybody but
+- [14:09.120] Iran. In other words, anybody doing
+- [14:10.880] business with Iran can't go through.
+- [14:12.320] Everyone else will be able to go
+- [14:13.920] through. So, it's a blockade. It's a
+- [14:15.600] very strong blockade. The blockade was
+- [14:17.920] probably more effective even than
+- [14:19.519] hitting them. But I think the
+- [14:20.639] combination is the thing that that
+- [14:22.560] really does.
+- [14:23.279] >> But you think a deal is still possible?
+- [14:24.959] You think they'll return to the
+- [14:25.920] >> Yeah, I think a deal is possible. Sure.
+- [14:27.360] I do.
+- [14:28.079] >> But Mr. President, you noted the United
+- [14:29.600] States is bombing Iran again. I mean,
+- [14:31.360] that you've been bombing Iran for months
+- [14:33.040] now. Is this just the new normal for the
+- [14:35.199] American?
+- [14:35.519] >> No. Well, you know, we're in Vietnam for
+- [14:37.279] 19 years. We're here for four months.
+- [14:39.440] So, I think we've done a lot. We've
+- [14:41.040] knocked out their navy in a period of
+- [14:43.199] one month. We knocked out their air
+- [14:45.120] force. Their air force is non-existent.
+- [14:46.959] We knocked out most of their missiles,
+- [14:49.120] most of their drones. We knocked out
+- [14:50.720] their drone manufacturing capability
+- [14:53.279] about 92%. Their missile capability for
+- [14:57.279] manufacturing we knocked out 89%.
+- [15:00.880] Uh, and they have a little capability,
+- [15:02.720] but they don't have any capability for
+- [15:04.320] us. This is almost a military skirmish.
+- [15:08.000] Now, with all of that being said, you
+- [15:10.160] have to get people that uh want to make
+- [15:12.160] something. We had a deal with them two
+- [15:13.680] days ago, and then they said, "Oh, we
+- [15:16.160] can't make that deal. We have to
+- [15:17.440] negotiate it further." And this is what
+- [15:19.600] they've done for 47 years. The
+- [15:22.240] difference is nobody negotiated like I
+- [15:24.880] do. And this should have been done by
+- [15:27.760] Bush and Obama and Biden and people
+- [15:31.120] before them. Frankly, it's 47 years
+- [15:33.839] they've been ripping off everybody and
+- [15:36.000] really hurt again, killing thousands of
+- [15:37.760] people. So, they killed 52,000
+- [15:40.240] protesters, but they killed many, many
+- [15:43.360] people with Solommani, who I killed in
+- [15:45.680] the first term. Salamani killed many
+- [15:47.920] people. Many, many people. And not only
+- [15:50.399] killed, when you see a young former
+- [15:53.440] soldier walking around with no legs, no
+- [15:55.279] arms, a face that's been horribly,
+- [15:58.399] horribly hurt, uh that was done by Iran.
+- [16:01.519] And that was done by Solomi who was a
+- [16:05.120] person that was very evil. He was an
+- [16:06.959] evil genius. He was looking to take out
+- [16:09.199] a lot of our military installations in
+- [16:11.120] Iraq and Iran. And I got him before he
+- [16:14.160] got us. So we have to do what we're
+- [16:17.360] doing. And the straight is open. It will
+- [16:19.920] be open. We've cut down their capability
+- [16:22.800] very substantially, but they, you know,
+- [16:24.480] they're going to fight for a while. Uh
+- [16:26.800] our military has done a fantastic job.
+- [16:29.600] And you know the bottom line though, and
+- [16:31.519] I say it to everybody and I say it as
+- [16:33.839] much as they want to listen, Iran will
+- [16:35.440] not have a nuclear weapon. If we didn't
+- [16:37.839] bomb them with the B2 bombers, that
+- [16:39.680] plane right there, if we didn't bomb
+- [16:41.839] them, they would have had a nuclear
+- [16:44.480] weapon long ago. One month within one
+- [16:47.199] month from the day we bombed them, they
+- [16:48.880] would have had, if we didn't do it, they
+- [16:50.079] would have had a nuclear weapon. If they
+- [16:52.079] had a nuclear weapon, Israel would no
+- [16:54.399] longer be with us. and the Middle East
+- [16:56.560] probably would no longer be with us
+- [16:58.160] because you saw they sent missiles to
+- [17:00.480] five different countries that never even
+- [17:02.399] knew they were involved because they're
+- [17:04.640] stone cold. They are crazy
+- [17:07.600] >> and we're not going to put it up. Yeah,
+- [17:08.959] I want to be reimbured because we're
+- [17:11.120] protecting a very rich portion of the
+- [17:13.280] world. We're spending money and so what
+- [17:15.520] we've done is we are going to be
+- [17:17.199] reimbursed for protection. We're
+- [17:18.959] protecting by the countries that we're
+- [17:21.679] uh helping. For instance, you look at
+- [17:24.160] the five countries. You have Saudi
+- [17:25.679] Arabia, you have uh UAE, you have Qatar
+- [17:29.600] or Qatar as I always say, you have
+- [17:31.360] Qatar, Bahrain, and by the way, you have
+- [17:34.400] others. You have Kuwait and you have
+- [17:36.400] others. And they will do very well, but
+- [17:39.840] we think it's appropriate that we don't
+- [17:41.840] need them. You know, we have more oil
+- [17:43.039] than any other country in the world.
+- [17:44.320] When you add Venezuela has which has
+- [17:46.640] been amazing when you which has
+- [17:48.960] tremendous amounts of oil that we
+- [17:50.799] control. When you add Venezuela and
+- [17:53.120] everything else, we have more than 50%
+- [17:55.440] of the world supply. We don't need it,
+- [17:57.440] but we need it from the standpoint of
+- [17:59.120] protecting allies, etc., etc., including
+- [18:01.200] Israel, including Saudi Arabia,
+- [18:03.200] including Qatar, including uh UAE. We're
+- [18:07.280] protecting all of them, and we've done a
+- [18:09.760] very effective job. So, four months ago,
+- [18:12.559] these people had military that was very
+- [18:16.000] strong, by far the strongest probably in
+- [18:18.480] the Middle East. They were called the
+- [18:20.160] bully of the Middle East. Now they don't
+- [18:22.080] have a navy. They have 159 ships
+- [18:24.160] underwater. They had a total of 159
+- [18:26.480] ships. Now every one of them is
+- [18:28.400] underwater. They had 230 airplanes,
+- [18:32.000] attack planes. They're all gone. They're
+- [18:34.080] all They're gone. They had tremendous
+- [18:36.640] radar. It's all gone. They had
+- [18:38.240] tremendous anti-aircraft. It's all gone.
+- [18:41.360] Uh sadly, their leadership is all gone.
+- [18:43.919] They had their first tier leaders are
+- [18:46.080] all dead. Their second tier ladies are
+- [18:48.240] all dead. their third tier tier leaders
+- [18:50.480] who we're dealing with more or less. Uh
+- [18:53.200] some of them are already gone. Uh and
+- [18:56.000] then you read fake news like your your
+- [18:57.840] network CNN which is fake news. You read
+- [19:00.799] them you have them say well actually
+- [19:02.960] aren't they doing quite well? Let me
+- [19:04.480] just tell you they have now inflation of
+- [19:06.640] over 300%. Four months ago they had
+- [19:09.520] inflation of 5%. Now they're at over 300
+- [19:12.799] could be 350%.
+- [19:15.120] Uh they made a deal. They broke it
+- [19:19.280] probably 10 times and they killed a lot
+- [19:22.559] of people. They killed our people, but
+- [19:24.480] the protesters what they've done to the
+- [19:26.240] protesters. 52,000.
+- [19:29.440] Have you ever seen any of the burial
+- [19:31.120] lots where they're doing where they're
+- [19:32.320] burying the protesters? They killed
+- [19:34.400] 52,000 protesters. And on my watch, they
+- [19:38.480] can't do any of that. So we have them in
+- [19:40.960] a position that they don't have any
+- [19:43.200] military. There's not a thing they can
+- [19:45.200] do about it. All they have is fake news.
+- [19:47.520] Because they have the fake news would
+- [19:49.039] rather see us lose the war than win the
+- [19:52.240] war, which is really treasonous. Which
+- [19:54.480] is really treasonous in a certain way.
+- [19:56.720] Uh so we're doing another very major
+- [19:59.039] attack tonight. Uh they want to make a
+- [20:01.360] deal. They came back. We made a deal two
+- [20:03.120] days ago and they want to make a deal.
+- [20:04.880] They've been negotiating for 47 years,
+- [20:07.679] but nobody's ever hit them militarily.
+- [20:09.919] We're hitting them very hard. Thank you
+- [20:11.520] very much, everybody. Thank you.
+- [20:16.640] >> Thank you.
+- [20:18.640] >> Thank you press. Thank you. Thank you.
+- [20:20.799] Thank you. Thank you. Thank you. Thank
+- [20:23.679] you guys. Thank you so much.
+- [20:25.760] >> We're talking about we're talking about
+- [20:28.799] decide very soon on that.
+- [20:30.080] >> Thank you guys. Keep going.
+- [20:31.039] >> Thank you guys. Keep going. Thank you.
+- [20:32.799] Thank you guys. Thank you. Thank you.
