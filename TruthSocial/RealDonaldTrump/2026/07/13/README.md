@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-13
 
-- Posts: 51
+- Posts: 52
 
+- [22:34 UTC - Lindsey Graham: The senator, soldier and statesman who never backed down: [https:// nypost...](116915049881228384/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116915049881228384
+  - Lindsey Graham: The senator, soldier and statesman who never backed down: [https:// nypost.com/2026/07/12/opinion/ lindsey-graham-the-senator-soldier-and-statesman-who-never-backed...
 - [21:15 UTC - It is my Great Honor to endorse Highly Respected State Senator, Brent Taylor, who is runni...](116914738999171811/)
   - Source: https://truthsocial.com/@realDonaldTrump/116914738999171811
   - It is my Great Honor to endorse Highly Respected State Senator, Brent Taylor, who is running to represent the Incredible People of Tennessee’s 9th Congressional District. Brent is...

@@ -10,7 +10,8 @@
     "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle."
+    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=C_Y-udVHdb4: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=C_Y-udVHdb4! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -10342,6 +10343,17 @@
       "published": "2026-07-13T19:00:41+00:00",
       "title": "Want to see our new car? \ud83e\udd2b\ud83c\uddfa\ud83c\uddf8",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7662089424192245005"
+    },
+    "tiktok:whitehouse:7662141186978630925": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-07-13T22:36:49.873007+00:00",
+      "path": "TikTok/WhiteHouse/2026/07/13/7662141186978630925",
+      "platform": "tiktok",
+      "post_id": "7662141186978630925",
+      "published": "2026-07-13T22:21:26+00:00",
+      "title": "2 years since the assassination attempt on President Trump in Butler, PA - A reminder to f...",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7662141186978630925"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -124401,6 +124413,17 @@
       "published": "2026-07-13T21:15:40.683000+00:00",
       "title": "It is my Great Honor to endorse Highly Respected State Senator, Brent Taylor, who is runni...",
       "url": "https://truthsocial.com/@realDonaldTrump/116914738999171811"
+    },
+    "truthsocial:realdonaldtrump:116915049881228384": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-13T22:36:39.815436+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/13/116915049881228384",
+      "platform": "truthsocial",
+      "post_id": "116915049881228384",
+      "published": "2026-07-13T22:34:44.369000+00:00",
+      "title": "Lindsey Graham: The senator, soldier and statesman who never backed down: [https:// nypost...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116915049881228384"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
