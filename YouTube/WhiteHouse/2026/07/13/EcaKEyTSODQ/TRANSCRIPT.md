@@ -1,0 +1,416 @@
+<!-- source: https://www.youtube.com/watch?v=EcaKEyTSODQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: EcaKEyTSODQ -->
+<!-- date_published: 2026-07-13T18:22:26+00:00 -->
+<!-- date_accessed: 2026-07-13T19:16:09.122050+00:00 -->
+
+# Transcript: President Trump Participates in a Freedom 250 Grand Prix Showcase
+
+- [00:09.040] Ladies and gentlemen, the President of
+- [00:10.960] the United States, Donald J. Trump.
+- [01:05.199] on the street.
+- [01:07.840] my
+- [01:09.360] chances
+- [01:15.840] manise
+- [01:20.640] so many times it happens too fast
+- [01:24.960] you change your passion for glory
+- [01:29.439] >> don't lose your grip on the dreams of
+- [01:32.159] the past you must fight just to keep
+- [01:35.280] them
+- [01:37.600] deep outside the fight. Rising up to the
+- [01:43.520] challenge of our
+- [01:48.640] place
+- [01:58.079] again.
+- [02:01.280] >> Thank you very much everybody. What an
+- [02:03.119] honor.
+- [02:04.640] And we have that great music. We love
+- [02:06.320] great music. We have Roger with me. Won
+- [02:08.800] 20 Indianapolis 500s. That's not bad. He
+- [02:12.480] was given the Presidential Medal of
+- [02:15.200] Freedom by me when he won 17 and he just
+- [02:18.160] kept winning. It's not supposed to work
+- [02:19.599] that way, right? We thought he stopped,
+- [02:21.680] but he won. And he's amazing. He's been
+- [02:23.599] my friend for a long time. But I'm
+- [02:24.879] thrilled to be here with some of the
+- [02:27.040] most extraordinary figures in the
+- [02:29.520] history of motorsports and any sport if
+- [02:32.160] you think about it. As we countd down to
+- [02:33.920] the Freedom 250 Grand Prix, this will be
+- [02:36.959] like no other race ever. I don't think
+- [02:39.360] anything will ever beat will ever top
+- [02:41.680] what we're going to be having. It just
+- [02:44.160] happened with UFC. It got the highest
+- [02:45.920] ratings of any fight in history. This
+- [02:47.680] will get the highest ratings of any such
+- [02:49.920] race. It'll be one of the most
+- [02:52.000] unforgettable racing events the world
+- [02:53.920] has ever seen. And we have the most
+- [02:56.239] talented people. These people have a lot
+- [02:57.920] of courage on my right. I don't want to
+- [02:59.519] do what they did. You could teach me,
+- [03:01.599] but it still takes something special,
+- [03:03.360] right? You're very I know every one of
+- [03:05.360] you. What a what a great job you've
+- [03:07.440] done. I want to thank Secretary of
+- [03:09.040] Transportation Sean Duffy, who's
+- [03:11.280] phenomenal guy. He's doing a great job.
+- [03:15.440] Doing a great job. and the very very
+- [03:18.959] legendary Roger Pensky who is uh I mean
+- [03:22.959] there's nobody like him I can't imagine
+- [03:25.360] in the history of racing or maybe any
+- [03:28.239] other sport to be honest with you. Roger
+- [03:31.040] Pensky, the uh president of Pensky
+- [03:34.000] Corporation, Bud Danker. I want to
+- [03:36.560] introduce Bud. Thank you very much Bud.
+- [03:38.560] What a great job. CEO of Fox Sports,
+- [03:41.760] Eric Shanks. Thank you very much, Eric.
+- [03:45.200] It's going to get a lot of R. Are you
+- [03:46.720] prepared for this kind of rating? I
+- [03:48.239] don't know. It's going to be a big
+- [03:49.680] rating. You're gonna have the president
+- [03:51.920] of General Motors, Mark Reyce, and say
+- [03:55.040] hello to Mary and everybody. She's
+- [03:56.720] fantastic person. It's a great company.
+- [03:58.560] It's a hot company. We just ordered a
+- [04:00.239] lot of Escalades for security purposes.
+- [04:03.200] And uh we do a lot of business with with
+- [04:06.640] General Electric and they're actually
+- [04:08.000] going now in the weapons making
+- [04:09.519] business. And I think you do better with
+- [04:11.040] that than you did even in the cars. So,
+- [04:13.439] I want to thank you very much, Mark, and
+- [04:16.479] incredible indie car drivers, Alex Palo,
+- [04:20.880] Felix Rosenquist, and David Malucas. And
+- [04:25.440] I've watched all three of you recently
+- [04:27.040] do very well. Thank you. Very well.
+- [04:29.360] Better you than me. I don't want to I
+- [04:31.600] don't want to go 250 miles an hour with
+- [04:34.000] a two inches separating my car. I don't
+- [04:36.320] want to do that. But what you've done
+- [04:38.479] was incredible. of the last couple of
+- [04:40.400] races. Unprecedented events will take
+- [04:43.360] place next month right here in our
+- [04:45.759] nation's capital on August 22nd and
+- [04:48.000] 23rd. It'll be an awesome display of
+- [04:50.800] American patriotism and raw horsepower
+- [04:53.919] and ingenuity.
+- [04:55.840] You're seeing you're going to see cars
+- [04:57.280] at the level that they've never been at
+- [04:59.440] before with cars racing more than 190
+- [05:02.639] miles and even higher than that down
+- [05:04.400] Pennsylvania Avenue. It wasn't exactly
+- [05:07.199] designed for that. But what Sean Duffy's
+- [05:09.440] done with these incredible, brilliant
+- [05:11.680] people is really amazing. It's going to
+- [05:14.240] be a sight for the ages. It really will
+- [05:16.960] be something special. And they're going
+- [05:18.880] to go all around the National Mall at
+- [05:21.840] speeds that are not quite if we did that
+- [05:23.840] during the regular day, I think people
+- [05:26.000] would be put in jail perhaps for the
+- [05:27.600] rest of their lives, right? It wasn't
+- [05:30.240] supposed to be that way. But it's going
+- [05:31.759] to be beautiful. It's going to be a
+- [05:33.120] beautiful a beautiful thing to watch.
+- [05:35.520] And this is the first racing event of
+- [05:37.199] its kind in Washington DC's history
+- [05:40.000] happening as part of our great
+- [05:41.520] celebration of the 250th anniversary of
+- [05:45.360] American freedom. The American people
+- [05:47.120] are invited to come watch this once in
+- [05:49.680] a-lifetime total event and Roger and
+- [05:52.639] General Motors and Fox and everybody
+- [05:54.960] else. I will say it's free. We thought
+- [05:58.720] they thought maybe we could, you know,
+- [06:00.560] they'd get so much money. This is a
+- [06:02.400] ticket. You're probably having second
+- [06:04.000] thoughts. She said, "Well, I could we
+- [06:05.440] could have made a fortune." No, it's
+- [06:07.520] free. Totally free. And it's uh
+- [06:10.800] something they're doing for the country.
+- [06:13.039] Uh the country is doing incredibly well.
+- [06:15.199] We've never done this well. We're
+- [06:16.400] respected all over the world now and
+- [06:19.440] respected like never before. We have I
+- [06:22.160] was telling Roger before, we have $19.2
+- [06:24.720] trillion dollars being invested in the
+- [06:27.360] United States of America by other people
+- [06:29.199] and countries. We've no country in the
+- [06:31.039] world has ever had anything like that.
+- [06:33.360] and plants and factories and
+- [06:35.600] everything's being right now built as we
+- [06:37.759] speak being built all over the country.
+- [06:39.840] There's never been any country that's as
+- [06:42.479] hot as we are right now. In addition to
+- [06:45.039] that, we have the strongest military in
+- [06:47.039] the world. You saw that with Venezuela.
+- [06:48.800] You're seeing that right now with Iran.
+- [06:51.039] For 47 years around 47 years in a row,
+- [06:53.840] they were pushing people around. They're
+- [06:56.000] not pushing us around. We're pushing
+- [06:57.520] them around. The Penske team held more
+- [07:00.400] than 80 meetings in 90 days on Capitol
+- [07:03.199] Hill to get this event to happen. This
+- [07:05.520] is over a period of years and nothing
+- [07:08.000] happened. And when they came to see,
+- [07:09.520] they said when they came to see the
+- [07:11.199] president, what did we work it out? In
+- [07:13.120] about 15 minutes it was done. And we
+- [07:15.120] picked a better track. We actually
+- [07:17.360] picked they went into something that was
+- [07:19.199] not as good. And uh well, they were
+- [07:22.479] dealing with Democrats. What can I tell
+- [07:24.080] you? But it wasn't as good. And I I said
+- [07:27.120] to the group, I said, "Is this the exact
+- [07:29.840] track that you want?" And they said,
+- [07:31.440] "You just can't do better than
+- [07:32.880] Pennsylvania, haven't you, when you
+- [07:34.240] think of it?" And that's going to be the
+- [07:36.160] straightaway. It's going to be
+- [07:37.280] fantastic. This event is following in
+- [07:39.759] the footsteps of that event that I just
+- [07:42.479] mentioned, the UFC event, which we
+- [07:44.960] hosted, Dana White, who's a fantastic
+- [07:47.039] man. What he's done, the great job. And
+- [07:49.520] this will be equally as breathtaking.
+- [07:51.280] The air show that we're going to have uh
+- [07:53.520] is going to be along with the car is
+- [07:55.440] going to be something. We did the
+- [07:56.560] greatest air show I think ever on July
+- [07:58.720] 4th. They've never seen planes at that
+- [08:00.960] level. It was really quite a time. And
+- [08:04.000] then we had a an event and there was
+- [08:06.479] rain and everybody was told to leave.
+- [08:08.960] There was lightning and they didn't
+- [08:10.240] leave. And I said, "We can't not do it."
+- [08:12.319] So we went back. I said, "Everybody,
+- [08:13.919] let's come back." And we ended up we had
+- [08:16.319] 425,000 people when we started and they
+- [08:20.479] were think of that it was a number much
+- [08:22.560] bigger than ever anticipated. And then
+- [08:24.879] everybody was told to go home and I
+- [08:26.479] heard about that. I said no way. So we
+- [08:28.800] called them all back. We ended up with
+- [08:30.720] 152,000 people. It was uh it was
+- [08:34.479] actually made hotter. This was made
+- [08:36.479] better and hotter by bad weather,
+- [08:38.399] believe it or not. I said I don't care
+- [08:40.399] if I have to make the speech at 2:00 in
+- [08:42.320] the morning. It doesn't matter. But on
+- [08:44.480] our 250th anniversary, America deserves
+- [08:47.279] the greatest celebration in the history
+- [08:49.040] of our country, in the history of the
+- [08:51.200] world. And I think this is it. And this
+- [08:52.959] is really a big part of the crescendo.
+- [08:55.600] So next month, these exceptional
+- [08:57.519] sportsmen, drivers, athletes, they're
+- [08:59.519] great athletes. Nothing nothing nobody
+- [09:02.480] can do. They're born with something very
+- [09:04.320] special. They're born with an ability to
+- [09:06.640] press that pedal all the way down to the
+- [09:08.480] ground. Most people can't do that. Very
+- [09:10.800] few people can. But their beautiful cars
+- [09:13.279] are going to make uh freedom raw. This
+- [09:15.839] will be a freedom that's roaring like
+- [09:18.480] never before. So I'd like to now just
+- [09:20.399] ask Shawn Duffy. This guy Sean is
+- [09:23.040] exceptional. And you know what people
+- [09:25.360] don't know? He was the world record in
+- [09:28.720] going up logs, going up to the top of
+- [09:31.120] these stupid trees. I never saw anything
+- [09:33.200] like And Sean had how many years were
+- [09:35.200] you the champion of that? Five.
+- [09:37.200] >> Five.
+- [09:37.760] >> For five years he was the world
+- [09:39.279] champion. He was the lumberjack. Who the
+- [09:41.279] hell knew that about Shawn Duffy? And
+- [09:43.360] that because I like champions. He was
+- [09:45.120] the world champion for five years. Going
+- [09:48.000] up a tree and coming down. He said going
+- [09:49.760] up wasn't bad bad. Coming down was very
+- [09:52.399] dangerous.
+- [09:53.519] >> He he broke his back a couple of times.
+- [09:56.080] Little things like that. But he was the
+- [09:58.080] world champion at that. Climbing the
+- [10:00.399] tree uh for uh five separate times. And
+- [10:04.640] you know I respect we respect great
+- [10:07.040] champions and athletes. So you wouldn't
+- [10:09.200] believe it. That's my man. I I heard
+- [10:11.519] I've known that for a long time. And
+- [10:13.600] he's married to Rachel who's an
+- [10:15.120] incredible woman. She's a very big SE
+- [10:18.000] success on television and we love their
+- [10:19.839] family. We love him. So, I'd like to ask
+- [10:22.160] Sean to say a few words and then Roger
+- [10:24.800] Pence is going to speak and then we're
+- [10:26.880] going to be given a display of uh how to
+- [10:30.399] turn how to put tires on a car very
+- [10:32.640] quickly. So, you're going to have a good
+- [10:34.240] time. Thank you very much everybody.
+- [10:35.920] Thank you.
+- [10:39.279] Well, first, uh, thank you, Mr.
+- [10:40.880] President. Um, as, uh, the Secretary of
+- [10:43.519] Transportation, uh, Lumberjack Sports,
+- [10:45.760] we used to move logs down rivers, uh,
+- [10:47.760] one of the first modes of
+- [10:48.640] transportation. So, uh, it's fitting.
+- [10:51.040] Thank you for the job. But it's great to
+- [10:52.880] be here with with two legends. One
+- [10:55.279] legend uh, in presidential history, but
+- [10:57.839] another legend, Roger Pensky, um, in
+- [11:00.480] motorsports history uh, for this great
+- [11:02.640] uh, this great day. And uh just a little
+- [11:04.959] history that the president mentioned. Um
+- [11:07.760] the Department of Transportation was
+- [11:09.440] working with Fox Sports and the Penskys
+- [11:12.000] and Bud Danker was working the hill and
+- [11:14.000] he did he had over 80 meetings on the
+- [11:15.760] hill trying to make this event happen
+- [11:18.720] because when you think about America
+- [11:20.480] 250, you also uh think about uh cars and
+- [11:24.880] when you think about cars, you do think
+- [11:26.079] about freedom. This all goes together.
+- [11:28.240] And uh we had some people uh who were
+- [11:31.440] creating problems for us on the hill. Um
+- [11:34.320] not your team, Mr. President. The other
+- [11:35.920] team was creating problems. And so you
+- [11:38.160] don't go to the president with a half
+- [11:39.600] halfbaked uh idea. But uh we hit a
+- [11:43.040] roadblock and I I I I called Roger. I
+- [11:46.880] said, "Roger, you got to call the
+- [11:48.399] president and tell him about this great
+- [11:50.000] idea and can he move this forward?" And
+- [11:52.560] the president's right. It was one phone
+- [11:54.079] call and the president said, "Done.
+- [11:56.240] We're gonna we're gonna celebrate
+- [11:57.519] America 250 with an Indie car race uh
+- [12:00.320] for the first time in the US capital.
+- [12:02.640] And so I I I appreciate that, Mr.
+- [12:04.560] President, for all uh you have done to
+- [12:06.560] make this event happen. It would not be
+- [12:08.399] going on unless we had presidential
+- [12:10.639] engagement. And I I I agree the UFC
+- [12:13.760] fight was remarkable. Uh but America's
+- [12:16.800] birthday doesn't end on the 4th of July.
+- [12:20.079] Um our birthday continues for the uh
+- [12:22.639] coming year. And so to continue to
+- [12:24.480] celebrate America 250, it would only
+- [12:27.120] make sense that uh we would do that with
+- [12:28.959] this road race. It's going to be August
+- [12:31.279] 23rd. Uh the tickets are free. I uh the
+- [12:34.880] weather's not going to be 100° in DC.
+- [12:37.120] It's I'm thinking like 75 maybe in
+- [12:39.760] August. Um my mouth to God's ears. Um
+- [12:43.680] but we hope everyone comes and checks
+- [12:45.279] out this race. Uh and um it's going to
+- [12:48.160] be epic. And to the racers, I got to go
+- [12:50.880] around the Indie track at
+- [12:53.600] 75 miles an hour and that felt like it
+- [12:56.079] was really fast. These guys are going
+- [12:57.760] 200 250 around the track athletes. So to
+- [13:00.959] have you all here and to have the cars
+- [13:02.560] here is uh is fantastic. And again, just
+- [13:05.920] finally, Mr. President, um thank you for
+- [13:08.160] your leadership. You don't do anything
+- [13:10.480] uh that's small. Everything you do is
+- [13:12.399] big. It's huge. It's the best. It's the
+- [13:14.480] greatest. whether it's the UFC fight or
+- [13:17.279] an indie car race in the Capitol, uh we
+- [13:19.680] appreciate your leadership. Um, America
+- [13:21.839] loves you and thank you for making this
+- [13:23.440] happen.
+- [13:23.839] >> Thank you very much.
+- [13:29.200] >> Thank you, Mr. Secretary, and welcome
+- [13:31.839] everybody here today. It's an honor for
+- [13:33.839] me, Mr. President, to be here and be
+- [13:36.560] part of this celebration. When you think
+- [13:39.120] about 250 years of this country, it's an
+- [13:42.639] amazing time. It's a great place to
+- [13:44.639] live. It's a great place to work. And I
+- [13:47.760] think we're fortunate to have the most
+- [13:50.399] important office in the world give us
+- [13:53.279] the green light and then the checkered
+- [13:55.760] flag to have this event in August. Think
+- [13:58.800] about it. Over 250,000 people signed up
+- [14:02.959] to come to this event. And we will be
+- [14:05.360] able to accommodate a 100,000 each of
+- [14:08.560] the two days. And it's for free as the
+- [14:10.800] president said. But we're honored. I
+- [14:13.600] think it's an opportunity to showcase
+- [14:17.279] the technology, the speed, the
+- [14:20.480] partnerships, and the athletes that make
+- [14:23.600] such a difference. We think about the
+- [14:25.920] Indie 500 as an iconic race, but this is
+- [14:29.519] going to move right up there next to it
+- [14:31.199] as far as we're concerned from the
+- [14:32.959] standpoint of the best in the world. So,
+- [14:35.519] Mr. President, thank you again for this
+- [14:37.839] opportunity. And I think we have a
+- [14:39.920] special helmet for you. Am I right,
+- [14:42.079] Alex?
+- [14:42.639] >> We do.
+- [14:50.079] >> We We hope you will wear that when
+- [14:52.160] you're riding around in the beast
+- [14:54.959] leading the field. Come to the green
+- [14:58.000] flag again. Thank you, sir Bud Danker.
+- [15:01.199] >> Thank you very much.
+- [15:03.760] >> Thank you, Roger. Thank you, Secretary
+- [15:05.920] Duffy. I also want to thank and
+- [15:07.600] recognize Ambassador Crowley over here
+- [15:09.279] as well, Monica Crowley, our ambassador
+- [15:11.199] of protocol, has been a partner of mine
+- [15:12.720] in this whole journey, Mayor Bowser. But
+- [15:15.279] importantly, the president of the United
+- [15:17.120] States, as as he mentioned, I was on
+- [15:19.120] Capitol Hill for several months and
+- [15:21.360] trying to get the race around that that
+- [15:23.440] racetrack. But you know what? It didn't
+- [15:25.279] happen. And things happen for the best,
+- [15:27.360] don't they? God chose us to have a
+- [15:29.199] different path here. And that path was
+- [15:30.959] to bring this race down around the
+- [15:32.560] National Mall. Secretary Burham support,
+- [15:35.120] the mayor's support, and of course, as
+- [15:37.040] as the president said, within 24 hours
+- [15:40.079] of this idea changing onto the city
+- [15:42.560] streets. We had an executive order in my
+- [15:45.120] inbox to review, and then four days
+- [15:47.600] later, I was in his office here to sign
+- [15:49.440] it. I want to thank Eric Shanks, CEO of
+- [15:51.519] Spock Sports. It was Eric Shanks and my
+- [15:53.759] idea to bring this vision to our
+- [15:56.399] capital. And in 41 short days, you're
+- [16:00.800] going to see the remarkable athletes
+- [16:02.639] competing for the one and only trophy
+- [16:05.040] that they're ever going to possibly see
+- [16:06.720] here. And that's the trophy to celebrate
+- [16:08.720] our country. Mark Royce from General
+- [16:10.480] Motors. These are his beauties out here.
+- [16:12.800] This car over here, by the way, has,250
+- [16:16.399] horsepower. And this will pace our field
+- [16:18.880] to the green flag 41 days from now. So,
+- [16:23.360] Mr. President, thank you again for your
+- [16:26.000] support. Thank you again for your
+- [16:27.759] leadership. Thank you again for your
+- [16:29.440] vision. With that, I'm going to have our
+- [16:31.759] driver, David Malucas, start that car.
+- [16:34.240] You're going to see this amazing pit
+- [16:35.759] crew here from team Pensky change four
+- [16:38.320] tires, fuel in about 6.5 seconds. Let's
+- [16:42.800] see it, guys.
+- [16:51.440] Heat.
+- [17:12.480] Heat.
+- [17:40.559] There you go.
+- [17:55.039] on the grid.
+- [17:55.919] >> There you go. What do you think?
+- [17:59.039] >> What do you think 41 days from now, Mr.
+- [18:02.240] President?
+- [18:05.679] >> So, just I want to thank everybody for
+- [18:08.480] being here. Our country is great. Our
+- [18:11.039] country is strong, powerful, respected
+- [18:13.120] again like never before. And I'll see
+- [18:15.280] you in 41 days or sooner. Thank you very
+- [18:17.600] much everybody. Thank you. Thank you
+- [18:19.600] very much.

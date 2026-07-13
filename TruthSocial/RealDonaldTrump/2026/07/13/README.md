@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-13
 
-- Posts: 42
+- Posts: 43
 
+- [18:45 UTC - President Trump will be making a Speech to the Nation on Thursday evening, at 9 P.M. Easte...](116914147668764804/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116914147668764804
+  - President Trump will be making a Speech to the Nation on Thursday evening, at 9 P.M. Eastern. Thank you for your attention to this matter!
 - [14:43 UTC - I recommended, to Governor Henry McMaster, Lindsey Graham’s wonderful sister, Darline, to ...](116913198631392475/)
   - Source: https://truthsocial.com/@realDonaldTrump/116913198631392475
   - I recommended, to Governor Henry McMaster, Lindsey Graham’s wonderful sister, Darline, to serve as interim Senator from the Great State of South Carolina. This would be a fabulous...
