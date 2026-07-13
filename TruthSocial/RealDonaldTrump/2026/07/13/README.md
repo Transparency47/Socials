@@ -1,7 +1,22 @@
 # TruthSocial / RealDonaldTrump / 2026-07-13
 
-- Posts: 46
+- Posts: 51
 
+- [21:15 UTC - It is my Great Honor to endorse Highly Respected State Senator, Brent Taylor, who is runni...](116914738999171811/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116914738999171811
+  - It is my Great Honor to endorse Highly Respected State Senator, Brent Taylor, who is running to represent the Incredible People of Tennessee’s 9th Congressional District. Brent is...
+- [21:11 UTC - It is my Great Honor to endorse Highly Respected Hempstead Town Receiver, Jeanine Driscoll...](116914722414782536/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116914722414782536
+  - It is my Great Honor to endorse Highly Respected Hempstead Town Receiver, Jeanine Driscoll, who is running to represent the tremendous people of New York’s 4th Congressional Distri...
+- [21:05 UTC - It is my Great Honor to endorse Porter County Commissioner, Barb Regnitz, who is running t...](116914697761678481/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116914697761678481
+  - It is my Great Honor to endorse Porter County Commissioner, Barb Regnitz, who is running to represent the incredible people of Indiana’s 1st Congressional District! A very successf...
+- [20:42 UTC - It is my Great Honor to endorse America First Patriot, Anthony DiLorenzo, who is running t...](116914607131724482/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116914607131724482
+  - It is my Great Honor to endorse America First Patriot, Anthony DiLorenzo, who is running to represent the fantastic people of New Hampshire’s 1st Congressional District! As a very...
+- [20:41 UTC - It is my Great Honor to endorse MAGA Warrior, Steve Toth, who is running to represent the ...](116914606172298586/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116914606172298586
+  - It is my Great Honor to endorse MAGA Warrior, Steve Toth, who is running to represent the Tremendous People of Texas’ 2nd Congressional District! A Highly Respected State Legislato...
 - [19:59 UTC - It is my Great Honor to endorse America First Patriot, Dr. John Cowan, who is running to r...](116914437675973643/)
   - Source: https://truthsocial.com/@realDonaldTrump/116914437675973643
   - It is my Great Honor to endorse America First Patriot, Dr. John Cowan, who is running to represent the Wonderful People of Georgia’s 11th Congressional District! A Proven Leader, J...
