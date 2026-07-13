@@ -1,7 +1,40 @@
 # TruthSocial / RealDonaldTrump / 2026-07-13
 
-- Posts: 3
+- Posts: 14
 
+- [13:13 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116912842477536948](116912843319311977/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912843319311977
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116912842477536948
+- [13:13 UTC - Truth Social post 116912842477536948](116912842477536948/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912842477536948
+  - _No text content captured._
+- [13:08 UTC - RT [@ jmclghln](https://truthsocial.com/@jmclghln) Voters favor 56% to 28% requiring citiz...](116912825130233110/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912825130233110
+  - RT [@ jmclghln](https://truthsocial.com/@jmclghln) Voters favor 56% to 28% requiring citizenship and voter ID over protecting the filibuster [@ realDonaldTrump](https://truthsocial...
+- [13:08 UTC - Bill O’Reilly Warns Republicans They’ll Get ‘Slaughtered’ in Midterms if They Shun Trump: ...](116912823820678738/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912823820678738
+  - Bill O’Reilly Warns Republicans They’ll Get ‘Slaughtered’ in Midterms if They Shun Trump: [https://www. mediaite.com/media/bill-oreill y-warns-republicans-theyll-get-slaughtered-in...
+- [13:07 UTC - FBI agents descend on Skid Row in massive voter fraud probe after stunning claims of elect...](116912819521603597/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912819521603597
+  - FBI agents descend on Skid Row in massive voter fraud probe after stunning claims of election bribery: [https:// nypost.com/2026/06/18/us-news/ fbi-agents-probe-las-skid-row-in-vot...
+- [13:07 UTC - ‘America is back’: Trump kicks off Great American State Fair with flyovers, patriotic Nati...](116912817965245012/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912817965245012
+  - ‘America is back’: Trump kicks off Great American State Fair with flyovers, patriotic National Mall speech: [https://www. foxnews.com/politics/america-b ack-trump-kicks-off-great-a...
+- [13:07 UTC - Trump touts US as 'hottest country' at Great American State Fair rally: [https://www. usat...](116912817451345008/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912817451345008
+  - Trump touts US as 'hottest country' at Great American State Fair rally: [https://www. usatoday.com/story/news/usa250 /2026/06/24/trump-rally-dc-great-american-state-fair--live/9066...
+- [13:06 UTC - Trump kicks off Great American State Fair celebrating America’s 250th anniversary: ‘The be...](116912816060661558/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912816060661558
+  - Trump kicks off Great American State Fair celebrating America’s 250th anniversary: ‘The best is yet to come’: [https:// nypost.com/2026/06/24/us-news/ trump-says-the-best-is-yet-to...
+- [13:06 UTC - PRESIDENT TRUMP KICKS OFF AMERICA’S 250TH ANNIVERSARY CELEBRATION WITH NATIONAL MALL RALLY...](116912815211197067/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912815211197067
+  - PRESIDENT TRUMP KICKS OFF AMERICA’S 250TH ANNIVERSARY CELEBRATION WITH NATIONAL MALL RALLY: [https://www. rsbnetwork.com/news/president- trump-kicks-off-americas-250th-anniversary-...
+- [13:06 UTC - Trump opens US 250th birthday party with rally-style speech: [https://www. breitbart.com/n...](116912814470765683/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912814470765683
+  - Trump opens US 250th birthday party with rally-style speech: [https://www. breitbart.com/news/trump-opens -us-250th-birthday-party-with-rally-style-speech/](https://www.breitbart.c...
+- [13:05 UTC - Trump Opens America 250 With National Mall Rally: [https://www. newsmax.com/newsfront/dona...](116912813425065594/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912813425065594
+  - Trump Opens America 250 With National Mall Rally: [https://www. newsmax.com/newsfront/donald-t rump-great-american-state-fair-america-250/2026/06/24/id/1260815/](https://www.newsma...
 - [01:42 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116908044067369620](116910124906805108/)
   - Source: https://truthsocial.com/@realDonaldTrump/116910124906805108
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116908044067369620
