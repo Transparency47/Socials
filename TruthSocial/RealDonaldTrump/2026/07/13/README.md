@@ -1,7 +1,91 @@
 # TruthSocial / RealDonaldTrump / 2026-07-13
 
-- Posts: 14
+- Posts: 42
 
+- [14:43 UTC - I recommended, to Governor Henry McMaster, Lindsey Graham’s wonderful sister, Darline, to ...](116913198631392475/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116913198631392475
+  - I recommended, to Governor Henry McMaster, Lindsey Graham’s wonderful sister, Darline, to serve as interim Senator from the Great State of South Carolina. This would be a fabulous...
+- [14:26 UTC - In honor of Senator Lindsey Graham, a big supporter, the U.S. Senate should pass the Clari...](116913128333997026/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116913128333997026
+  - In honor of Senator Lindsey Graham, a big supporter, the U.S. Senate should pass the Clarity Act. China, and many other countries, would like to take complete and total control of...
+- [14:16 UTC - The Hormuz Strait is OPEN, and will remain OPEN, with or without Iran. We are reinstating ...](116913091653271692/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116913091653271692
+  - The Hormuz Strait is OPEN, and will remain OPEN, with or without Iran. We are reinstating the THE IRANIAN BLOCKADE, so named because it is only stopping Iran’s ships or customers f...
+- [13:20 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)](116912869564925327/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912869564925327
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+- [13:20 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) So sad!!! President DJT](116912869381633198/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912869381633198
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) So sad!!! President DJT
+- [13:20 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) 59% Approval Rating. Pric...](116912869257680045/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912869257680045
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) 59% Approval Rating. Prices coming down along with the lowering of oil and gas. Thank you! President DJT
+- [13:19 UTC - Reflecting Pool showing F-35s!](116912867728299923/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912867728299923
+  - Reflecting Pool showing F-35s!
+- [13:19 UTC - Thank you to the Great Dr. Phil. The Deep State never sleeps. [https://www. theepochtimes....](116912867207290616/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912867207290616
+  - Thank you to the Great Dr. Phil. The Deep State never sleeps. [https://www. theepochtimes.com/opinion/dont -mistake-the-messenger-for-the-message-on-the-question-of-trumps-intellig...
+- [13:19 UTC - To show the importance of the Slaughter Case, 90 years of precedent has been COMPLETELY AN...](116912866407413041/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912866407413041
+  - To show the importance of the Slaughter Case, 90 years of precedent has been COMPLETELY AND UNEQUIVOCALLY OVERRULED, greatly increasing Presidential Power at a time when it is most...
+- [13:19 UTC - BIG WIN at the Supreme Court, in the Slaughter Case, confirming Presidential Power in our ...](116912865913293381/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912865913293381
+  - BIG WIN at the Supreme Court, in the Slaughter Case, confirming Presidential Power in our Country to remove Executive Branch Officers and Agency Appointees, or Representatives, und...
+- [13:18 UTC - [https://www. 19fortyfive.com/2026/04/americ an-history-teaches-that-operation-epic-fury-i...](116912864476004058/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912864476004058
+  - [https://www. 19fortyfive.com/2026/04/americ an-history-teaches-that-operation-epic-fury-is-not-another-forever-war/](https://www.19fortyfive.com/2026/04/american-history-teaches-t...
+- [13:18 UTC - Truth Social post 116912861827394236](116912861827394236/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912861827394236
+  - _No text content captured._
+- [13:18 UTC - Truth Social post 116912860971339251](116912860971339251/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912860971339251
+  - _No text content captured._
+- [13:17 UTC - Truth Social post 116912860480738794](116912860480738794/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912860480738794
+  - _No text content captured._
+- [13:17 UTC - Truth Social post 116912859555817656](116912859555817656/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912859555817656
+  - _No text content captured._
+- [13:17 UTC - Truth Social post 116912858331417750](116912858331417750/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912858331417750
+  - _No text content captured._
+- [13:17 UTC - Truth Social post 116912857457251085](116912857457251085/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912857457251085
+  - _No text content captured._
+- [13:16 UTC - Truth Social post 116912856562734520](116912856562734520/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912856562734520
+  - _No text content captured._
+- [13:16 UTC - Truth Social post 116912855464064708](116912855464064708/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912855464064708
+  - _No text content captured._
+- [13:16 UTC - Truth Social post 116912854334388744](116912854334388744/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912854334388744
+  - _No text content captured._
+- [13:16 UTC - Truth Social post 116912853043581068](116912853043581068/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912853043581068
+  - _No text content captured._
+- [13:15 UTC - Truth Social post 116912852382202053](116912852382202053/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912852382202053
+  - _No text content captured._
+- [13:15 UTC - Truth Social post 116912851530470510](116912851530470510/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912851530470510
+  - _No text content captured._
+- [13:15 UTC - Truth Social post 116912849945452295](116912849945452295/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912849945452295
+  - _No text content captured._
+- [13:14 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116912846376370706](116912847808699662/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912847808699662
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116912846376370706
+- [13:14 UTC - Truth Social post 116912846376370706](116912846376370706/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912846376370706
+  - _No text content captured._
+- [13:14 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116912844137811907](116912845053209401/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912845053209401
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116912844137811907
+- [13:13 UTC - Truth Social post 116912844137811907](116912844137811907/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116912844137811907
+  - _No text content captured._
 - [13:13 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116912842477536948](116912843319311977/)
   - Source: https://truthsocial.com/@realDonaldTrump/116912843319311977
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116912842477536948
