@@ -1,7 +1,94 @@
 # TruthSocial / RealDonaldTrump / 2026-07-14
 
-- Posts: 4
+- Posts: 33
 
+- [15:30 UTC - Truth Social post 116919045881732277](116919045881732277/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116919045881732277
+  - _No text content captured._
+- [15:29 UTC - East Wing Northern Facade — A match for the White House!](116919039070193454/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116919039070193454
+  - East Wing Northern Facade — A match for the White House!
+- [15:23 UTC - Truth Social post 116919015567309913](116919015567309913/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116919015567309913
+  - _No text content captured._
+- [15:23 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116919014141252508](116919015096033790/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116919015096033790
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116919014141252508
+- [15:22 UTC - Truth Social post 116919014141252508](116919014141252508/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116919014141252508
+  - _No text content captured._
+- [15:21 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116919009421917400](116919010155828581/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116919010155828581
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116919009421917400
+- [15:21 UTC - Truth Social post 116919009421917400](116919009421917400/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116919009421917400
+  - _No text content captured._
+- [15:21 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116919005802587593](116919006734785738/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116919006734785738
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116919005802587593
+- [15:20 UTC - Truth Social post 116919005802587593](116919005802587593/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116919005802587593
+  - _No text content captured._
+- [15:18 UTC - Truth Social post 116918996334220371](116918996334220371/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116918996334220371
+  - _No text content captured._
+- [15:16 UTC - [https:// x.com/jaysonbuford/status/2030 479304228782448?s=46](https://x.com/jaysonbuford/...](116918987577161521/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116918987577161521
+  - [https:// x.com/jaysonbuford/status/2030 479304228782448?s=46](https://x.com/jaysonbuford/status/2030479304228782448?s=46)
+- [15:10 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116918963238538617](116918965046638537/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116918965046638537
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116918963238538617
+- [15:09 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116918849750053085](116918963238538617/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116918963238538617
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116918849750053085
+- [15:04 UTC - Oil is flowing like never before, thanks to the awesome Power of the United States Militar...](116918941071241802/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116918941071241802
+  - Oil is flowing like never before, thanks to the awesome Power of the United States Military. A special salute to Secretary of War, Pete Hegseth, Chairman of the Joint Chiefs of Sta...
+- [14:41 UTC - Truth Social post 116918849750053085](116918849750053085/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116918849750053085
+  - _No text content captured._
+- [14:40 UTC - [https:// x.com/zitosalena/status/206945 3791057834413?s=46](https://x.com/zitosalena/stat...](116918848692096863/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116918848692096863
+  - [https:// x.com/zitosalena/status/206945 3791057834413?s=46](https://x.com/zitosalena/status/2069453791057834413?s=46)
+- [14:35 UTC - Trump says he stopped California from rigging the gubernatorial race against Steve Hilton:...](116918826898528943/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116918826898528943
+  - Trump says he stopped California from rigging the gubernatorial race against Steve Hilton: [https://www. washingtonexaminer.com/news/wh ite-house/4621502/trump-stop-california-rigg...
+- [14:35 UTC - Trump touts U.S. economy and oil prices in a midterm pitch in Pennsylvania: [https://www. ...](116918825992948563/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116918825992948563
+  - Trump touts U.S. economy and oil prices in a midterm pitch in Pennsylvania: [https://www. nbcnews.com/politics/donald-tr ump/trump-touts-us-economy-oil-prices-midterm-pitch-pennsyl...
+- [14:34 UTC - President Trump Reiterates Support for ‘National Right to Carry’: [https://www. breitbart....](116918825177741284/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116918825177741284
+  - President Trump Reiterates Support for ‘National Right to Carry’: [https://www. breitbart.com/politics/2026/06 /23/president-trump-reiterates-support-national-right-carry/](https:/...
+- [14:34 UTC - Trump says he’s ‘working on’ national concealed-carry legislation: [https://www. washingto...](116918824297181736/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116918824297181736
+  - Trump says he’s ‘working on’ national concealed-carry legislation: [https://www. washingtonexaminer.com/news/wh ite-house/4621630/trump-says-working-on-national-concealed-carry-leg...
+- [14:34 UTC - Trump tells Pa. truck workers ‘fat drug’ prices coming down next week: ‘That alone should ...](116918823463345870/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116918823463345870
+  - Trump tells Pa. truck workers ‘fat drug’ prices coming down next week: ‘That alone should win the midterms’: [https:// nypost.com/2026/06/23/us-news/ trump-tells-pa-truck-workers-f...
+- [14:34 UTC - Trump claims military victory, points to economic progress in the wake of first-stage Iran...](116918822625387784/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116918822625387784
+  - Trump claims military victory, points to economic progress in the wake of first-stage Iran deal: [https://www. washingtontimes.com/news/2026/ jun/23/trump-claims-military-victory-p...
+- [14:33 UTC - Trump visits Mack Trucks plant in battleground Pennsylvania district to tout economic agen...](116918821787185529/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116918821787185529
+  - Trump visits Mack Trucks plant in battleground Pennsylvania district to tout economic agenda as midterms loom: [https://www. foxbusiness.com/politics/trump -visits-mack-trucks-plan...
+- [14:30 UTC - Truth Social post 116918809719545367](116918809719545367/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116918809719545367
+  - _No text content captured._
+- [14:29 UTC - [https://www. theguardian.com/commentisfree/ 2017/jan/12/polly-toynbee-1988-interview-dona...](116918803374853887/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116918803374853887
+  - [https://www. theguardian.com/commentisfree/ 2017/jan/12/polly-toynbee-1988-interview-donald-trump](https://www.theguardian.com/commentisfree/2017/jan/12/polly-toynbee-1988-intervi...
+- [14:28 UTC - Old clip of Trump talking about Iran in 1980 goes viral: [https:// wjla.com/news/nation-wo...](116918800567887958/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116918800567887958
+  - Old clip of Trump talking about Iran in 1980 goes viral: [https:// wjla.com/news/nation-world/old -clip-of-trump-talking-about-iran-in-1980-goes-viral-israel-pete-hegseth-middle-ea...
+- [14:28 UTC - Exclusive: Israel's Foreign Minister Saar Praises Trump, Remarkable Leadership: [https://w...](116918799810022242/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116918799810022242
+  - Exclusive: Israel's Foreign Minister Saar Praises Trump, Remarkable Leadership: [https://www. newsmax.com/newsmax-tv/israel- gideon-saar-donald-trump/2026/03/08/id/1248756/](https:...
+- [14:28 UTC - Man pleads guilty to false US citizenship claim on North Carolina voter form for 2024 elec...](116918798882646003/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116918798882646003
+  - Man pleads guilty to false US citizenship claim on North Carolina voter form for 2024 election: [https://www. wbtv.com/2026/03/09/man-pleads -guilty-false-us-citizenship-claim-nort...
+- [14:27 UTC - Trump donates $1 million to Mike Johnson for recordbreaking fundraiser:](116918797715425873/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116918797715425873
+  - Trump donates $1 million to Mike Johnson for recordbreaking fundraiser:
 - [13:55 UTC - Maria Bartiromo is FANTASTIC!!! President DJT](116918672411457945/)
   - Source: https://truthsocial.com/@realDonaldTrump/116918672411457945
   - Maria Bartiromo is FANTASTIC!!! President DJT
