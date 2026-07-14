@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-14
 
-- Posts: 34
+- Posts: 35
 
+- [23:15 UTC - Truth Social post 116920874171286529](116920874171286529/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116920874171286529
+  - _No text content captured._
 - [18:37 UTC - Todd Blanche is doing a PHENOMENAL job as Acting Attorney General of the United States. Un...](116919780125305335/)
   - Source: https://truthsocial.com/@realDonaldTrump/116919780125305335
   - Todd Blanche is doing a PHENOMENAL job as Acting Attorney General of the United States. Under Todd’s incredible leadership at DOJ, Murder is down to the LOWEST level since 1900, an...
