@@ -10,7 +10,8 @@
     "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle."
+    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "YouTube/WhiteHouse: ScrapeError: Could not fetch YouTube feed. https://www.youtube.com/feeds/videos.xml?user=WhiteHouse: HTTP 404; https://www.youtube.com/feeds/videos.xml?user=whitehouse: HTTP 404"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -124423,6 +124424,28 @@
       "published": "2026-07-13T22:34:44.369000+00:00",
       "title": "Lindsey Graham: The senator, soldier and statesman who never backed down: [https:// nypost...",
       "url": "https://truthsocial.com/@realDonaldTrump/116915049881228384"
+    },
+    "truthsocial:realdonaldtrump:116915815457371603": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-14T04:16:16.943826+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/14/116915815457371603",
+      "platform": "truthsocial",
+      "post_id": "116915815457371603",
+      "published": "2026-07-14T01:49:26.130000+00:00",
+      "title": "We drained the beautiful \u201cReflecting Pool\u201d today in order to fix the scars and damage that...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116915815457371603"
+    },
+    "truthsocial:realdonaldtrump:116916069165520996": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-14T04:16:16.943375+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/14/116916069165520996",
+      "platform": "truthsocial",
+      "post_id": "116916069165520996",
+      "published": "2026-07-14T02:53:57.413000+00:00",
+      "title": "ABC Fake News and its shaky anchor, David Muir, said that the Reflecting Pool was drained ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116916069165520996"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
