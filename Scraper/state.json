@@ -10,8 +10,7 @@
     "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: ScrapeError: Could not fetch YouTube feed. https://www.youtube.com/feeds/videos.xml?user=WhiteHouse: HTTP 404; https://www.youtube.com/feeds/videos.xml?user=whitehouse: HTTP 404"
+    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle."
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -170481,6 +170480,17 @@
       "published": "2026-01-21T19:49:26+00:00",
       "title": "President Trump Participates in a Pull Aside with the Secretary General of NATO",
       "url": "https://www.youtube.com/watch?v=HVMo1k3aBt0"
+    },
+    "youtube:whitehouse:HW0gv2dCHr0": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-14T08:54:42.071407+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/14/HW0gv2dCHr0",
+      "platform": "youtube",
+      "post_id": "HW0gv2dCHr0",
+      "published": "2026-07-14T01:56:56+00:00",
+      "title": "IndyCar Pit Stop at The White House",
+      "url": "https://www.youtube.com/watch?v=HW0gv2dCHr0"
     },
     "youtube:whitehouse:HWsKuI1yyl8": {
       "account": "WhiteHouse",
