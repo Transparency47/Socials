@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-07-15
 
-- Posts: 7
+- Posts: 9
 
+- [17:09 UTC - Amy Klobuchar, the lightly respected Senator from Minnesota, is running for Governor to ta...](116925095891363176/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116925095891363176
+  - Amy Klobuchar, the lightly respected Senator from Minnesota, is running for Governor to take the place of the current Corrupt and Incompetent Tim Walz. I have gotten to know Klobuc...
+- [17:01 UTC - It is my Great Honor to endorse MAGA Warrior, Michael Alfonso, a young “STAR” who is runni...](116925062992298605/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116925062992298605
+  - It is my Great Honor to endorse MAGA Warrior, Michael Alfonso, a young “STAR” who is running to represent the incredible people of Wisconsin’s 7th Congressional District. Michael i...
 - [16:39 UTC - One of the biggest Driving Forces in the Future for Jobs, are Data Centers. They are big, ...](116924979201330474/)
   - Source: https://truthsocial.com/@realDonaldTrump/116924979201330474
   - One of the biggest Driving Forces in the Future for Jobs, are Data Centers. They are big, strong, bold, and Money Machines for the State in which they are built. Governor Kathy Hoc...

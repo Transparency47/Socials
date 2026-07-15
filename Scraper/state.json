@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/99EwoMO2tXg: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=99EwoMO2tXg! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=99EwoMO2tXg&ei=M7pXaqn6I5_Ay_sP_qHEgQM&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1784159395&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=CDFFCD4CA99E0E9F927096C985FBF7C3DBEC831A.258D61A2DB6B32C93BBF21EADAB0993F57012EB8&key=yt8&kind=asr&lang=en&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/99EwoMO2tXg: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=99EwoMO2tXg! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=99EwoMO2tXg&ei=ActXar2-J4TEy_sP35O5wA8&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1784163697&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=736095F6B1C9B914E51E8C8B40898EC3A0A6DB02.ED77B308E24DA4605A127AA8893CE642710672AF&key=yt8&kind=asr&lang=en&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -10398,6 +10398,17 @@
       "published": "2026-07-15T14:28:41+00:00",
       "title": "TikTok post 7662761520622783775",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7662761520622783775"
+    },
+    "tiktok:whitehouse:7662801207437593870": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-07-15T18:01:32.888749+00:00",
+      "path": "TikTok/WhiteHouse/2026/07/15/7662801207437593870",
+      "platform": "tiktok",
+      "post_id": "7662801207437593870",
+      "published": "2026-07-15T17:02:44+00:00",
+      "title": "Patriotic all summer",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7662801207437593870"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -124974,6 +124985,28 @@
       "published": "2026-07-15T16:39:53.766000+00:00",
       "title": "One of the biggest Driving Forces in the Future for Jobs, are Data Centers. They are big, ...",
       "url": "https://truthsocial.com/@realDonaldTrump/116924979201330474"
+    },
+    "truthsocial:realdonaldtrump:116925062992298605": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-15T18:01:22.065576+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/15/116925062992298605",
+      "platform": "truthsocial",
+      "post_id": "116925062992298605",
+      "published": "2026-07-15T17:01:12.316000+00:00",
+      "title": "It is my Great Honor to endorse MAGA Warrior, Michael Alfonso, a young \u201cSTAR\u201d who is runni...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116925062992298605"
+    },
+    "truthsocial:realdonaldtrump:116925095891363176": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-15T18:01:22.064935+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/15/116925095891363176",
+      "platform": "truthsocial",
+      "post_id": "116925095891363176",
+      "published": "2026-07-15T17:09:34.318000+00:00",
+      "title": "Amy Klobuchar, the lightly respected Senator from Minnesota, is running for Governor to ta...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116925095891363176"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
