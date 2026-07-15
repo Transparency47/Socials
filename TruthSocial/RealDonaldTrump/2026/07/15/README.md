@@ -1,7 +1,22 @@
 # TruthSocial / RealDonaldTrump / 2026-07-15
 
-- Posts: 1
+- Posts: 6
 
+- [11:34 UTC - So cool!!! President DJT](116923778080121038/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116923778080121038
+  - So cool!!! President DJT
+- [11:31 UTC - Mike Lindell, the “Pillow Man,” and one of America’s greatest and most hard working Patrio...](116923765602106745/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116923765602106745
+  - Mike Lindell, the “Pillow Man,” and one of America’s greatest and most hard working Patriots, is running to be GOVERNOR OF MINNESOTA, replacing one of the worst and most incompeten...
+- [10:53 UTC - Sen. Lindsey Graham’s presidential relationship emblematic of Trump's willingness to mend ...](116923618784603444/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116923618784603444
+  - Sen. Lindsey Graham’s presidential relationship emblematic of Trump's willingness to mend fences: [https:// justthenews.com/government/whi te-house/graham-was-one-many-hatchets-tru...
+- [10:49 UTC - Great News for America! House passes Trump-supported bill to make daylight savings time pe...](116923602397013633/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116923602397013633
+  - Great News for America! House passes Trump-supported bill to make daylight savings time permanent: [https:// justthenews.com/government/con gress/house-passes-trump-supported-bill-...
+- [10:45 UTC - The men and women of ICE are doing a GREAT job, one that has to be done. CRIME IS WAY DOWN...](116923585931908111/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116923585931908111
+  - The men and women of ICE are doing a GREAT job, one that has to be done. CRIME IS WAY DOWN IN AMERICA, in many cases with numbers that haven’t been seen in decades. The Open Border...
 - [10:16 UTC - Great News America! The Dumocrat caused inflation is way down from what it had been, and w...](116923472077180326/)
   - Source: https://truthsocial.com/@realDonaldTrump/116923472077180326
   - Great News America! The Dumocrat caused inflation is way down from what it had been, and we will bring it down still further. MAGA!

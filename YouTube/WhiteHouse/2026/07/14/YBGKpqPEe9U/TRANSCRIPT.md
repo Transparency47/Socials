@@ -1,0 +1,743 @@
+<!-- source: https://www.youtube.com/watch?v=YBGKpqPEe9U -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: YBGKpqPEe9U -->
+<!-- date_published: 2026-07-14T16:33:28+00:00 -->
+<!-- date_accessed: 2026-07-15T11:59:02.948610+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the Prime Minister of the Republic of Iraq
+
+- [00:05.894] [clears throat]
+- [00:08.200] >> Beautiful.
+- [00:08.920] >> Is it good?
+- [00:09.520] >> Beautiful house.
+- [00:11.080] >> It's a great place.
+- [00:11.800] >> Beautiful house.
+- [00:21.520] Well, thank you very much. We've had
+- [00:23.280] already a good meeting. We're going to
+- [00:24.760] decide to do a little lunch. It wasn't
+- [00:26.600] scheduled, but we are going to do it on
+- [00:28.520] the fly because we have a tremendous
+- [00:30.960] chemistry together.
+- [00:32.960] Uh the
+- [00:34.400] Prime Minister of Iraq has been uh
+- [00:37.320] amazing. He won an election that a lot
+- [00:39.280] of people didn't anticipate could be won
+- [00:41.640] by anybody else other than another
+- [00:43.440] person who was not, in my opinion, a
+- [00:46.120] good person. Not good for
+- [00:49.000] America. I don't think good for Iraq.
+- [00:51.840] And I played a a role in uh
+- [00:54.440] I mean, it was very important to me to
+- [00:55.720] have somebody get in there that can do
+- [00:57.840] the job and do it well. And we have a a
+- [00:59.560] fantastic champion, a new champion in
+- [01:02.680] uh He won the election very soundly,
+- [01:05.440] very conclusively. And he wasn't
+- [01:08.280] favored, but by the time they got to
+- [01:10.360] know him, he ended up winning. And uh
+- [01:12.560] he's going to be there for a long time.
+- [01:14.800] So, I just want to say it's a great
+- [01:16.640] honor to have the
+- [01:18.360] Prime Minister of Iraq
+- [01:20.280] with us. Uh he's uh
+- [01:22.760] He's been a great fighter and he's been
+- [01:24.400] a great fan of America. We'll We'll be
+- [01:27.040] discussing that a little bit with you.
+- [01:29.320] But they have tremendous oil reserves.
+- [01:32.520] Uh they have
+- [01:33.800] tremendous potential wealth and they
+- [01:35.320] have tremendous wealth, not only
+- [01:36.680] potential.
+- [01:38.080] But he's not a fan In a short period of
+- [01:39.640] time, he's he's changed that country so
+- [01:42.280] much, especially toward their thinking
+- [01:44.440] about the United States. And we have uh
+- [01:47.640] partnerships. Chris was just saying we
+- [01:49.320] have tremendous uh oil partnerships all
+- [01:52.160] of a sudden being formed over the last
+- [01:54.560] short period of time. And I guess you're
+- [01:55.920] going to be announcing them this week or
+- [01:57.440] next week, but massive, though, among
+- [02:00.000] the largest.
+- [02:01.240] So, uh
+- [02:03.000] they have
+- [02:04.280] they have done a a fantastic job over
+- [02:06.360] the last short period of a very short
+- [02:07.880] period of time, but they have a great
+- [02:09.520] leader, the new Prime Minister. He's a
+- [02:10.960] great leader. I think he's going to be
+- [02:12.200] there for a long period of time, and
+- [02:15.280] it's great to have you at the White
+- [02:16.560] House. Thank you very much.
+- [02:17.959] >> Thank you. Thank you much.
+- [02:19.680] >> And he's a young man. He's young and
+- [02:22.040] he's handsome,
+- [02:23.680] which I don't like. I'm not happy at
+- [02:26.066] >> [laughter]
+- [04:18.799] >> Yes, Mr. Thank you.
+- [04:24.800] Thank you for the warm welcome by His
+- [04:26.760] Excellency President Trump.
+- [04:31.240] This is my first visit
+- [04:33.840] to the United States of America.
+- [04:38.080] This visit was not just like any visit,
+- [04:43.000] rather it's announcement of economic
+- [04:44.960] partnership.
+- [04:47.240] Well, I talked to His Excellency.
+- [04:51.000] On 23rd of September, the US forces will
+- [04:53.680] be out of Iraq.
+- [04:56.400] While the US companies will be inside
+- [04:58.240] Iraq.
+- [05:03.240] Well, the social relations is about like
+- [05:05.440] economy, it's not like about like
+- [05:07.360] military relations.
+- [05:09.720] I would convey my greetings
+- [05:12.720] from the oldest civilization in the
+- [05:14.440] world
+- [05:16.480] to the biggest
+- [05:17.560] economic
+- [05:18.960] and technology heart in the world.
+- [05:23.680] I thank His Excellency the President for
+- [05:25.200] the warm welcome. My President for the
+- [05:26.800] warm welcome.
+- [05:28.760] Good. Thank you very much.
+- [05:31.240] Great honor.
+- [05:34.400] Please.
+- [05:37.160] Go ahead. Please.
+- [05:57.880] >> Who you with?
+- [05:58.680] >> I'm with Al Hurra TV.
+- [06:03.680] Um sir, is the military
+- [06:06.400] in Iran is it a strategy to bring him
+- [06:08.760] back to the table? Would it be correct
+- [06:11.080] to degrade them so the regime will
+- [06:13.720] eventually fall?
+- [06:15.600] >> Well, we don't think we need the
+- [06:16.680] military there anymore. You know, it's a
+- [06:18.840] very uh a big operation. And what we do
+- [06:22.560] have is the oil companies are all going
+- [06:24.320] in now and they're
+- [06:25.800] uh doing partnerships with Iraq
+- [06:29.160] and they're getting along very well. The
+- [06:31.120] relationship is a whole big relationship
+- [06:33.240] where we don't need the military there.
+- [06:34.680] We're there to help them. We're there to
+- [06:36.640] protect them if need be.
+- [06:38.600] But we don't think that's going to be
+- [06:39.680] necessary and their their primary uh I
+- [06:42.320] considered an opponent they might have
+- [06:44.000] considered a friend, but I consider that
+- [06:46.760] an opponent was Iran was a big
+- [06:50.200] burden on Iraq because they were the
+- [06:53.080] bully of the Middle East, as you know.
+- [06:55.360] And we were just talking about that, but
+- [06:57.680] uh they're not going to have that
+- [06:58.520] problem anymore because
+- [07:00.280] Iran has been very much uh
+- [07:03.520] destabilized and really uh
+- [07:06.200] uh their military power is
+- [07:08.760] just a tiny fraction of what it was just
+- [07:10.640] 4 months ago. So, they're not going to
+- [07:12.720] have that problem. I think this it's
+- [07:14.640] really in a sense it's given them
+- [07:16.040] freedom to do what they have to do and I
+- [07:18.040] think that's one of the reasons that our
+- [07:20.120] oil companies are going in there at uh
+- [07:22.600] levels that have never been seen before.
+- [07:24.440] So,
+- [07:28.120] You want to answer?
+- [07:32.000] >> Just thank you for your question.
+- [07:36.080] According to the program of the
+- [07:37.240] government
+- [07:39.400] is to restrict at of weapons to the
+- [07:41.640] state.
+- [07:43.680] And this is a basic point.
+- [07:47.600] And I have even this is like a decision.
+- [07:49.480] It's not an option.
+- [07:51.680] We received
+- [07:54.640] weapons by different factions.
+- [07:58.160] And he whoever surrender his weapon
+- [08:02.320] into like a political or civilian
+- [08:06.160] we will cooperate with them.
+- [08:09.120] After the 30th of September
+- [08:12.280] there is no any need for the presence of
+- [08:13.919] any faction.
+- [08:15.800] Cuz factions
+- [08:18.320] is a need, is not a profession.
+- [08:22.360] There is no any justification for their
+- [08:24.000] existence after the 30th of September.
+- [08:28.320] By the end of this year or by the
+- [08:29.040] beginning of next year
+- [08:33.599] the conference is the biggest conference
+- [08:35.159] the sovereignty conference is the
+- [08:36.919] biggest conference in the region.
+- [08:40.080] The Iraqi decision is by by the hand of
+- [08:42.159] the Iraqis only. And our security forces
+- [08:44.520] are capable of protecting their borders.
+- [08:50.520] After the 30th of September
+- [08:54.760] we will never accept for any entity to
+- [08:56.920] carry weapons outside the control of the
+- [08:58.680] state.
+- [09:02.160] >> Thank you. Thank you. Thank you,
+- [09:03.040] President Trump. I have two questions. I
+- [09:05.240] was wondering if you could explain your
+- [09:07.480] changing thinking on the Strait of
+- [09:08.880] Hormuz applying a 20% fee.
+- [09:11.480] Um how did you get to the decision you
+- [09:12.920] just announced?
+- [09:13.560] >> So when I
+- [09:15.040] put that out yesterday, cuz we've been
+- [09:16.680] doing that for many, many years. It was
+- [09:18.120] never fair to me that we would be
+- [09:19.680] guarding the Strait when we basically
+- [09:22.160] don't take any of the We don't need the
+- [09:23.480] oil at all.
+- [09:25.120] And uh
+- [09:26.480] it wasn't important for us, but it was
+- [09:27.839] important for allies. It was important
+- [09:29.440] for people that we get along with very
+- [09:31.520] well, including the, you know, major uh
+- [09:34.240] Gulf state countries.
+- [09:36.040] So I put it out yesterday. I thought it
+- [09:37.800] was good. I was called by different
+- [09:40.000] people, different countries, kings, and
+- [09:43.120] emirs, and
+- [09:44.560] all of the people that we all know, and
+- [09:46.840] we all love, and they've they've been
+- [09:48.240] frankly they've been very strong
+- [09:50.120] partners.
+- [09:51.280] And they said, "We'd love to do it a
+- [09:52.520] different way. We'd love to invest in
+- [09:54.120] the United States with
+- [09:56.200] billions and billions of dollars,
+- [09:58.680] and continue our record-setting, cuz we
+- [10:01.720] would there's never been a time like
+- [10:03.280] this with the United States, with the
+- [10:04.720] factories, with the plants, with
+- [10:06.120] everything else.
+- [10:07.400] And we would like to invest tremendously
+- [10:09.640] in the United States as opposed to
+- [10:11.640] charging a fee.
+- [10:13.240] And I like that, actually, because I
+- [10:14.800] don't think anybody should be able to
+- [10:16.000] charge a fee for the
+- [10:17.800] uh
+- [10:18.360] for the strait or for any other
+- [10:20.440] uh strait relationship in terms of other
+- [10:23.560] sections of the world. I don't think
+- [10:25.040] anybody should be really in that
+- [10:26.920] position. But we were doing it as a
+- [10:29.120] reimbursement. Uh the Gulf states are
+- [10:31.560] going to invest a tremendous amount of
+- [10:33.440] money into the United States, and that
+- [10:36.320] was very satisfactory to me. I think
+- [10:38.360] it's actually much better.
+- [10:41.600] >> If I could also ask, um are you aware of
+- [10:43.480] why the FBI is looking into Senator
+- [10:45.640] Graham's death? Have you gotten any
+- [10:47.400] updates on why they raided his home?
+- [10:49.160] >> Well, I don't know why, because I think,
+- [10:51.040] you know, he had a
+- [10:52.760] problem. His father had a very similar
+- [10:54.600] problem, as you know. It's very unique.
+- [10:57.520] Uh at first I heard it was uh clogged
+- [10:59.480] arteries, cuz he did have clogged
+- [11:01.280] arteries. He had a problem with with
+- [11:03.240] that. He was uh
+- [11:05.200] uh I wish he took better care of
+- [11:06.880] himself, I say.
+- [11:08.480] You can see you know, you can solve that
+- [11:10.120] problem, but uh what happened is
+- [11:12.400] actually something that's very hard to
+- [11:13.880] detect. It was not related to the any
+- [11:16.640] blockage. It was uh a totally different
+- [11:18.920] thing. And supposedly, and I've watched
+- [11:21.680] all the medical reports. I've had the
+- [11:24.040] doctors from the White House come in and
+- [11:25.600] explain what happened.
+- [11:27.200] And this is something that is very
+- [11:29.520] almost undetectable.
+- [11:31.560] And if it happens, there's not much you
+- [11:33.880] can do about it. Sounds unfortunate, but
+- [11:36.480] there's not much you can do about it.
+- [11:37.840] And if you look at his
+- [11:39.680] uh his father died of
+- [11:42.480] the same thing at about the same age.
+- [11:45.120] So, there was not much it they say it's
+- [11:47.440] almost undetectable. You can detect it
+- [11:50.200] by if you have a very bad back, that's a
+- [11:53.200] sign. It's a bad sign. So, if anybody
+- [11:56.040] has a bad back, uh
+- [11:58.640] it's a pretty rough thing to think
+- [12:00.160] about. But, the fact that it's one of
+- [12:02.160] the primary signs, and he would tell me
+- [12:03.800] he had a bad back.
+- [12:05.440] But, little did anyone realize it was
+- [12:07.080] for that. So, and when that bursts,
+- [12:09.640] which it did, it burst, uh there's not
+- [12:11.840] much. So, I don't see a lot of evil
+- [12:13.440] there. I don't I know there's all sorts
+- [12:14.920] of conspiracy theories going along, and
+- [12:17.720] I I don't think the FBI I think the
+- [12:20.320] FBI's wasting their time if they're
+- [12:21.960] doing that, yeah.
+- [12:22.800] >> Sir, sir, just on the on the prior
+- [12:24.640] question, the the foreign ministry whole
+- [12:26.760] idea for you, that's that's dead now.
+- [12:29.040] That's completely gone.
+- [12:30.680] >> No, I I just told you. You have uh Saudi
+- [12:32.960] Arabia, UAE,
+- [12:35.160] Qatar, uh Bahrain, and uh Kuwait, you
+- [12:39.360] know, primarily, and then others. Uh
+- [12:41.440] they I spoke to all of them,
+- [12:43.760] and they would love to invest more money
+- [12:45.760] in the United States at at record
+- [12:47.839] amounts, and that would be very
+- [12:49.720] acceptable. And this way, there's no
+- [12:52.080] fee. I don't like the concept of a fee.
+- [12:54.440] But, at the same time, it's not fair
+- [12:55.880] that we're protecting this strait for
+- [12:58.000] the entire world, for China, and
+- [13:00.200] everyone. I I don't mind protecting it
+- [13:01.839] for China. I don't mind protecting it
+- [13:03.760] for anybody, but it's unfair that we're
+- [13:05.280] not in somehow compensated. And we've
+- [13:07.800] been doing this for many years. It It's
+- [13:09.440] bothered me 25 years ago. It bothered
+- [13:12.360] me. During my first term, I was doing
+- [13:14.560] things like you have to invest in the
+- [13:16.120] United States, and
+- [13:17.800] but by doing it that way, there's no
+- [13:19.760] fee. They're investing, and they're
+- [13:21.720] getting a return on their money, and
+- [13:23.160] it's good. But, uh they're going to
+- [13:25.000] going to massive investments into
+- [13:27.840] the United States and I like that much
+- [13:29.680] better.
+- [13:44.400] I think the gentleman right here because
+- [13:46.400] here he is. Would you like to know about
+- [13:47.960] it?
+- [13:48.040] >> Are you are you considering as Prime
+- [13:49.560] Minister leaving OPEC or are you pushing
+- [13:51.840] for changes within it? And Mr.
+- [13:53.080] President, would you support
+- [13:55.360] >> Well, I support him.
+- [13:57.040] You know, I supported him very early in
+- [13:58.720] the I endorsed him. Something I rarely
+- [14:01.400] do, but I've had great successes
+- [14:03.560] endorsing, you know, we just had
+- [14:04.920] Colombia, which was a big one. Argentina
+- [14:07.400] was a big one. We had many I've
+- [14:09.240] endorsed.
+- [14:11.080] I think everybody I've endorsed from a
+- [14:13.920] foreign standpoint, they just win. And
+- [14:17.320] you know, I've been hearing great
+- [14:18.280] things. I
+- [14:19.400] student of a lot of history.
+- [14:21.400] And I do know a lot about the history of
+- [14:23.320] Iraq and I've watched what was happening
+- [14:25.840] in Iraq with the elections and I put a
+- [14:28.000] very strong endorsement out because I
+- [14:30.120] was very unhappy with the man that was
+- [14:31.760] supposed to win the election.
+- [14:33.720] And
+- [14:34.800] this great gentleman, I think he's going
+- [14:36.400] to end up being a great leader. He won.
+- [14:38.560] So, I'm very happy about that. As far as
+- [14:40.520] OPEC, that's his decision and you might
+- [14:42.839] ask him that question.
+- [14:49.920] >> We are one of the countries that
+- [14:51.240] established OPEC.
+- [14:56.480] We need like a fair share for Iraq.
+- [15:00.640] Iraq fought ISIS.
+- [15:03.280] And terrorism and all.
+- [15:06.240] Support of the United States of America.
+- [15:10.360] This fight with ISIS
+- [15:13.440] cost us like huge amounts of money.
+- [15:17.320] Destroyed the Iraqi infrastructure.
+- [15:20.600] Damage that really what was against
+- [15:22.840] Iraq?
+- [15:24.840] is more than 400 billion dollars.
+- [15:29.560] Until today like some Iraqi cities are
+- [15:32.200] totally destroyed.
+- [15:34.800] They're like living in camps.
+- [15:39.120] I have a plan to get them back to their
+- [15:41.240] homes.
+- [15:43.440] We want a fair share. Not after
+- [15:45.480] midnight.
+- [15:50.680] >> If you remember even though I was a
+- [15:52.240] civilian and had no thought of running
+- [15:54.760] for president, I got a disproportionate
+- [15:57.600] amount of publicity as you probably
+- [15:59.520] heard.
+- [16:00.440] And I used to say don't go into Iraq.
+- [16:03.840] Don't attack Iraq.
+- [16:06.080] Frankly, they attacked the wrong
+- [16:07.320] country.
+- [16:08.520] And
+- [16:09.600] they did a lot of damage. Yeah.
+- [16:12.480] >> Thank you.
+- [16:13.720] Given how the Iranians have been
+- [16:14.960] behaving, do you have any regrets about
+- [16:17.960] lifting the naval blockade or giving the
+- [16:20.080] >> No.
+- [16:21.080] No. I gave them a chance.
+- [16:23.480] I wanted to give them a chance at making
+- [16:26.000] a deal. You know, we had a deal two days
+- [16:27.480] ago. It was done. And then all of a
+- [16:29.360] sudden they couldn't do it. They didn't
+- [16:31.160] like something about the deal. They
+- [16:32.520] couldn't do it.
+- [16:33.760] And they shot first and that was a big
+- [16:35.680] mistake that they shot first cuz we have
+- [16:38.040] been knocking the hell out of them.
+- [16:40.240] Uh they're very difficult people. 47
+- [16:43.080] years we put up with it. The SS Cole,
+- [16:45.760] you go back all the way thousands of
+- [16:47.839] people thousands of Americans we killed
+- [16:50.320] a lot of soldiers we killed. A lot of
+- [16:52.600] soldiers are walking around or not
+- [16:54.480] walking around. I mean they've been so
+- [16:55.920] been so badly injured.
+- [16:58.040] The arms, the legs, the face. With the
+- [17:01.720] Soleimani with the
+- [17:04.000] bomb. They They call it the roadside
+- [17:06.640] bomb. Most people call it the roadside
+- [17:08.360] bomb.
+- [17:09.439] It's a disaster.
+- [17:11.079] And I killed him in my first
+- [17:14.160] administration. Had I not, it might be a
+- [17:17.360] different story today. He was
+- [17:19.520] a mad genius. He was a mad
+- [17:22.439] probably a madman, but he was a general
+- [17:25.079] and he had total control over the
+- [17:26.400] country and I actually think the leaders
+- [17:28.640] of Iran were afraid of Soleimani.
+- [17:31.280] But I killed him and by the way, with
+- [17:33.800] him went a very bad person also. They
+- [17:36.840] happened to be meeting each other at the
+- [17:38.800] airport.
+- [17:40.000] And a very bad person from Iraq happened
+- [17:43.200] to be a leader of Iraq happened to be
+- [17:45.320] killed in that same incident. So, I
+- [17:48.360] don't know if I did you a favor or not.
+- [17:49.760] I've never asked you that question. You
+- [17:51.120] probably would know better than me. But
+- [17:53.080] no, I think I think that I think that
+- [17:56.040] what we've done to Iran is we've taken
+- [17:58.360] away all of them almost all of their
+- [18:00.080] military capability.
+- [18:03.920] Go ahead,
+- [18:05.240] explain it.
+- [18:07.160] Explain it.
+- [18:08.640] Go ahead.
+- [18:09.480] Yes, they hear that.
+- [18:11.080] Go ahead.
+- [18:46.320] So, like that.
+- [18:48.480] >> At that time I I was not in politics.
+- [18:54.160] In my visit like I'd like to talk about
+- [18:55.960] the future.
+- [18:57.080] >> Mr. President, I'm not going to ask you
+- [18:58.480] that.
+- [19:06.200] >> Thank you, Mr. President. Mr. President,
+- [19:08.880] Mr. President, thank you for your time.
+- [19:11.640] Last year in May, the Prime Minister of
+- [19:14.520] Kurdistan region Masrour Barzani signed
+- [19:16.840] about 110 billion dollar in energy deals
+- [19:21.600] with US companies here in Washington,
+- [19:24.640] D.C. Mr. President, if Baghdad and Erbil
+- [19:29.080] work together better, that investment
+- [19:32.480] could grow grow grow. What is your
+- [19:35.640] message and advice
+- [19:37.560] to the leaders in Baghdad and Erbil to
+- [19:40.000] work together? Why I'm asking this
+- [19:42.440] question? Because you are a miracle
+- [19:44.960] makers, Mr. President.
+- [19:46.440] >> I love this question.
+- [19:48.640] It's my favorite question so far, by
+- [19:50.440] far. Uh thank you very much for the
+- [19:52.800] question. Look, Baghdad
+- [19:55.240] I think and I and and this country,
+- [19:57.920] we're going to make some tremendous
+- [19:59.600] music together.
+- [20:01.280] Uh we uh haven't been dealing very much
+- [20:04.320] over the last four or five years with
+- [20:06.360] the previous administration.
+- [20:08.480] Uh Iraq has tremendous potential
+- [20:12.160] because of their oil and because of
+- [20:14.000] other things, but because of their oil.
+- [20:16.120] And we're going to be doing a lot of
+- [20:17.760] deals. We're going to be creating a lot
+- [20:19.080] of jobs for both countries and we're
+- [20:21.280] going to be taking out a lot of oil. A
+- [20:23.280] lot of oil is coming out.
+- [20:25.280] And the American companies are doing it.
+- [20:27.320] Mostly American companies now. They
+- [20:29.000] don't want to do business with others.
+- [20:30.840] They want to do business with America
+- [20:32.360] and that's good. And that's one of the
+- [20:33.560] reasons that I felt so strongly that
+- [20:36.240] this was going to be a great Prime
+- [20:37.680] Minister and I fought for that.
+- [20:40.520] >> I have I have a question for the
+- [20:41.680] President.
+- [20:44.160] >> Go ahead.
+- [20:44.480] >> How would you describe your relationship
+- [20:46.400] with Kurdistan Regional Government at
+- [20:48.080] this time? Because Prime Minister
+- [20:50.040] yesterday had a statement and fully
+- [20:52.400] support you.
+- [21:00.200] >> I look at Iraq as a body.
+- [21:01.920] >> I look at Iraq as a body.
+- [21:04.000] >> Each part of Iraq is part of my own
+- [21:06.400] body.
+- [21:07.000] >> Each part Each part uh uh Iraq is part
+- [21:09.720] of my own body.
+- [21:12.920] So, I would never uh distinguish between
+- [21:15.080] two uh any organ.
+- [21:19.240] I cannot cut off any part of any organ
+- [21:21.880] from my own body.
+- [21:24.120] Kurdistan is such an important part of
+- [21:26.120] Iraq.
+- [21:29.040] are different than Basra and other
+- [21:30.680] provinces.
+- [21:32.360] >> But, because such nice things were said
+- [21:34.760] about him, that means he likes the man
+- [21:37.480] that said those nice [laughter] things.
+- [21:42.480] Go ahead, please.
+- [21:43.560] >> Thank you so much, Mr. President.
+- [21:45.920] I have a question for you, and I have a
+- [21:47.120] question for Prime Minister.
+- [21:48.680] >> But, the first question, Mr. Prime
+- [21:50.240] Minister, why did you choose United
+- [21:51.560] States as your first uh
+- [21:53.680] trip abroad? Um
+- [21:56.280] What what steps concrete steps do you
+- [21:58.880] take when you go back to Iraq to make
+- [22:00.400] sure that the agreements you are
+- [22:02.000] reaching in Washington, D.C.
+- [22:03.760] implemented?
+- [22:09.280] >> I inherited such a heavy burden country.
+- [22:13.720] I as I have a master degree in finance
+- [22:17.680] I analyzed the uh economic situation of
+- [22:20.680] the country.
+- [22:23.960] With this burden, I need such a a
+- [22:25.640] strategic partner to really lift this
+- [22:27.360] burden.
+- [22:29.440] The most important strategic partnership
+- [22:31.040] in the
+- [22:32.560] is the United States of America.
+- [22:36.600] It wasn't just like any visit or
+- [22:41.040] It's emotional. It's about
+- [22:49.680] >> Yeah, thank you.
+- [22:52.840] I think so. I think it's going to
+- [22:54.240] Inflation's down. We inherited the worst
+- [22:56.880] inflation in the history of our country.
+- [22:58.680] They say 48 years. It was the worst in
+- [23:01.160] the history of our from Biden, sleepy
+- [23:03.040] Joe. He might have been sleepy, but boy
+- [23:05.240] he could create inflation like nobody
+- [23:07.040] and I inherited that and I got blamed
+- [23:10.160] for it and it's not my fault. We are we
+- [23:12.400] are putting it to sleep and we've done a
+- [23:14.920] great job, Scott and Howard and Marco
+- [23:17.880] and even Pete cuz he's watching his
+- [23:19.920] dollars, right? But
+- [23:22.400] they've done a fantastic job. We've all
+- [23:24.320] done a fantastic job. So, we had the
+- [23:26.520] worst inflation in history and the
+- [23:29.880] history of our country.
+- [23:31.720] I mean, we had months where it was 9 and
+- [23:33.800] 10% and now we have a report just came
+- [23:37.960] out. It was just released and thank you
+- [23:39.520] for bringing it up,
+- [23:40.711] >> [snorts]
+- [23:40.720] >> but the report was incredible. Inflation
+- [23:42.640] is way down. That means prices are
+- [23:44.680] coming way down and we're doing a great
+- [23:47.200] job.
+- [23:49.320] Remember that remember that for the
+- [23:51.400] midterms. I say to that camera. Remember
+- [23:53.800] that cuz nobody else could do it. Prices
+- [23:56.240] are way down. Prices are coming way down
+- [23:59.080] and we're going to bring them much lower
+- [24:01.160] yet.
+- [24:12.480] Well, I'd rather save it. It will
+- [24:14.400] concern that subject and we'll have a
+- [24:15.800] couple of other things to say also, but
+- [24:17.920] I'd rather save it, but it's
+- [24:20.280] really big news.
+- [24:22.360] It's really really big news
+- [24:24.880] and our country has to shape up.
+- [24:27.960] But that's what we're going to be
+- [24:29.560] talking about Thursday is
+- [24:32.600] it doesn't get bigger because without
+- [24:35.080] free and fair elections, you don't have
+- [24:36.720] a country. We'll be discussing other
+- [24:38.160] things too, but but it's going to be a
+- [24:40.280] very big announcement, yeah.
+- [24:43.520] >> Mr. President, your administration
+- [24:45.080] pushed hard to shape the Iraq's
+- [24:46.640] leadership and tied US support to
+- [24:48.640] disarming Iran backed factions.
+- [24:50.760] With the September 15th deadline weeks
+- [24:53.160] away, what happening in Baghdad, Mr.
+- [24:54.840] President, and does the US troops
+- [24:56.720] withdraw from Kurdistan region still
+- [24:58.680] proceeding on schedule.
+- [25:00.520] >> I think everything's on schedule. We
+- [25:01.960] have a great Here we are. I mean, we're
+- [25:04.240] right now I even called for a lunch that
+- [25:05.760] wasn't scheduled, okay? So, in that way
+- [25:08.360] but
+- [25:09.400] no, we usually we uh
+- [25:11.600] I don't think I've ever done that where
+- [25:13.000] we didn't have lunch. I said, "Let's
+- [25:14.320] have lunch." You know why? Cuz I like
+- [25:16.120] them.
+- [25:17.160] I like them. So, I think I think that's
+- [25:19.280] all going to work out very well. Yeah.
+- [25:20.600] >> Mr. President, sir, do you want this
+- [25:21.720] Russian sanctions bill signed within the
+- [25:23.960] next week or two and will you sign it?
+- [25:25.680] >> Well, I know that Lindsey wanted it very
+- [25:27.480] badly. I think they may be adding Iran
+- [25:30.120] to it. They're going to add Iran, which
+- [25:31.800] is a very big thing if they did that. Uh
+- [25:34.520] they may add Hezbollah, too.
+- [25:36.800] Just put them if you do business with
+- [25:38.200] Hezbollah. So, we're looking at that,
+- [25:40.120] but they're they're seriously thinking
+- [25:42.120] and this is in honor of Lindsey.
+- [25:44.520] Uh this was his thing. He wanted this
+- [25:46.800] more than any other thing. You know, you
+- [25:48.480] know how he felt. And uh there's a good
+- [25:50.920] chance that it gets done.
+- [25:52.640] But they'd like to add Iran and they'd
+- [25:55.120] like to add Hezbollah, too. That's what
+- [25:57.160] I'm hearing. So.
+- [25:57.920] >> And if that includes secondary sanctions
+- [25:59.600] on China, India, Europe
+- [26:01.280] >> Well, we'll have to look. That hasn't
+- [26:02.640] been discussed.
+- [26:08.280] >> The Prime Minister,
+- [26:10.280] how do you see he has launched a
+- [26:11.520] campaign to liberate held by militia
+- [26:14.320] under the control of the state? How does
+- [26:16.480] your administration support him to
+- [26:18.080] accomplish this vision? And my second
+- [26:20.080] question, how do you envision the future
+- [26:21.640] relations between Kurdistan region and
+- [26:24.360] Iraq?
+- [26:24.880] >> I think everything is going to work out.
+- [26:27.120] I think people are The Middle East,
+- [26:29.440] believe it or not, is coming together.
+- [26:31.040] We're getting rid of the bully of the
+- [26:32.680] Middle East.
+- [26:34.000] Uh Iran was the bully of the Middle
+- [26:35.600] East. They bullied
+- [26:37.160] Iraq. They bullied every country. They
+- [26:39.480] were
+- [26:40.400] Uh they There was fear all over the
+- [26:42.080] Middle East with other countries. I
+- [26:44.240] understand that, but there was fear. Uh
+- [26:46.800] but there's no fear anymore because
+- [26:48.280] their military capability has been
+- [26:50.000] knocked to hell. And there's no fear. I
+- [26:52.400] think the Middle East is coming together
+- [26:54.040] like it's never come together before.
+- [26:56.040] You can't have a dominant factor like
+- [26:58.000] Iran that that would kill 52,000
+- [27:00.800] protesters. You know, they killed Nobody
+- [27:02.920] likes talking about that. I don't like
+- [27:04.360] talking about it. They killed 52,000
+- [27:07.320] protesters. So, the bottom line, all
+- [27:09.840] regions, I believe, are coming together,
+- [27:11.960] and I think it's going to be This is
+- [27:13.240] going to be one of the great leaders
+- [27:14.640] right here. It's going to be one of the
+- [27:16.400] great leaders in the Middle East. Go
+- [27:18.120] ahead, please.
+- [27:19.760] Just explain that first.
+- [28:06.400] And I think I think we could go into
+- [28:08.240] this for a long time, and the bottom
+- [28:10.560] line is that we have a fantastic
+- [28:13.200] relationship with many countries now. We
+- [28:15.200] just had a I just came back from NATO.
+- [28:17.880] Many of you were there, and you saw how
+- [28:19.200] that worked out. It was a phenomenal
+- [28:22.000] It was a love fest, to be honest, and
+- [28:23.840] they loved the United States. They even
+- [28:26.080] like me, but they love the United
+- [28:27.560] States. And
+- [28:28.800] we're going to cut costs there by
+- [28:30.480] hundreds of billions of dollars, maybe.
+- [28:32.840] But, uh
+- [28:34.320] the NATO event was incredible. Today's
+- [28:36.560] event is incredible. This is a
+- [28:38.400] potentially really great country
+- [28:40.280] country.
+- [28:41.360] Uh and many people would say it's a
+- [28:43.000] great country.
+- [28:44.360] Uh we're helping it. We want to help it.
+- [28:46.480] We have a fantastic relationship with
+- [28:48.720] the new Prime Minister. He's a strong
+- [28:50.160] person.
+- [28:51.360] He's a very brilliant guy. He's
+- [28:53.480] very much acknowledged, or he couldn't
+- [28:55.680] have won that election. That was a
+- [28:57.160] highly competitive election, and he went
+- [28:59.680] out and won, and it's a big story. I
+- [29:02.360] mean, it's a big, big story, and I just
+- [29:04.720] want to say that uh
+- [29:06.720] the United States has never done better.
+- [29:08.680] We're doing well. You know, more people
+- [29:10.280] are working today in the United States
+- [29:12.040] than at any time in history. We have
+- [29:14.560] more things being built, factories,
+- [29:16.200] plants, AI,
+- [29:18.080] automobile plants are being built at
+- [29:21.120] record numbers, more than we've ever had
+- [29:23.320] ever before. The tariffs have
+- [29:25.560] done have been used very judiciously and
+- [29:27.680] properly, and
+- [29:29.240] companies are pouring in and countries
+- [29:31.320] are pouring into this country to build
+- [29:33.600] factories because when they build them,
+- [29:35.560] they have no tariffs.
+- [29:37.040] And we have numbers 19 to 19.2 trillion
+- [29:40.840] dollars, as an example,
+- [29:42.840] under Biden, it was less than 1 trillion
+- [29:45.080] in 4 years. We're at 19.2 trillion for
+- [29:49.040] 12 months.
+- [29:50.760] Nobody's ever seen anything like it. Our
+- [29:52.720] relationship with Iraq is I would say it
+- [29:56.520] went from being not so good to being
+- [29:59.080] outstanding. And uh we're going to have
+- [30:01.920] a long-term relationship with Iraq.
+- [30:03.640] We're going to have a long-term
+- [30:04.520] relationship with a man that will be a
+- [30:06.600] great leader. You mark my words. I knew
+- [30:09.840] what I was doing.
+- [30:11.280] Uh this man is going to be a great
+- [30:12.600] leader in the Middle East beyond Iraq.
+- [30:15.720] His uh influence is going to spread all
+- [30:18.040] throughout the Middle East, and we're
+- [30:20.000] very happy about it, and we are very
+- [30:22.040] happy to have you with us. Thank you
+- [30:23.560] very much.
+- [30:31.120] They I just want to I don't think
+- [30:32.520] there's anything much else you can ask
+- [30:34.080] us.
+- [30:34.960] Uh
+- [30:35.520] this is a very important meeting.
+- [30:37.720] It's something I've never done before.
+- [30:39.880] No lunch was scheduled. I said, "Let us
+- [30:41.640] have lunch." I've never done that
+- [30:43.000] before. Sometimes we'll have a lunch
+- [30:44.800] schedule,
+- [30:46.040] but I've never done this. Right, Susie?
+- [30:47.920] This is a first. So, I have no idea what
+- [30:50.200] we're going to be eating, but it'll be
+- [30:51.440] fine. But, we're doing it because we
+- [30:53.480] like the people that we're with. Thank
+- [30:55.120] you very much.

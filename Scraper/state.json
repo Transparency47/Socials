@@ -10,8 +10,7 @@
     "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=TbNS1wxfOCQ: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=TbNS1wxfOCQ! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=TbNS1wxfOCQ&ei=zmBXasK7AbXFy_sP9IuvsAk&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1784136510&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=6512FD119FAA179D478A0E4F6A43C45E2CAB3825.92E31A5C1AD995EB4B9D3279569C21FA8C43F901&key=yt8&kind=asr&lang=en&fmt=vtt"
+    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle."
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -124898,6 +124897,61 @@
       "title": "Great News America! The Dumocrat caused inflation is way down from what it had been, and w...",
       "url": "https://truthsocial.com/@realDonaldTrump/116923472077180326"
     },
+    "truthsocial:realdonaldtrump:116923585931908111": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-15T11:58:48.150358+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/15/116923585931908111",
+      "platform": "truthsocial",
+      "post_id": "116923585931908111",
+      "published": "2026-07-15T10:45:34.161000+00:00",
+      "title": "The men and women of ICE are doing a GREAT job, one that has to be done. CRIME IS WAY DOWN...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116923585931908111"
+    },
+    "truthsocial:realdonaldtrump:116923602397013633": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-15T11:58:48.149972+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/15/116923602397013633",
+      "platform": "truthsocial",
+      "post_id": "116923602397013633",
+      "published": "2026-07-15T10:49:45.403000+00:00",
+      "title": "Great News for America! House passes Trump-supported bill to make daylight savings time pe...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116923602397013633"
+    },
+    "truthsocial:realdonaldtrump:116923618784603444": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-15T11:58:48.149464+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/15/116923618784603444",
+      "platform": "truthsocial",
+      "post_id": "116923618784603444",
+      "published": "2026-07-15T10:53:55.456000+00:00",
+      "title": "Sen. Lindsey Graham\u2019s presidential relationship emblematic of Trump's willingness to mend ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116923618784603444"
+    },
+    "truthsocial:realdonaldtrump:116923765602106745": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-15T11:58:48.148946+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/15/116923765602106745",
+      "platform": "truthsocial",
+      "post_id": "116923765602106745",
+      "published": "2026-07-15T11:31:15.715000+00:00",
+      "title": "Mike Lindell, the \u201cPillow Man,\u201d and one of America\u2019s greatest and most hard working Patrio...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116923765602106745"
+    },
+    "truthsocial:realdonaldtrump:116923778080121038": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-15T11:58:48.148516+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/15/116923778080121038",
+      "platform": "truthsocial",
+      "post_id": "116923778080121038",
+      "published": "2026-07-15T11:34:26.113000+00:00",
+      "title": "So cool!!! President DJT",
+      "url": "https://truthsocial.com/@realDonaldTrump/116923778080121038"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -168161,6 +168215,17 @@
       "title": "Fostering the Future Together Global Summit - March 24-25, 2026",
       "url": "https://www.youtube.com/watch?v=8_svfbA_UXE"
     },
+    "youtube:whitehouse:8b_IYuk-20A": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-15T11:59:03.739919+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/14/8b_IYuk_20A",
+      "platform": "youtube",
+      "post_id": "8b_IYuk-20A",
+      "published": "2026-07-14T15:26:36+00:00",
+      "title": "President Donald J. Trump Welcomes Iraqi Prime Minister Ali al-Zaidi to the White House. \ud83c\uddfa\ud83c\uddf8\ud83c\uddee\ud83c\uddf6",
+      "url": "https://www.youtube.com/shorts/8b_IYuk-20A"
+    },
     "youtube:whitehouse:8bdy3uchN50": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -174618,6 +174683,17 @@
       "title": "RELEASE OF RFK ASSASSINATION FILES: DNI Tulsi Gabbard",
       "url": "https://www.youtube.com/watch?v=TZIL7uocXtE"
     },
+    "youtube:whitehouse:TbNS1wxfOCQ": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-15T11:59:01.532771+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/14/TbNS1wxfOCQ",
+      "platform": "youtube",
+      "post_id": "TbNS1wxfOCQ",
+      "published": "2026-07-14T21:53:31+00:00",
+      "title": "President Trump Greets the Prime Minister of the Republic of Iraq",
+      "url": "https://www.youtube.com/watch?v=TbNS1wxfOCQ"
+    },
     "youtube:whitehouse:TlCto3eYo2w": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -175948,6 +176024,17 @@
       "published": "2025-03-18T13:49:40+00:00",
       "title": "Vice President JD Vance Delivers Remarks at the American Dynamism Summit",
       "url": "https://www.youtube.com/watch?v=YAgoUvuyLik"
+    },
+    "youtube:whitehouse:YBGKpqPEe9U": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-15T11:59:02.948610+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/14/YBGKpqPEe9U",
+      "platform": "youtube",
+      "post_id": "YBGKpqPEe9U",
+      "published": "2026-07-14T16:33:28+00:00",
+      "title": "President Trump Participates in a Bilateral Meeting with the Prime Minister of the Republic of Iraq",
+      "url": "https://www.youtube.com/watch?v=YBGKpqPEe9U"
     },
     "youtube:whitehouse:YDNA-P5nTmU": {
       "account": "WhiteHouse",
@@ -180469,6 +180556,17 @@
       "published": "2026-05-18T21:50:47+00:00",
       "title": "TRUMPRX: All we needed was a new president.",
       "url": "https://www.youtube.com/watch?v=m-XMX_sAT7Q"
+    },
+    "youtube:whitehouse:m1L0XYb-qgE": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-15T11:59:02.243454+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/14/m1L0XYb_qgE",
+      "platform": "youtube",
+      "post_id": "m1L0XYb-qgE",
+      "published": "2026-07-14T17:08:49+00:00",
+      "title": "\"His influence is going to spread all throughout the Middle East.\" - President Donald J. Trump \ud83c\uddfa\ud83c\uddf8",
+      "url": "https://www.youtube.com/shorts/m1L0XYb-qgE"
     },
     "youtube:whitehouse:m6PN_fbrzDA": {
       "account": "WhiteHouse",
