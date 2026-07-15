@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-15
 
-- Posts: 9
+- Posts: 10
 
+- [22:54 UTC - Iran has allowed an American Citizen, who was wrongfully detained in December of 2024 unde...](116926450735170990/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116926450735170990
+  - Iran has allowed an American Citizen, who was wrongfully detained in December of 2024 under the “presidency” of Sleepy Joe Biden, to leave the Country. She is now safely outside of...
 - [17:09 UTC - Amy Klobuchar, the lightly respected Senator from Minnesota, is running for Governor to ta...](116925095891363176/)
   - Source: https://truthsocial.com/@realDonaldTrump/116925095891363176
   - Amy Klobuchar, the lightly respected Senator from Minnesota, is running for Governor to take the place of the current Corrupt and Incompetent Tim Walz. I have gotten to know Klobuc...

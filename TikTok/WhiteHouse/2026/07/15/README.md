@@ -1,7 +1,10 @@
 # TikTok / WhiteHouse / 2026-07-15
 
-- Posts: 3
+- Posts: 4
 
+- [21:49 UTC - VP Vance calls out Dems hypocrisy on Joe Rogan 🔥](7662874792005045518/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7662874792005045518
+  - VP Vance calls out Dems hypocrisy on Joe Rogan 🔥
 - [17:02 UTC - Patriotic all summer](7662801207437593870/)
   - Source: https://www.tiktok.com/@WhiteHouse/video/7662801207437593870
   - Patriotic all summer
