@@ -1,0 +1,2133 @@
+<!-- source: https://www.youtube.com/watch?v=tuSvt7y3h-w -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: tuSvt7y3h-w -->
+<!-- date_published: 2026-07-15T21:00:30+00:00 -->
+<!-- date_accessed: 2026-07-16T01:06:51.707641+00:00 -->
+
+# Transcript: President Trump Participates in a Pennsylvania Defense and Innovation Summit
+
+- [00:00.800] From the lakes of Minnesota
+- [00:04.080] to the hills of Tennessee,
+- [00:07.759] across the plains of Texas, from sea to
+- [00:11.920] shining sea,
+- [00:14.240] from Detroit down to Houston and New
+- [00:18.160] York to LA, where there's pride in every
+- [00:22.800] American heart, and it's time we stand
+- [00:25.760] and say,
+- [00:30.720] that I'm proud to be an American where
+- [00:34.320] at least I know I'm free. And I won't
+- [00:38.480] forget the men who died, who gave that
+- [00:42.000] right to me. And I gladly stand up next
+- [00:46.480] to you and defend her still today.
+- [00:50.719] Cuz there ain't no doubt I love this
+- [00:53.520] land.
+- [00:55.760] God bless the USA
+- [01:04.080] and I'm proud to be an American where at
+- [01:08.080] least I know I'm free and I won't forget
+- [01:12.960] the men who died who gave that right to
+- [01:16.720] me and I gladly stand up
+- [01:21.119] next to you and defend her still today
+- [01:25.759] cuz there ain't no doubt I love this
+- [01:28.640] land.
+- [01:31.040] God bless the US.
+- [01:43.759] Wow, what a great Wow, what a great song
+- [01:46.399] that is. We've all heard it. It became
+- [01:49.759] hot.
+- [01:51.520] Lee became very wealthy.
+- [01:53.840] Lee Greenwood. He's fabulous and I want
+- [01:55.920] to thank him. He's been with us from the
+- [01:58.000] beginning. A great guy, great talent.
+- [02:01.520] And uh Pennsylvania, you are really
+- [02:03.680] rocking. You are you got the big ones
+- [02:06.079] here. and uh David the
+- [02:13.520] wow it's I'm in a world where I'm
+- [02:15.520] shaking hands with all celebrity
+- [02:17.680] business people mostly but they're
+- [02:20.720] biggest names in business and they're
+- [02:22.959] all spending money in our country but
+- [02:24.640] they're all spending money in
+- [02:26.319] Pennsylvania so I just want to say thank
+- [02:28.400] you but this is a hot place it's a hot
+- [02:32.720] we would say it's a hot common wealth
+- [02:34.560] never call it a state you're in deep
+- [02:35.920] trouble I've seen people's political
+- [02:37.760] careers end over that. Just go to
+- [02:40.480] Commonwealth. They a lot of people don't
+- [02:42.239] remember that, but I just uh I think
+- [02:45.200] it's great to see what's going on and to
+- [02:47.120] see the kind of genius that I'm
+- [02:49.760] surrounded by, all of the people that I
+- [02:52.000] met backstage, but pure genius. I want
+- [02:54.400] to thank Senator David McCormack for
+- [02:57.599] organizing this extraordinary event. And
+- [02:59.760] I came to another one with you about a
+- [03:01.519] year ago, and that was a monster, but it
+- [03:04.800] wasn't like this one. This is even
+- [03:06.800] beyond. I was on energy and it was very
+- [03:09.680] impressive, but this is something crazy
+- [03:12.400] what's going on. Outstanding work on
+- [03:15.040] behalf of the incredible people of
+- [03:17.440] Pennsylvania. You know, he followed me
+- [03:19.760] along the campaign trail and he had a
+- [03:21.680] tough race. It was a tough race. A lot
+- [03:23.360] of people wouldn't have had the courage
+- [03:24.560] to do it. It takes guts to run for
+- [03:26.159] office. People don't know that. Only the
+- [03:28.720] people that never get there know it. But
+- [03:31.280] the fact that uh you did what you did,
+- [03:33.360] you did it once and you did it really
+- [03:35.200] well, but things didn't work out and you
+- [03:37.920] did it a second time against actually a
+- [03:40.400] much tougher opponent and it wasn't even
+- [03:43.280] close. So, I just want to I think he's a
+- [03:45.519] great guy, great, spectacular guy with a
+- [03:48.000] with a great helper, right?
+- [03:54.720] But we're here today to celebrate a
+- [03:56.799] colossal victory for this Commonwealth
+- [03:58.959] and for the entire nation. This
+- [04:01.439] afternoon, we're announcing nearly 10
+- [04:03.200] billion dollars of new investments in
+- [04:05.280] our defense industrial base right here
+- [04:07.840] in the great Commonwealth of
+- [04:10.159] Pennsylvania. And these investments will
+- [04:13.200] create more than 4,000 jobs.
+- [04:15.040] Pennsylvania workers will build the
+- [04:16.959] ships, submarines, trucks, weapons, and
+- [04:19.040] industries that will ensure America
+- [04:21.519] remains the strongest and most powerful
+- [04:23.600] nation in the history of the world.
+- [04:25.680] We're doing better now than we've ever
+- [04:27.919] done. We have 19.2 trillion dollars. We
+- [04:32.880] used to go million, then we went
+- [04:35.040] billion, now we're into the trillions.
+- [04:36.880] But there's never been anything like it.
+- [04:39.040] The country is as hot as it's ever been
+- [04:41.040] and we're doing uh really well with
+- [04:44.960] Iran. The Islamic Republic of Iran is
+- [04:48.160] not happy right now.
+- [04:50.479] Should have been done 47 years ago.
+- [04:52.560] Should have been done at least during
+- [04:53.840] the 47year period and it wasn't. Other
+- [04:56.880] presidents didn't do what was right.
+- [04:58.479] They should have done it a long time
+- [04:59.759] ago. Would have been much easier. And we
+- [05:02.880] uh they want to settle so badly. They
+- [05:05.680] don't like what we're doing. and they do
+- [05:07.919] want to settle. We'll find out whether
+- [05:09.199] or not we settle with him or we just
+- [05:10.720] finish it off. But I want to thank
+- [05:13.120] Secretary of War Pete Hagath. He's been
+- [05:15.520] amazing. Pete, thank you very much.
+- [05:17.600] Great job.
+- [05:23.039] He's been really amazing. You know, he
+- [05:24.720] used to do interviews. All he wanted to
+- [05:26.400] talk about is war. Sir, would you give a
+- [05:29.280] pardon to 19 soldiers? Why? Why? Well,
+- [05:32.000] they killed a lot of people. They were
+- [05:34.160] trained to kill and that's what they
+- [05:35.759] did. And uh he pardoned a lot of people,
+- [05:39.199] but they've all been well behaved,
+- [05:40.800] right? Okay, good. Otherwise, it'll be a
+- [05:42.960] big story. Trump shouldn't have let him
+- [05:45.039] go. But I'm blaming you, Pete. Okay.
+- [05:49.120] But he was very successful actually on
+- [05:51.199] television. I think he probably hated it
+- [05:53.199] because he can't love anything more than
+- [05:55.520] what he's doing right now, and he's
+- [05:56.880] doing it incredibly well. So, great job,
+- [05:59.199] Pete. Appreciate it. Small Business
+- [06:01.680] Administrator, Kelly Laughler. Kelly,
+- [06:04.479] whoever you may be.
+- [06:06.560] Thank you very much. She's great.
+- [06:10.479] Secretary of the Army Dan Driscoll,
+- [06:12.800] who's really out there with that
+- [06:14.800] beautiful smile.
+- [06:16.880] With that beautiful smile, but he's
+- [06:18.400] actually a killer. Look at that
+- [06:19.600] beautiful nice face. Everything's so
+- [06:22.560] happy. He's a killer. Would you believe
+- [06:24.080] it? Those are the Those are the best
+- [06:26.240] kinds, actually.
+- [06:28.160] Commanding General of the Army, Trevor
+- [06:31.039] Bredenamp.
+- [06:32.560] Trevor, thank you very much.
+- [06:37.120] and a couple of warriors in a different
+- [06:39.120] way, but they are great. Scott Perry and
+- [06:42.000] John Joyce, a congressman, and they are
+- [06:44.000] fantastic and they've been my friends
+- [06:46.240] for a long time. Where are you? You've
+- [06:49.600] been my friends for a long time. They're
+- [06:51.360] tough cookies and they uh they want
+- [06:53.440] what's right for the country. Thanks as
+- [06:55.919] well to your amazing state treasurer,
+- [06:57.919] Stacy Gity, who is running for governor.
+- [07:00.080] And I'm telling you, this guy Shapiro is
+- [07:02.479] totally overrated. I watched him the
+- [07:04.240] other night doing a speech and he does
+- [07:06.000] not have what it takes. Maybe he'll win
+- [07:08.479] and he's expected to win, but I hear
+- [07:11.039] things about Stacy and I'm hearing some
+- [07:13.199] poll numbers that are very good, but
+- [07:15.520] Shapiro is uh he doesn't have what it
+- [07:18.240] takes. Now, people think that's a
+- [07:20.080] horrible statement to make, but that's
+- [07:21.520] the way politics is.
+- [07:24.560] That's the way it is. I tell the truth.
+- [07:26.479] Attorney General David Sunday. David,
+- [07:30.960] thank you very much. Great job. A year
+- [07:35.919] and a very probably the most important
+- [07:38.000] person in the room is Senator
+- [07:40.400] McCormick's wife Dena. I mean I know
+- [07:42.880] Dena. Dena worked for me for four years.
+- [07:47.039] She worked for me. I know her almost as
+- [07:49.599] well as David. Hopefully not quite as
+- [07:51.520] well. But Dena has been uh she's been
+- [07:54.400] amazing and she's gotten a very nice
+- [07:56.800] position as the president of Meta,
+- [07:59.280] working with a very good guy. So, uh, a
+- [08:01.680] lot of good people, but one in
+- [08:03.120] particular. So, good luck and doing a
+- [08:05.520] fantastic job. Thank you. She was she
+- [08:07.840] was great. She worked in the
+- [08:09.039] administration first term and she was
+- [08:10.879] fantastic.
+- [08:12.560] We also have uh a big name, a very big
+- [08:15.759] name, a very brilliant name, somebody
+- [08:18.400] who's done, I guess, in the history. I
+- [08:20.720] I'll make enemies when I say this, but I
+- [08:22.720] shouldn't because I think it's true. Uh
+- [08:25.680] Jamie Diamond is maybe the greatest
+- [08:27.599] banker in this country in many many
+- [08:30.000] decades. So CEO of JP Morgan Chase.
+- [08:34.320] Thank you Jamie.
+- [08:38.479] The president of General Dynamics, Danny
+- [08:41.440] Deep. And you know they make the
+- [08:42.719] greatest submarine of the world. They
+- [08:44.000] just have to make them faster. Danny,
+- [08:45.440] will you please make them faster? Like
+- [08:47.920] that's true with all of the munitions
+- [08:50.160] people actually. Faster. We need a
+- [08:52.240] little more speed. We have the best
+- [08:53.920] quality in the world, but we need a
+- [08:55.440] little more speed. The president of
+- [08:58.000] Henoa Defense USA, Michael Coulter.
+- [09:01.360] Thank you, Michael out there.
+- [09:05.600] The president and total boss of Boeing.
+- [09:08.959] That's Kelly Ortberg who's terrific guy.
+- [09:12.000] I think he just gave me the award for
+- [09:15.200] being the salesman of He started by of
+- [09:18.560] the year. I said, "That's not the year."
+- [09:21.440] Then he said, 'What about the decade?
+- [09:22.959] Nope. Much more than that. So it's a
+- [09:25.360] salesman. In the history of Boeing, I
+- [09:27.200] have sold more Boeing planes over a
+- [09:29.120] thousand and nobody comes close. You
+- [09:31.360] know what I got for that? Nothing. I get
+- [09:33.200] nothing now. If I was in the private
+- [09:35.519] sector, I'd say I want a piece of the
+- [09:37.120] company for that. Right. But Kelly,
+- [09:39.279] you've done a great job. You're bringing
+- [09:40.640] it really back. And you're up to 44
+- [09:42.640] planes now. 44. They're producing the
+- [09:45.279] planes at a very rapid rate. and Kelly
+- [09:48.959] has uh done a tremendous job. President
+- [09:52.160] of Northrup Grumman Kathy Warden made a
+- [09:55.440] just
+- [09:56.959] showed us a plane that I like a lot.
+- [09:59.360] President of Lheed Martin, Jim Tlet.
+- [10:02.560] Jim, thank you very much. Thank you,
+- [10:04.399] Jim. Good job you're doing. President
+- [10:06.640] and COO of Blackstone, a friend of mine
+- [10:09.360] from the real estate wars. He was a
+- [10:11.200] brilliant guy. I always said this guy's
+- [10:12.880] always there first. What's with him?
+- [10:15.519] John Gray. He's a real real estate
+- [10:17.440] genius and other geniuses now real
+- [10:20.079] estate he doesn't even have have to
+- [10:21.839] participate he said but you've done a
+- [10:23.519] great job and say hello to you know who
+- [10:25.680] he's a tremendous guy he's been a big
+- [10:27.440] help he's been a Steve has been a big
+- [10:29.760] help co-chairman of TWWG Global Thomas
+- [10:33.519] Tull thank you Thomas
+- [10:38.480] CEO of Divergent Technologies Lucas
+- [10:41.440] Zinger I just saw some of their
+- [10:43.839] technology it's amazing I saw
+- [10:46.240] some of those things backstage. You
+- [10:47.839] don't want to talk about them. They're
+- [10:49.040] pretty amazing. CEO of EQT, Toby Rice.
+- [10:54.959] Thank you, Toby. President of North
+- [10:58.720] America's building trades unions. Here's
+- [11:00.640] the most powerful man in the room. It's
+- [11:02.959] Dina for the women and it's this guy for
+- [11:05.200] the men, Sean McGarvey. Thanks. Thanks,
+- [11:09.519] Sean. Sean McGarvey. Good guy, too. and
+- [11:13.680] the founder of Valor Equity Partners,
+- [11:16.880] Antonio Gracius, and he's some somebody
+- [11:20.079] highly respected by everybody, including
+- [11:22.720] my family, my kids, and also helped us
+- [11:26.000] tremendously working at the early stages
+- [11:28.079] of the administration with cost because
+- [11:30.640] we inherited a cost mess. And he was
+- [11:33.600] fantastic and I want to thank him and
+- [11:35.920] Elon, too. Elon did a fantastic job.
+- [11:39.279] This year we're celebrating the 250th
+- [11:41.920] anniversary of American freedom. And no
+- [11:44.320] state has been more central to
+- [11:46.079] protecting that freedom than the
+- [11:48.079] Commonwealth of Pennsylvania.
+- [11:50.240] Pennsylvania is where America declared
+- [11:52.079] its independence. Where George
+- [11:53.519] Washington crossed to Delaware, where
+- [11:55.360] the Union was saved by the heroes of
+- [11:57.839] Gettysburg. What a war that was when you
+- [12:00.480] read about it. and where Pennsylvania
+- [12:02.880] workers poured the iron and steel that
+- [12:05.519] won two world wars and won lots of other
+- [12:07.839] things. In addition, with today's
+- [12:10.399] announcement, Pennsylvania will play a
+- [12:12.240] key role in building the arsenal of
+- [12:14.320] freedom to defend our nation. In the
+- [12:16.959] modern world, we have things happening
+- [12:19.279] in this state. I think really uh people
+- [12:22.240] don't know what's happening in
+- [12:23.440] Pennsylvania. People aren't really uh
+- [12:26.240] literally they're not able to even
+- [12:28.320] fathom what's going on. And I'm just
+- [12:30.480] sitting back there. I thought I was very
+- [12:32.079] well aware of it. And then I'm meeting
+- [12:34.959] people, very well-known people, and
+- [12:36.639] they're saying what they're doing here.
+- [12:38.480] Uh, we got to get the word out a little
+- [12:40.160] bit because this is very much of a
+- [12:42.079] miracle. Very much of a miracle. Highly
+- [12:44.720] respected people. The talent and
+- [12:47.120] innovation in this room will keep
+- [12:49.279] America safe for many years to come.
+- [12:51.839] They are very advanced, and most
+- [12:53.680] advanced equipment anywhere in the
+- [12:55.360] world. Under the Trump administration,
+- [12:57.839] we've invested a record $1 trillion in
+- [13:00.639] the United States military. And next
+- [13:02.959] year, I'm proud to say, and Pete, we
+- [13:04.800] have to get moving on this $1.5 trillion
+- [13:08.240] we're going up to. We need it. It's all
+- [13:10.000] made in the USA, so it's not, as Sean,
+- [13:13.200] it's not fully a cost. You know, it's
+- [13:15.680] cost. We got to take something, but it's
+- [13:17.839] called jobs. And uh when you think of it
+- [13:20.240] that way, but 1.5 I built the military
+- [13:23.600] in my first term and I used it in my
+- [13:25.600] second term. And as you know, Venezuela
+- [13:28.399] was that was actually 48 minutes, but
+- [13:31.279] let's call it one day. And we've paid
+- [13:33.600] for the cost of that war 50 times over,
+- [13:36.480] more than 50 times over already. And
+- [13:38.720] they've been great. The people from
+- [13:40.160] Venezuela, the leadership has been
+- [13:42.079] fantastic and we're working with them.
+- [13:44.399] And uh the big oil companies are moving
+- [13:46.639] in. They've made more money for
+- [13:48.639] themselves in the last few months than
+- [13:51.360] they made in the history of the country
+- [13:54.240] and it's just properly is being properly
+- [13:56.480] run. They have oil. They have so much
+- [13:58.560] oil. You find the oil there, Pete, you
+- [14:00.560] just look down on the ground and you
+- [14:02.000] say, "Oh, that's oil. Just drill it."
+- [14:04.880] There's very few places that have
+- [14:07.440] anything like that. But we have a great
+- [14:10.000] relationship with the leadership. We've
+- [14:11.680] worked with them very closely and we're
+- [14:13.839] bringing all the big American companies
+- [14:15.920] in and it's been very much of a miracle.
+- [14:19.199] Millions and millions of barrels a day.
+- [14:22.240] The spirit of our armed forces is the
+- [14:24.320] highest it's ever been with every branch
+- [14:26.480] setting records for recruitment. And I
+- [14:28.720] will tell you when during the campaign
+- [14:30.240] when I was running against Kamala, she
+- [14:33.279] had no clue. But Joe had no clue either.
+- [14:36.399] That's why they got him out of there. I
+- [14:38.480] had to run against two people. Everyone
+- [14:40.240] else runs against one person. You do
+- [14:42.079] well. They Joe wasn't doing too well. He
+- [14:44.240] was down like 28 points. So they said,
+- [14:46.560] "Let's replace him." That's like
+- [14:48.480] replacing a fighter. You're doing great
+- [14:50.720] against a guy. I said, "Let's put
+- [14:51.839] somebody else in." Fortunately, she
+- [14:54.000] wasn't much better than he was.
+- [14:56.880] And somebody said she's leading in the
+- [14:58.480] polls. That's not possible. But if she
+- [15:01.199] is, that's fine. You know, you got to go
+- [15:02.800] out. You got to win. But uh what's
+- [15:05.519] happened uh with the election? This was
+- [15:07.600] an amazing election. Think of it. We won
+- [15:10.079] every swing state. We won the popular
+- [15:12.480] vote by a lot. We won uh 80 2% 87%
+- [15:20.079] of the counties in America. That's a big
+- [15:22.240] when we won the electoral college. Uh we
+- [15:25.040] won everything but all seven swing
+- [15:26.800] states. The big thing was could anybody
+- [15:28.800] ever win all seven? We won all seven
+- [15:31.680] swing states and we won them by a lot.
+- [15:33.680] So it was a great great achievement.
+- [15:39.600] But when it came to uh joining the
+- [15:42.079] military, we had vacancies, empties. We
+- [15:45.839] had a situation that actually it was
+- [15:49.279] remedied largely, Pete, I think on
+- [15:51.120] November 5th when we won. It was even
+- [15:53.120] before we took office, it was remedied
+- [15:54.880] to a certain extent. And when we took
+- [15:57.040] office, so now we have overflow crowds
+- [15:59.600] trying to get into the military. And
+- [16:01.199] that includes our policemen, our
+- [16:02.639] firemen, anybody with a uniform on. They
+- [16:05.279] were very ashamed of our country and now
+- [16:07.120] they're very proud of our country. And
+- [16:09.120] we're setting recruitment records like
+- [16:11.600] we've never had before. In fact, it's a
+- [16:13.519] great time. If you want to expand the
+- [16:15.440] military a little bit, it wouldn't be
+- [16:16.800] bad because we cannot get we have
+- [16:19.680] unbelievable talented in good shape. In
+- [16:23.519] unbelievably good shape. You know, we
+- [16:25.360] had something pass in the United States
+- [16:28.240] Supreme Court. It was called Merit. And
+- [16:31.680] nobody thought that was going to happen.
+- [16:33.440] And I didn't think it was going to
+- [16:34.399] happen. Actually, we're in trying to get
+- [16:36.160] it. And everything now in our country
+- [16:38.560] again is based on merit. Getting into
+- [16:40.560] colleges is based on merit. When you
+- [16:42.959] have somebody with great boards, great
+- [16:45.440] marks, all A+es and A's and the highest
+- [16:48.240] board marks and then doesn't get it
+- [16:50.320] because somebody with far less
+- [16:51.920] capability gets in. It's nasty, but
+- [16:55.120] it's, you know, our country was built on
+- [16:57.360] greatness and it was based on success.
+- [16:59.680] It was based on merit. And now we have
+- [17:02.079] that and that includes the military and
+- [17:03.920] the people that we have in this
+- [17:05.120] military. You can send most of them to
+- [17:06.799] Hollywood and they could become like
+- [17:09.520] movie stars. They are unbelievable. And
+- [17:12.480] you saw that in Venezuela. I saw I I met
+- [17:14.959] them backstage and these are people that
+- [17:17.760] are it's a whole it's a whole different
+- [17:21.039] ball game. So I just want to thank
+- [17:23.760] everybody the the that was a decision
+- [17:26.319] that was a tough decision to make and it
+- [17:28.960] took courage to make that decision.
+- [17:30.799] Nobody thought that was going to be
+- [17:32.320] made. But they gave us back our
+- [17:34.240] beautiful merit system. And now the best
+- [17:38.000] people get into the best positions. They
+- [17:40.240] get into the best schools. They get into
+- [17:42.320] the military. We actually have strong
+- [17:44.640] people going into the military now as
+- [17:46.559] opposed to people that aren't strong or
+- [17:48.720] that shouldn't be there. And it's like I
+- [17:51.200] call it central casting Washington DC.
+- [17:53.840] We're using the military in there and
+- [17:55.919] our our crime rates down 92%.
+- [17:59.280] And it's gone from an unsafe city to one
+- [18:01.360] of the safest cities, the capital. One
+- [18:03.760] of the safest cities anywhere in the
+- [18:05.679] country. Restaurants are booming. The
+- [18:08.080] restaurants were all closing. People
+- [18:09.440] were afraid to go to a restaurant. We
+- [18:11.520] took out over 5,000 criminals. We got
+- [18:13.679] them out of here. We got them sent them
+- [18:15.039] back to their country. Many of them came
+- [18:16.720] through the Biden open borders, which
+- [18:19.039] was insanity. We got them out of this
+- [18:21.280] country. And we uh we did a real job in
+- [18:24.000] Washington DC. And I will say Memphis is
+- [18:26.799] a similar kind of a thing. a little bit.
+- [18:29.039] We started it a little bit later, but
+- [18:31.280] they're down in crime 78% and New
+- [18:34.400] Orleans, Louisiana, the governor called
+- [18:36.400] me up. Jeff Landry, great guy. He called
+- [18:38.320] me and he said, "We have a problem. We
+- [18:39.760] have the Marty GR coming up and this
+- [18:41.440] place is loaded up with crime." And we
+- [18:43.919] sent in the National Guard and others.
+- [18:46.240] And uh it was the safest that is on
+- [18:49.840] record, the safest uh martyra on record.
+- [18:53.520] They've never had anything like it. He
+- [18:54.960] called me two two days later. He said,
+- [18:56.559] "I've never seen anything like it." It's
+- [18:58.559] a terrible expression. He said, "Nobody
+- [19:00.240] was killed." Well, that doesn't sound so
+- [19:02.080] good to say, frankly, in one way, but in
+- [19:04.720] another way, many people would be killed
+- [19:06.880] during Montig consistently. And now it
+- [19:09.600] was the safest they've had, he said, in
+- [19:11.840] 67 years. So, that's pretty good. But
+- [19:14.799] we're going out for the 1.5 trillion
+- [19:16.880] this year. And I think we're going to be
+- [19:18.080] able to get it. And we're going to get
+- [19:20.000] it because we have so much money coming
+- [19:22.000] in. The tariffs have made this country
+- [19:23.840] so rich and they've made this country so
+- [19:26.400] competitive. In order to not pay
+- [19:28.559] tariffs, people are coming out and
+- [19:30.640] they're leaving Mexico and they're
+- [19:32.400] leaving. Uh, in fact, it was just
+- [19:34.480] announced that Toyota is leaving Mexico.
+- [19:36.480] Toyota is going to build one of the
+- [19:37.760] largest plants in the world, car plants
+- [19:39.520] in the world in Texas. Uh, but many,
+- [19:42.799] many companies, they left us and they
+- [19:45.520] went to Mexico, Canada, Japan, Germany,
+- [19:48.640] they went all over the place. South
+- [19:50.160] Korea, they're all pouring back. The car
+- [19:52.880] plants, the AI plants, they're all
+- [19:54.640] coming back. If they don't, they have to
+- [19:56.240] pay taxes. The chips, we had this
+- [19:58.480] ridiculous chips act where you give
+- [20:00.000] billions of dollars to a company and
+- [20:01.600] they didn't even know what the hell to
+- [20:02.720] do with it. You give them billions of
+- [20:04.559] dollars, they say they're going to
+- [20:05.520] build, nobody knew what to do with it.
+- [20:07.679] And of course, the standards were so
+- [20:09.280] high if you weren't transgender, as an
+- [20:11.919] example, uh you didn't qualify. So they
+- [20:15.840] get the money. They hired they look all
+- [20:17.520] over for transgender people to run the
+- [20:20.480] company. Large portions. They couldn't
+- [20:22.720] find them. They weren't into the chipm,
+- [20:26.400] right? They had other things on their
+- [20:28.320] mind. But uh this was the Biden fools,
+- [20:31.520] those idiots that almost destroyed our
+- [20:33.520] country. But we're also reasserting the
+- [20:36.960] fundamental truth. To be a strong
+- [20:39.039] nation, you must be a manufacturing
+- [20:41.200] nations and manufacturing jobs. when you
+- [20:44.000] see these plants start to open. So,
+- [20:46.559] we're building now at a record that
+- [20:49.679] we've never even I don't think any
+- [20:51.440] country's ever approached this record
+- [20:53.120] again. We have 19.2 trillion being
+- [20:55.840] invested and there's never been anything
+- [20:58.400] like it. You go back years and years and
+- [21:00.640] it's China had the record with $3
+- [21:03.039] trillion and we're at $19.2 trillion.
+- [21:06.559] There's never been anything like it.
+- [21:07.679] These are going to be starting to open
+- [21:09.120] in six or seven months. I mean, it's
+- [21:11.600] unfair because, you know, whoever the
+- [21:13.200] next president is is going to be sitting
+- [21:14.799] up here someday said, "What a great job
+- [21:16.559] I did. What a great job. I did the
+- [21:19.520] greatest job." Jamie, he's going to be
+- [21:21.520] talking about what a brilliant president
+- [21:23.360] he is. And I'll be home and I'll be
+- [21:25.919] saying that son
+- [21:29.200] because we did the job. We did the job.
+- [21:32.080] And we're clearing every obstacle to
+- [21:34.400] building the defense industrial base.
+- [21:36.720] And so many people I was shaking hands
+- [21:38.559] backstage. It just came up and they said
+- [21:41.200] we couldn't even function two years ago
+- [21:43.679] in this country. We couldn't get
+- [21:44.960] anything built. We couldn't get
+- [21:46.159] approvals. We couldn't do anything. And
+- [21:48.480] now we we're we've never we cannot
+- [21:50.799] imagine the change. They said five or
+- [21:53.600] six of the people building
+- [21:55.760] defenseoriented things. They said we
+- [21:58.559] have no idea how this how this has
+- [22:00.559] happened to this extent. He said we're
+- [22:02.480] we look forward to going to work. We get
+- [22:04.240] our approvals fast. We came up with a
+- [22:07.039] concept like on AI and other things that
+- [22:09.919] are big rather than going to our old
+- [22:12.400] very old and fragile grid. We maintain
+- [22:15.280] it but it's old and not up to date. It
+- [22:18.400] was let go by a lot of people that were
+- [22:20.960] in my position. They shouldn't have done
+- [22:22.640] that. But I came up with the idea to let
+- [22:25.120] them build their own power plant. So
+- [22:26.799] they're building their own power plant.
+- [22:28.320] So, you know, people would complain
+- [22:30.320] about uh the grid, but actually they're
+- [22:32.960] giving their excess electricity back
+- [22:34.880] into the grid. It's a phenomenal thing.
+- [22:36.880] But they're coming up with uh power.
+- [22:39.520] They're doing their own they're they're
+- [22:41.120] really becoming a utility. They're
+- [22:43.440] becoming actually in addition to AI,
+- [22:45.520] they're also becoming utility and
+- [22:47.120] they're building some of the greatest
+- [22:48.960] power plants anyone has ever seen. We
+- [22:51.520] don't want wind because it's terrible,
+- [22:53.919] doesn't work. these countries that go to
+- [22:55.679] wind. You go to wind, you lose your way,
+- [22:57.679] you go out of business. Look at what's
+- [22:58.960] happening in the United Kingdom. Wind
+- [23:01.200] all over the place. Doesn't doesn't
+- [23:03.200] work. Too expensive. Everything's made
+- [23:05.840] in China. And remember, you have to
+- [23:08.000] replace them after eight or nine years.
+- [23:09.760] You know, it's wonderful if they were
+- [23:11.120] there, but you got to replace them all
+- [23:12.400] the time because they wear out. The salt
+- [23:14.080] water kills them. It's ridiculous. And
+- [23:17.200] uh we have uh the oil and gas. We have
+- [23:19.520] the a number of people back there with
+- [23:21.440] the nuclear. Nuclear is hot. has become
+- [23:23.280] safe and uh we got to keep it safe but
+- [23:26.000] has become safe but we have uh
+- [23:28.159] tremendous new things happening and some
+- [23:31.600] of these power plants that are being
+- [23:33.120] used for AI and other things that
+- [23:35.520] they're building are so far advanced
+- [23:38.400] from what you're used to when you look
+- [23:39.919] at Khan Edison you look at the old
+- [23:41.760] companies it's fine they get the job
+- [23:44.159] done but these are tremendous
+- [23:46.400] advancements that nobody would have ever
+- [23:48.480] come up with except for this group of
+- [23:50.640] seriously brilliant people. After
+- [23:52.960] decades of foreign countries ransacking
+- [23:55.360] Pennsylvania and all of our country,
+- [23:57.200] they ransacked our country and stealing
+- [23:59.679] our jobs, I imposed historic tariffs to
+- [24:02.159] protect the American copper, aluminum,
+- [24:04.320] steel, and many, many other project like
+- [24:07.200] cars. And uh because of that, they're
+- [24:11.520] all coming back. This could have been
+- [24:13.039] done by a president if he knew you
+- [24:15.279] wouldn't have a Taiwan making 100% of
+- [24:18.320] the chips. I think by the time I leave,
+- [24:20.880] we'll be we'll have almost 50% of the
+- [24:23.120] chips being made in the United States
+- [24:25.440] worldwide. They're moving here like you
+- [24:28.080] wouldn't believe it
+- [24:33.039] with no investment. I'm not giving
+- [24:36.159] people billions of dollars. I'm not
+- [24:38.080] saying to some chip company, here's $30
+- [24:41.279] billion, good luck in finding a site.
+- [24:44.159] That's what this stupid chips act was.
+- [24:46.320] Hundreds of billions of dollars just
+- [24:48.159] wasted. Half of the people never even
+- [24:50.159] used the money. I didn't give them 10
+- [24:51.440] cents. I said
+- [24:53.520] you're going to pay nothing for two for
+- [24:55.120] a year. After that, you're going to pay
+- [24:57.440] 10%. After that, you're going to pay
+- [24:59.120] 25%. Gives you two and a half years to
+- [25:01.919] build your factory. If you don't build
+- [25:04.080] it by that time, you pay 200%.
+- [25:07.120] Meaning you're sending chips in. You
+- [25:08.960] have a 200% tariff. They're building
+- [25:11.520] like crazy. And the biggest chip company
+- [25:13.919] in the world is building. And they just
+- [25:15.760] announced that they're expanding by
+- [25:17.039] another 200 billion. They're spending
+- [25:19.600] most of their money in Arizona, a great
+- [25:21.440] place to invest, but they're spending an
+- [25:24.000] extra $200 billion. It's the biggest
+- [25:26.000] chip company in the world. But we passed
+- [25:28.640] the largest tax cuts in American
+- [25:30.640] history. We delivered 100% expensing.
+- [25:33.279] That's the big one. That's I think we
+- [25:35.200] had the greatest economy in the history
+- [25:36.799] of our country in my first term. We then
+- [25:39.200] got hit with CO, but even including CO.
+- [25:41.600] We did a great job in CO. We never got
+- [25:43.520] credit for it, but every country was
+- [25:45.679] ripped apart by that disaster. Uh, we
+- [25:49.520] know where it came from. It came from
+- [25:51.200] Wuhan. And I said that, but we were all
+- [25:54.240] ripped apart. And China got hit very,
+- [25:56.000] very hard. It was delayed. They got hit
+- [25:58.000] very hard at the end. But, uh, it was a
+- [26:02.400] terrible thing. But we had the greatest
+- [26:04.159] economy in history. And before CO,
+- [26:06.799] nobody had ever seen anything like it.
+- [26:08.320] But if you just took those three years
+- [26:10.799] uh and look at what we're doing now,
+- [26:13.120] we're going to blow them away. I mean,
+- [26:14.480] unless some horrible event happens,
+- [26:16.880] which is always possible. You know, we
+- [26:18.799] always have to at least think about the
+- [26:21.200] horrible events. Who would have thought
+- [26:22.480] that COVID could have happened? A thing
+- [26:24.559] like that could have happened, but we
+- [26:26.880] delivered 100% expensing. And that
+- [26:29.279] expensing, I think, where you write it
+- [26:30.799] off in one year. I have friends that
+- [26:32.640] bought things that frankly they didn't
+- [26:34.159] need. I have a friend that never flew on
+- [26:35.679] a private plane in his life and he ended
+- [26:37.360] up going out buying a very expensive
+- [26:38.960] private plane because of expensing one
+- [26:41.760] year and a lot of you you're building
+- [26:43.679] your plants more importantly than an
+- [26:45.440] example like that. You're building your
+- [26:47.120] plant and equipment. Jamie can expand
+- [26:49.760] his bank right off everything in the
+- [26:51.760] first year. U and you're doing a nice
+- [26:54.240] job. Your building is beautiful by the
+- [26:55.919] way. It's great. You can write that
+- [26:57.760] sucker off in one year. Can you believe
+- [26:59.600] it? Now that stands up there. That steel
+- [27:02.080] I want to know that steel contractor. He
+- [27:03.840] did a good job, a great job actually.
+- [27:06.480] But we delivered 100% and uh I felt it
+- [27:09.760] was very important to do so and it goes
+- [27:11.360] for a 10-year period. So it doesn't just
+- [27:13.919] I actually want to make it for one year
+- [27:16.240] because I figured everybody's going to
+- [27:17.840] come. 10 years is too long. But we had a
+- [27:20.080] couple of senators that really won
+- [27:22.080] including a man named Lindsey Graeme who
+- [27:24.240] we love and Lindsay we pay you respect
+- [27:27.200] because he was some special guy.
+- [27:29.279] Lindseay David was a big proponent of 10
+- [27:32.240] years instead of one. In other words,
+- [27:33.679] you could use this for 10 years instead
+- [27:35.440] of one. I said, "But Lindsay, 10 years
+- [27:37.520] is too long. It lets him It let it gives
+- [27:40.080] him too much time." He said, "Oh, no. We
+- [27:41.919] have to do this." I said, "No, go ahead,
+- [27:43.840] Lindsay. What the hell do you know about
+- [27:45.200] business, Lindsay?" Right. But he was he
+- [27:48.240] was great. We're going to miss him.
+- [27:49.520] Right, David?
+- [27:50.720] >> We're going to miss that guy. What a
+- [27:52.320] what a way he was.
+- [27:59.760] You know, he he's a guy I'm just
+- [28:01.200] thinking he's a guy that we some people
+- [28:03.840] you don't appreciate until they're not
+- [28:05.440] here, right? And you just saw all the
+- [28:07.679] quality that he had. He got things done.
+- [28:10.399] He could even deal with Democrats. If I
+- [28:12.559] needed a Democrat, I could go to Lindsay
+- [28:15.279] and Lindsay would take him out and whine
+- [28:17.279] him and dine him, say, "I got them for
+- [28:19.120] you." Right? There aren't too many
+- [28:21.039] people could do that. David and I know
+- [28:23.120] it very well. But the expensing was so
+- [28:25.760] important. I think it's really what uh
+- [28:28.080] led to the tremendous success because we
+- [28:29.919] had it in the first year and in the
+- [28:32.080] first administration and I think that
+- [28:33.840] was what led to single the single most
+- [28:37.279] important thing I think in terms of
+- [28:38.640] investment was the one-year expensing. I
+- [28:41.279] think people were building sometimes
+- [28:43.840] maybe they shouldn't have been but they
+- [28:45.440] were building at levels and then it
+- [28:46.880] caught up. We passed the largest
+- [28:49.279] regulation cuts in American history by
+- [28:51.679] far. And we unleashed American energy,
+- [28:54.240] including Pennsylvania oil, gas, and
+- [28:56.240] clean, beautiful coal. We're back in the
+- [28:58.559] coal business. We We have so much so
+- [29:01.279] much technology and changes have been
+- [29:03.520] made in coal. And in the Trump
+- [29:05.679] administration, you're not allowed to
+- [29:07.120] use the word coal without preceding it
+- [29:09.039] by the words clean, beautiful, and uh
+- [29:12.399] Chris Wright, who you know so well, and
+- [29:14.559] Doug Bergam. They've been a fantastic
+- [29:17.039] team and they were making a speech and I
+- [29:21.360] said you nobody can say coal without
+- [29:23.840] preceding it with clean beautiful but
+- [29:25.679] this whole speech was on coal and they
+- [29:27.840] kept saying clean beautiful coal clean
+- [29:30.080] beautiful coal and I said okay it's
+- [29:32.000] enough you you know but it is it's uh
+- [29:35.600] and look you know I hate to say but it's
+- [29:37.360] what China uses they're building now 58
+- [29:40.399] massive coal plants and you know they're
+- [29:43.440] responsible for building the windmills
+- [29:45.919] and I said, "How many windmills are they
+- [29:47.679] building in terms of using on their
+- [29:49.919] land, John? I want to know if you if you
+- [29:52.559] see any, let us know." They got coal
+- [29:54.799] plants all over the place, but they
+- [29:56.399] build the windmills, but the only one
+- [29:58.960] they have that I know of is one that
+- [30:00.399] they want to use. They use it to they
+- [30:02.240] don't use it in terms of energy. They
+- [30:04.240] showed people, look how beautiful this
+- [30:05.919] is as those poor suckers buy those
+- [30:08.559] windmills and lose their ass. But it's
+- [30:11.200] it's a terrible form of energy. most
+- [30:13.360] expensive form of energy. It's
+- [30:15.440] intermittent. Doesn't work. And in my
+- [30:17.279] opinion, it kills the environment. It
+- [30:18.880] kills kills the birds, but it's visually
+- [30:22.240] it's terrible. It's it's terrible. It's
+- [30:24.080] a terrible thing. And I'm proud to say
+- [30:26.159] that we have approved almost none. I
+- [30:28.960] think none, but we are uh they are
+- [30:32.080] everybody's under an order. No wind. We
+- [30:33.840] don't want the windmills. We don't want
+- [30:35.200] them. And let somebody else use them.
+- [30:38.640] But everybody using them is in very big
+- [30:41.120] trouble. uh they're in energy trouble
+- [30:44.640] because they don't work and very
+- [30:46.559] expensive most expensive form of energy
+- [30:48.640] and they don't work and I've been saying
+- [30:50.640] it for four or five years and people
+- [30:52.159] still buy them maybe not quite like they
+- [30:54.399] used to but people still buy them it's
+- [30:56.080] crazy but we unleashed American energy
+- [30:58.880] including the Pennsylvania oil and the
+- [31:01.760] Pennsylvania oil is doing unbelievably
+- [31:04.320] well we saved the great American company
+- [31:06.880] US Steel and I worked with Selena Zto I
+- [31:10.320] don't know if Selena is Here's Selena
+- [31:12.000] here. She's so Where's Selena? Where is
+- [31:15.360] Selena? I love Selena. Where is she?
+- [31:17.679] Queen of the rust belt. But you're no
+- [31:19.600] longer the rust belt. You're really the
+- [31:20.960] money belt. I have a new name. Selena,
+- [31:22.960] are you here?
+- [31:23.919] >> I'm here.
+- [31:24.880] >> Come on up here, Selena. Will you? She's
+- [31:27.600] the queen.
+- [31:29.520] She is the queen of the rust belt
+- [31:32.640] now. She's the queen of the And be
+- [31:34.480] careful. Don't fall down the stairs like
+- [31:36.240] Biden.
+- [31:38.559] Come on, Selena. Get down here. Grab
+- [31:40.399] her, everybody. I want to show you a
+- [31:42.000] woman that knows what she's doing. You
+- [31:44.720] know, she knows what she was doing.
+- [31:49.519] I had no idea she'd be here, but
+- [31:51.519] anything having to do with Pennsylvania,
+- [31:53.679] any of these great states, uh, she's
+- [31:56.159] around. Well, Selena, I want to thank
+- [31:58.399] you. You're really a talent. That's only
+- [32:00.399] because she writes so well about me. You
+- [32:02.159] know, if she wrote badly, I'd say, "Get
+- [32:04.240] her the hell out of here." Selena, thank
+- [32:07.440] you, honey, very much. We appreciate it.
+- [32:09.360] really amazing person.
+- [32:12.559] Thank you.
+- [32:15.679] No, she loved this area. She loved the
+- [32:17.600] people and she saw it going to hell. And
+- [32:19.760] she knew more about it than anybody
+- [32:21.519] else. And she also knew it had more
+- [32:23.840] potential because of the people that and
+- [32:26.480] she would write about it like nobody
+- [32:28.880] would believe. And she's one of the top
+- [32:30.799] writers in the country. And she I hate
+- [32:32.399] to say this, she writes for the
+- [32:34.000] Washington Post, but she's one of as one
+- [32:36.720] of her many outlets. I hate to mention
+- [32:38.559] that, but uh but she's done a phenomenal
+- [32:42.320] job of explaining what's going on. And
+- [32:44.320] she really just believed in the area,
+- [32:45.679] but she believed in the people of the
+- [32:47.200] area. They're incredible. You're going
+- [32:48.720] to find all of you genius that are
+- [32:50.399] building the your plants. You got the
+- [32:52.480] best people in the world working here.
+- [32:54.559] So just to finish up uh we did more in
+- [32:58.399] terms of regulation cut cuts by five
+- [33:02.159] times, six times and even in some cases
+- [33:04.559] depending on the way you look at it
+- [33:05.919] seven times than any other president. We
+- [33:08.799] delivered no tax on tips, no tax on
+- [33:11.840] overtime and no tax on social security.
+- [33:15.440] And we're building a beautiful military
+- [33:18.159] complex and a ballroom combination uh at
+- [33:21.120] the White House. And they were working
+- [33:22.559] on Saturday and Sunday, partially
+- [33:25.440] Sunday. And I went and visited a couple
+- [33:28.080] of hundred men that were working round
+- [33:29.679] the clock. It was Saturday night, late,
+- [33:31.760] very late, 11:00 in the evening if you
+- [33:33.679] And I said, "You're so lucky I'm
+- [33:36.240] president because there's no tax on
+- [33:38.960] overtime. Think of it. They're making a
+- [33:41.679] lot of money and there's no tax on
+- [33:43.039] overtime, but there's no tax on tips, no
+- [33:44.960] tax on social security." And that's been
+- [33:47.279] good. And the other thing we did, which
+- [33:49.360] seems simple but never done before, when
+- [33:52.080] you buy an automobile, some people have
+- [33:53.919] to pay and they have to go and borrow
+- [33:56.000] money from a bank. You're allowed to
+- [33:57.360] deduct the interest payment from your
+- [33:59.600] income taxes. And that's a big deal, but
+- [34:02.640] only if the car is made in America. So
+- [34:07.120] that's been great. So all of these
+- [34:09.119] things have added up to a level that
+- [34:11.200] we're just we're booming. The country is
+- [34:13.359] booming and we'll have Iran defeated
+- [34:15.760] soon. they'll be defeated very soon
+- [34:23.280] and then I guess it'll be even better.
+- [34:24.960] But you know, even during this it's been
+- [34:27.119] it's been amazing. I mean to think so I
+- [34:29.919] call it a military operation but I call
+- [34:32.480] it whatever you want. It's uh
+- [34:34.560] incredible. It's like it hasn't made a
+- [34:37.040] dent. A lot of people thought oil would
+- [34:38.399] go up to $350 a barrel and it's today
+- [34:41.679] it's at $79. A couple of days ago, it
+- [34:45.440] was at 68. It went up a little bit
+- [34:48.000] because I had to take tough action
+- [34:50.480] because they did not uh obey what
+- [34:53.359] they're supposed to obey. I mean, they
+- [34:55.040] just didn't do it. So, we took a little
+- [34:57.040] action, but it'll all when that settles
+- [34:59.040] down, you'll be I think you're going to
+- [35:00.320] have $55 oil, which is all great for
+- [35:03.760] what you're doing. Maybe less than that.
+- [35:06.000] But this year alone, we've added $18,000
+- [35:08.240] new manufacturing jobs. And that number
+- [35:10.079] could go up by 10 and 15 times. uh as
+- [35:13.440] these factories begin to open including
+- [35:15.839] remember Obama used to say you'll never
+- [35:18.000] have another manufacturing job in the
+- [35:20.000] United States can you imagine and these
+- [35:22.480] are the best jobs these are the highest
+- [35:24.160] paying jobs they're the best jobs he
+- [35:25.760] used to say it all the time people would
+- [35:27.760] say oh that's so bad you talk about him
+- [35:29.839] that way but he did a bad job and he was
+- [35:32.240] very bad on Iran because he basically
+- [35:34.400] gave them the money made a what a
+- [35:36.240] horrible deal he went away from Israel
+- [35:38.320] and he went to Iran and that's part of
+- [35:40.560] the reason that we're stuck with this
+- [35:42.560] whole situation, but including more than
+- [35:45.119] 3,000 new manufacturing jobs right here
+- [35:47.520] in the Commonwealth. And the number will
+- [35:49.839] go up many times that over the next
+- [35:51.760] couple of years and less than two years
+- [35:53.839] ago, we were a dead country. I say it
+- [35:55.680] all the time. King of Saudi Arabia told
+- [35:58.240] me, I was with him two years ago. He
+- [35:59.920] said, "You know, it's amazing. Just a
+- [36:03.440] little while ago, you were a dead you
+- [36:05.760] were a dead country and now you're the
+- [36:07.920] hottest country anywhere in the world."
+- [36:09.599] Every leader, I just got back from NATO.
+- [36:12.240] Every leader said the same thing. You're
+- [36:15.119] the hottest country anywhere in the
+- [36:16.640] world. And they treated me like that.
+- [36:18.000] They're not treating me. They're
+- [36:19.119] treating me because of the country.
+- [36:21.119] We're the hottest country anywhere in
+- [36:22.800] the world. And a year ago, two years
+- [36:24.960] ago, we were a dead We were a dead
+- [36:26.800] country. It was an embarrassment. So
+- [36:29.920] now, uh, with all of that being said,
+- [36:32.000] just yesterday, it was announced that
+- [36:34.079] inflation saw the largest monthly
+- [36:36.720] decline in six years. Can you imagine
+- [36:38.880] that? Six years. So we inherited
+- [36:44.160] we inherited the highest inflation in
+- [36:46.960] the history of our country. And uh it
+- [36:50.000] was really amazing. You know, we
+- [36:51.200] inherited it and then I had my first
+- [36:54.000] news conference the day after I took
+- [36:55.680] office and they said affordability.
+- [36:59.280] Affordability. They go that's a fake
+- [37:01.599] word that they use. They cause the
+- [37:03.200] affordability problem. It's called high
+- [37:05.760] prices. They came up with this word.
+- [37:07.359] They're good at coming up with words,
+- [37:09.520] but we came up with a good word, too.
+- [37:11.200] They're Democrats. Dumb. You take the
+- [37:13.839] the B out. Most people don't know that
+- [37:15.680] dumb has a B. Okay. But the U replaces
+- [37:20.480] the E and you have a Democrat. And I
+- [37:22.880] just don't understand because their
+- [37:24.160] policy is so dumb. What they've done to
+- [37:26.800] this country and what they will do to
+- [37:28.480] the country if we don't win the midterms
+- [37:30.000] or win the election. Everything that I'm
+- [37:32.320] talking about, you can just write it off
+- [37:34.560] because it'll revert back to open
+- [37:36.320] borders. It'll revert back to ridiculous
+- [37:38.480] high interest rates. And again, we
+- [37:40.640] should have the lowest interest rate of
+- [37:42.720] any country anywhere in the world
+- [37:44.320] because we make them all sing. But since
+- [37:46.800] I took office, defense investments in
+- [37:49.040] Pennsylvania are up by nearly 25%
+- [37:51.920] compared to crooked Joe Biden. And today
+- [37:54.800] we're adding 10 billion. And I think the
+- [37:57.520] number is going to end up being about 19
+- [37:59.119] or 20 billion. And we'll be building two
+- [38:02.320] massive national security multi-m
+- [38:04.400] missission vessels at the beautiful and
+- [38:06.720] historic Philadelphia shipyard. I met
+- [38:08.560] all the guys doing this worth up to $
+- [38:11.200] 1.5 billion. And it's a purchase of lots
+- [38:14.720] of vessels. We're going to have a lot of
+- [38:16.160] vessels being made there. We're also
+- [38:18.800] thinking about doing some purchases
+- [38:20.480] outside of companies that come here and
+- [38:23.200] build. They have to retach us. You know,
+- [38:24.800] we used to make a ship a day and now
+- [38:27.280] we're a lagard in that department. We do
+- [38:29.440] lots of great things, but we're a lagard
+- [38:31.280] there. And a lot of our shipyards were
+- [38:33.680] sold for real estate projects on the
+- [38:36.320] water. I bought one actually. It was
+- [38:38.240] quite nicely located, but I didn't know
+- [38:40.480] I'd be president. If I knew I'd be
+- [38:41.920] president, I wouldn't have done it. I'd
+- [38:43.040] say I'd rather have a shipyard. Right.
+- [38:45.119] But it worked out okay. You know, they
+- [38:46.640] had the best locations. A lot of those
+- [38:48.240] locations were sold. And we have to
+- [38:50.400] build our navy, Pete. Right. We got to
+- [38:52.160] get it going. So, we're going to
+- [38:53.920] probably look at some of these companies
+- [38:55.839] that are coming in from South Korea and
+- [38:58.320] other places, and they're working with
+- [38:59.920] us on ships. And we're going to also
+- [39:02.640] build we're going to also buy some ships
+- [39:05.200] that are made outside of the area. And
+- [39:08.560] uh we're going to have a lot of we need
+- [39:09.920] a lot of ships for our navy. A lot of
+- [39:12.079] ships despite the fact we have the
+- [39:13.599] greatest navy in the world, but our
+- [39:14.880] ships are getting older. And we really
+- [39:16.960] got out of that business. Uh, we built
+- [39:19.119] an aircraft carrier for $19 billion,
+- [39:21.920] which is crazy. The price is crazy. It
+- [39:24.560] started off at I came in, one of the
+- [39:26.640] first things I went to see was the Ford
+- [39:28.480] aircraft carrier. It was way over budget
+- [39:30.960] and uh it had u it had things on it that
+- [39:35.280] you didn't need like uh it had magnet
+- [39:39.680] magnets to lift up the elevators with 10
+- [39:42.560] and 12 planes on them. Think of it. It
+- [39:45.280] had all sorts of modernday things that
+- [39:48.960] were all instead of using steam for the
+- [39:52.320] catapults, they used electric. Let's
+- [39:54.720] have an electric catapult. And so when I
+- [39:57.440] went to the ship because I came into
+- [39:59.040] office and the ship was way over budget
+- [40:01.920] built in Newport News, unfortunately was
+- [40:04.640] way over budget. It was going to cost
+- [40:07.119] three billion. It was up to like 18 19.
+- [40:10.320] It was terrible. And I said, I want to
+- [40:12.720] meet the catapultter.
+- [40:14.560] And a man came over along with four of
+- [40:16.480] his assistants. And I said, "What's
+- [40:18.000] better, electric catapult or steam?"
+- [40:20.880] He's been there for 25 years. He said,
+- [40:22.960] "Steam is better, sir. We can fix it
+- [40:25.680] with a hammer and a blowtorrch. When the
+- [40:27.920] electric goes bad, I have to send to MIT
+- [40:30.079] to get geniuses over here." I said,
+- [40:32.640] "Steam is better." Yes, sir. It's
+- [40:34.400] better. So, why did they do electric?
+- [40:36.400] Because you can have the catapult go
+- [40:38.320] like this. But you can't put planes on
+- [40:40.320] it, sir. It takes you 39 seconds. By the
+- [40:43.359] time the 39 seconds is up, you have a
+- [40:45.359] full head of steam. And I love breathing
+- [40:47.599] that steam, sir. That's the cleanest air
+- [40:49.680] you've ever seen. But I said, "So,
+- [40:52.160] you're saying we spent billions of
+- [40:53.760] dollars extra to build electric
+- [40:55.520] catapults instead of using" And I said,
+- [40:58.079] "What else do you hear?" He said, "Uh,
+- [41:00.079] the elevators are no good, sir. They're
+- [41:02.480] lifted up by magnets." So, here's my
+- [41:05.040] deal. I said, "When Caterpillar
+- [41:07.040] tractor," and I watch I watch more
+- [41:09.520] tractors than any human being on Earth
+- [41:11.680] rip Earth. rip rock right through rock.
+- [41:14.480] It's all hydraulic. So I said when
+- [41:17.359] Caterpillar goes into the business of
+- [41:20.400] using magnets to lift up their little
+- [41:24.400] blades when they go in and when they go
+- [41:26.640] away from hydraulic. Uh I'll tell you
+- [41:29.040] what, I'm going to do something. I'm
+- [41:30.480] going to start using magnets, but we
+- [41:31.920] don't want to use them. So, we're not
+- [41:33.040] letting any Pete We're not letting any
+- [41:35.200] more ships be built with the ridiculous
+- [41:38.319] the billions of dollars more they spent
+- [41:41.119] on uh electric catapults and they're not
+- [41:44.240] good. They're not nearly as good, too
+- [41:47.119] complex. And by the way, we had to call
+- [41:49.520] the ship in twice because the catapults
+- [41:52.000] didn't work. And I predicted that was
+- [41:53.520] true. And the same thing with the
+- [41:56.319] magnetic elevators. We want them to be
+- [41:59.040] made hydraulic, which it can. It can be
+- [42:01.040] hit by lightning. It can be hit by
+- [42:03.280] anything. When a little water touches
+- [42:05.200] the magnets, it doesn't work anymore.
+- [42:06.880] And you're writing, you you're in the
+- [42:08.240] Atlantic Ocean with waves that are 60
+- [42:10.880] feet high and the Pacific Ocean with
+- [42:13.599] waves that are 70 feet high, and they're
+- [42:16.400] talking about magnets. It makes you want
+- [42:18.480] to get sick. I actually called in the
+- [42:21.040] architect of the ship and I said, "Have
+- [42:23.599] you designed a ship before?" Well, I
+- [42:26.240] haven't spent a lot of time on that,
+- [42:28.079] sir. No,
+- [42:30.160] even even the cab, you know, the tower,
+- [42:32.319] they have it in the back instead of in
+- [42:33.760] the middle. It's supposed to be in the
+- [42:34.800] middle where you have more room. I said,
+- [42:36.079] "Why'd you move?" Well, we thought it
+- [42:38.160] was very good. Why did you do it? And
+- [42:40.480] why is the ammunition under the where
+- [42:43.280] the admiral is, the tower? They have the
+- [42:45.599] tower and they have the ammunition under
+- [42:47.440] the tower. I say, "If I'm the enemy, I
+- [42:50.160] know where I'm aiming these people." And
+- [42:52.720] the thing cost like $20 billion dollars.
+- [42:55.040] It's ridiculous. All right. So, we're
+- [42:56.720] changing all of that, right, Peter?
+- [42:58.640] You'll be fired so fast if you don't.
+- [43:02.640] No, but a lot of this is common sense
+- [43:04.480] stuff. Really? I mean, hope I'm not
+- [43:06.480] boring anybody, but it's all common
+- [43:08.720] sense. This isn't exactly part of my
+- [43:10.319] speech, but I got to tell you, you know,
+- [43:12.720] I'm getting it all out now. All the
+- [43:14.560] anger I have when I hear about electric
+- [43:16.560] catapults that don't work.
+- [43:19.760] Crazy.
+- [43:23.280] Yeah, it's crazy. But okay, I hate to
+- [43:25.680] mention this name now because they are a
+- [43:27.280] little slower than we want, but that's
+- [43:28.800] okay. General Dynamics will invest $2.5
+- [43:32.079] billion in roads industries to build
+- [43:35.280] Navy submarines and they make the
+- [43:37.040] greatest submarine in the world. We are
+- [43:39.119] we're 10 years advanced over probably
+- [43:41.599] Russia is number two. Uh we we have to
+- [43:44.319] make them faster. That's the only thing.
+- [43:46.000] We need submarines, but they make a a
+- [43:48.720] great product. In all the cases we make,
+- [43:51.200] uh, if you look at the Patriot missile,
+- [43:54.079] if you look at the Tomahawk, which is
+- [43:55.839] the offensive, if you look at all of the
+- [43:57.760] things, they're better. We have to make
+- [43:58.880] them faster. That's the only thing. And
+- [44:00.560] Dan, you got to get them going a little
+- [44:02.160] bit, right? We have to make them faster.
+- [44:04.160] And Peter and I have meetings with them
+- [44:05.599] every month. And they're all building
+- [44:08.000] new plant and equipment. Boeing is
+- [44:10.000] building it. I see. Kelly, a lot of
+- [44:11.599] them, four of them. And it's very
+- [44:13.440] important. So, this massive new
+- [44:15.599] investment by General Dynamics is going
+- [44:17.599] to create right here 1,500 new jobs. The
+- [44:20.880] munitions firm Day and Zimmerman in
+- [44:23.680] Philadelphia will provide 2.3 billion
+- [44:25.839] dollars worth of operations,
+- [44:27.920] maintenance, and support to the
+- [44:30.240] Hawthorne Army Depot. And EOS in
+- [44:33.920] Pittsburgh have just agreed to a
+- [44:36.480] multi-million dollar partnership with
+- [44:38.079] the Department of War to build. Don't we
+- [44:40.000] love that name better? We won World War
+- [44:41.760] I. We won World War II. Then we decide
+- [44:44.960] to go politically correct. Let's go with
+- [44:46.880] defense. No, it's war. And I said to
+- [44:49.760] Pete, I said, "Pete, don't you like that
+- [44:51.119] better?" He said, "It used to be
+- [44:52.480] Department of War." And then we got
+- [44:54.640] politically correct. And uh we go in and
+- [44:59.040] knock out the Middle East and go home.
+- [45:01.119] Everybody said, "Why did we do that?
+- [45:02.720] What did we get?" But we did. We had
+- [45:05.200] greatness. And that's what we have
+- [45:07.040] again. Now we have greatness again. As
+- [45:09.760] an example, Venezuela. Where'd you have
+- [45:11.440] a When was the last time you heard that
+- [45:12.960] you had a war and you paid for it 50
+- [45:14.640] times over? We have wars or we lose
+- [45:16.960] money. We have wars. We blow up
+- [45:19.760] something and we leave. And everybody
+- [45:22.079] said, "What was the purpose of that?"
+- [45:24.000] Nobody can answer the question. We don't
+- [45:25.680] do that anymore. But EOS in Pittsburgh
+- [45:28.560] just agreed to a multi-million dollar
+- [45:31.200] partnership with the Department of War
+- [45:32.720] to build energy storage technology in
+- [45:35.599] support of our Golden Dome Missile
+- [45:37.280] Defense Shield. for building a golden
+- [45:38.800] dome over our country and it's going to
+- [45:41.040] be a very effective one. We had 111
+- [45:44.640] missiles shot a few weeks ago by our
+- [45:47.839] lovely friends from Iran. They were
+- [45:50.160] aimed at the Abraham Lincoln which is a
+- [45:52.319] beautiful aircraft carrier by the way.
+- [45:54.720] The SS Abraham Lincoln 11 a short period
+- [45:58.880] of time. Out of the 111 missiles shot,
+- [46:03.440] 111 missiles were knocked into the sea
+- [46:06.480] easily. think of that.
+- [46:12.800] And I called the captain of the ship. He
+- [46:14.800] wasn't even sweating. Oh, you got Jamie
+- [46:16.640] Diamond would be sweating that. You
+- [46:18.160] wouldn't like that. We have a different
+- [46:20.000] kind of strength, Jamie. Right. We don't
+- [46:21.599] have that. But think of it. 111 missiles
+- [46:25.119] are coming at you. And he's drinking his
+- [46:27.920] coffee, taking it easy. And one after we
+- [46:31.280] have the greatest people, most
+- [46:33.680] importantly, but we have the greatest
+- [46:35.040] equipment anywhere in the world. So
+- [46:36.480] there's nothing like it. 5 years ago,
+- [46:38.079] six years ago, I would imagine you
+- [46:40.160] couldn't even think about a thing like
+- [46:41.440] that happening. The JWF Industries is
+- [46:45.119] expanding its wind burr facility and
+- [46:48.640] anticipating over $500 million in new
+- [46:51.200] contracts to build new vehicles,
+- [46:52.800] weapons, and components. And they make
+- [46:55.200] great stuff. Voyager Technologies will
+- [46:58.079] be investing hundreds of millions of
+- [46:59.839] dollars in turning Pittsburgh into an
+- [47:02.480] international robotics and space
+- [47:04.240] technology hub. And the robotics is so
+- [47:07.440] important because again we have the most
+- [47:09.599] people working right now in the United
+- [47:11.520] States than ever before. We need we need
+- [47:14.480] manpower and woman power. The AI
+- [47:17.280] software company Air will be spending
+- [47:19.920] $450 million to expand their Pittsburgh
+- [47:22.800] office and Carnegie Robotics in
+- [47:25.680] Pittsburgh will have the chance to
+- [47:27.119] produce hundreds of millions of dollars
+- [47:28.960] worth of auto autonomous technology for
+- [47:32.400] the United States Army and its vehicles.
+- [47:35.280] The Firepoint Energy in Tunnelton will
+- [47:38.480] be investing at least $170 million in
+- [47:41.280] pilot program to convert coal waste into
+- [47:44.319] jet fuel, electrical power, and critical
+- [47:47.440] minerals. And I hope you're going to do
+- [47:48.800] magnets. Somebody out there, I hope
+- [47:50.160] you're all brilliant people. Magnets. Do
+- [47:52.880] magnets. Okay, I'll tell you how to make
+- [47:54.400] money. Do magnets. You're doing a lot of
+- [47:56.800] great stuff. Do magnets because one
+- [47:59.280] thing we don't have, but we're getting
+- [48:01.119] close. But do magnets. So, so I hope
+- [48:04.319] John Gray is listening to me so he can
+- [48:06.640] give him a couple of bucks and go into
+- [48:08.480] the magnet business. I guarantee it's
+- [48:10.240] going to be a success. So, it's one
+- [48:12.000] thing we don't for some reason, it's not
+- [48:14.640] complex, not hard. We have the material.
+- [48:17.760] For some reason, they just don't uh they
+- [48:20.480] don't do it. We need magnets. So, one of
+- [48:22.880] you companies out there, go out. I'll
+- [48:24.480] teach you how to make money. Just do it.
+- [48:26.800] Companies like Adelon, Kattos, Advanced
+- [48:30.160] Cooling Technologies, Sphere Break
+- [48:32.480] Defense, JP Morgan Chase, and Q Intel,
+- [48:35.920] among many others, will be expanding
+- [48:37.760] their investments all across the
+- [48:40.160] Commonwealth of Pennsylvania. In
+- [48:42.400] addition, the defense subsidiary of the
+- [48:44.720] legendary Pennsylvania company, Mac
+- [48:46.800] Trucks. Oh, I met him the other day.
+- [48:48.559] Where's Mr. Mac Truck? Where the hell
+- [48:50.319] are you? We were He was He was great
+- [48:53.280] making a beautiful Thank you. Thank you
+- [48:55.200] very much. making a beautiful truck.
+- [48:57.839] He's trying to sell 15,000 of them to
+- [49:00.960] us. 15. I said, "How many are you
+- [49:02.960] looking to sell, sir?" 15,000. I thought
+- [49:06.319] he said 15. Because it's a big,
+- [49:07.920] beautiful truck. I made a speech two,
+- [49:10.079] three weeks ago. And they had a sample
+- [49:12.480] of the truck right behind where I spoke.
+- [49:15.040] It made me look very small, sort of like
+- [49:17.200] Dukakus, remember, in the tank.
+- [49:21.440] I said, "Get that truck the hell out of
+- [49:23.040] here." I I immediately I immediately
+- [49:25.520] thought of Dukakus with the helmet and
+- [49:27.280] the the massive helmet, the massive tank
+- [49:29.520] and he you didn't even see him. That was
+- [49:31.680] not good. He went down 20 points after
+- [49:34.079] that. So I said, "Get the hell they get
+- [49:36.240] that truck out." But the truck was
+- [49:37.839] amazing actually. But I said, "How
+- [49:40.000] many?" He said, "15,000." I thought he
+- [49:41.839] said 15. So I said, "He's going to sell
+- [49:43.839] 15. That's a lot of trucks." He said,
+- [49:45.520] "No, actually 15,000, sir." So, uh, but
+- [49:49.119] it's a beautiful truck and I think he's
+- [49:50.720] got a good shot at doing it. And he'll
+- [49:52.880] be building to $222 million worth of
+- [49:56.000] powerful new vehicles for our military
+- [49:58.720] already. And a different truck and Mac
+- [50:01.119] truck is doing really well and they've
+- [50:02.720] been great. And because we're here in
+- [50:04.960] Pennsylvania where state trooper Michael
+- [50:07.920] Farah was killed just two weeks ago by
+- [50:10.800] an illegal alien operating a semitr on a
+- [50:14.000] commercial driver's license, which he
+- [50:16.000] should never have had. He should. He was
+- [50:18.000] here illegally. Came in through Biden.
+- [50:20.559] Today, I'm making one more important
+- [50:22.319] announcement. My administration will
+- [50:24.000] soon take historic action to get illegal
+- [50:26.480] alien truck drivers who are just killing
+- [50:28.640] a lot of people. They can't read signs.
+- [50:31.359] Uh many of them are on drugs or alcohol
+- [50:36.000] and they shouldn't be driving these
+- [50:37.520] things and they're they're they came in
+- [50:39.599] totally illegally and they they we don't
+- [50:42.480] want them. But they are driving all over
+- [50:45.839] American roadways and we're going to
+- [50:48.000] replace them with proud American
+- [50:50.079] veterans who are going to take our
+- [50:51.359] veterans. We're going to make them we're
+- [50:53.359] going to teach them a lot about driving
+- [50:55.040] trucks and in many cases they know we're
+- [50:56.800] going to say any American who's driven a
+- [50:58.559] heavy truck for our military will
+- [51:00.640] automatically be eligible for a
+- [51:02.480] commercial driver's license. So we're
+- [51:04.880] going to get them taken care of.
+- [51:10.400] and the radical left is very much
+- [51:12.400] opposed to that. But it doesn't matter
+- [51:14.160] what they want because we're the ones
+- [51:15.599] that are running it. And just to to
+- [51:17.760] finish, I want to thank our great
+- [51:19.359] speaker of the House, Mike Johnson. He's
+- [51:21.680] fantastic, that man,
+- [51:26.720] and the House budget chairman, Jody
+- [51:29.359] Arrington, for launching an effort to
+- [51:31.839] get the Save America Act passed,
+- [51:34.240] including voter I mean, it's so so
+- [51:37.680] basic. voter photo ID identification,
+- [51:41.599] proof of citizenship, and hopefully no
+- [51:43.520] corrupt mail-in ballots. We'll have
+- [51:45.920] exceptions for the military. We'll have
+- [51:47.680] exceptions for disability for people
+- [51:50.400] that are not feeling well or for people
+- [51:52.720] that are on vacation or anything. We're
+- [51:54.880] going to make it very easy. But the
+- [51:57.040] mail-in ballots, you see what happens in
+- [51:58.960] California, the vote still isn't
+- [52:00.480] counted. Can you believe it? It's like
+- [52:02.400] what, six weeks, the vote still isn't
+- [52:04.079] counted. Uh, but the kid really uh he
+- [52:07.119] was he was he was Spencer Pratt. I don't
+- [52:10.000] know Spencer Pratt. He came to the White
+- [52:11.680] House and saw me, but uh Spencer Pratt
+- [52:14.480] was an automatic lock and he didn't make
+- [52:17.680] it. There was a little thing, Dena. They
+- [52:19.359] said, "Well, Spencer's uh falling behind
+- [52:21.760] a woman that nobody ever heard of. He's
+- [52:23.680] falling behind." No, it's very corrupt.
+- [52:26.079] And they were going to do that to Steve
+- [52:27.359] Hilton, too. And I had the US attorney
+- [52:29.359] did a great job. He started an
+- [52:31.599] investigation. and they said Steve
+- [52:33.119] Hilton is starting to fall badly behind.
+- [52:35.760] And I said, "That doesn't mean falling
+- [52:37.200] behind. That means cheating is going
+- [52:38.559] on." This is two weeks after the
+- [52:40.000] election. So I got the US attorney
+- [52:42.160] involved and like 20 minutes after they
+- [52:45.520] made that statement, they said, "Steve
+- [52:48.000] Hilton just made the runoff. These are
+- [52:50.880] crooked people. These are crooked
+- [52:53.200] people. The whole thing is terrible."
+- [52:55.440] But along with our incredible farmers
+- [52:57.119] and funding for our troops. So, we're
+- [52:58.640] getting a tremendous amount of funding
+- [53:00.640] for our farmers and we take care of our
+- [53:02.800] troops. We got them a great uh pay
+- [53:05.040] raise, but I support those efforts and
+- [53:07.359] we're cheering them on and the actions
+- [53:09.359] that we've announced today will create
+- [53:11.040] thousands of new Pennsylvania jobs and
+- [53:13.119] they'll make our entire nation stronger
+- [53:15.760] and more prosperous than ever before. We
+- [53:18.640] have the strongest nation that we've
+- [53:20.960] ever had. We have the most successful
+- [53:23.200] nation that we've ever had. We've never
+- [53:25.440] had a thing happen. So many people, the
+- [53:27.760] biggest people came, the financial
+- [53:29.119] people said, "Sir, I've been in business
+- [53:31.359] for 35 years." One gentleman, he looked
+- [53:34.400] like a young man, but he said, "35
+- [53:36.079] years." So he blew it. But he said,
+- [53:37.920] "I've been in business for 35 years.
+- [53:40.000] I've never seen anything like what's
+- [53:41.520] happening right now." I think I'll bet
+- [53:42.960] Jamie would say that. I'll bet John
+- [53:44.400] would say that. There's never been a
+- [53:46.079] there's never been a period of time like
+- [53:47.680] this. So, I want to thank again Senator
+- [53:49.839] McCormack once again for this uh
+- [53:52.480] incredible get together, but really much
+- [53:54.800] more importantly for the outstanding
+- [53:56.559] work that he's doing as a senator. He's
+- [53:58.480] an incredible person and Pennsylvania
+- [54:01.200] has never had a greater warrior, the US
+- [54:03.839] Senate, than Dave McCormack. And uh it's
+- [54:06.880] an honor to be with you all. And uh
+- [54:09.040] we're going to do things that nobody
+- [54:10.640] would believe. If you go back two years
+- [54:12.960] where we were a failing nation, nobody
+- [54:14.720] would believe that we could be doing
+- [54:16.240] business and we could be all of even
+- [54:18.319] safety. The lowest murder number since
+- [54:22.160] 1900. Think of that. The lowest number
+- [54:25.920] since 1900, 125 years ago. uh nobody
+- [54:30.480] would believe we have the lowest crime
+- [54:32.160] numbers despite the fact that millions
+- [54:34.880] and millions of people came into our
+- [54:36.720] country illegally and many of them were
+- [54:39.359] uh they're gone now but many of them
+- [54:42.720] were from prisons they were drug addicts
+- [54:46.720] they were from mental institutions we
+- [54:48.960] have the lowest crime numbers we've had
+- [54:50.800] in decades and the lowest murder number
+- [54:53.040] in 125 years so it's really been amazing
+- [54:56.400] and uh David I'll give it to you I'll
+- [54:58.559] turn it out but it's just an honor. I'm
+- [55:00.319] with so many people that I've uh I
+- [55:02.720] respect so much. I don't know all of
+- [55:04.400] you. I know many of you through
+- [55:06.240] reputation, through reading, but you're
+- [55:08.800] an amazing group of people and you
+- [55:10.640] really are making our country great.
+- [55:12.079] Thank you very much. Thank you.
+- [55:13.200] >> Thank you, Mr. President.
+- [55:21.760] >> Thank you.
+- [55:23.920] Thank you, sir. Uh we we are so honored
+- [55:26.319] to have you here. I know you've got a
+- [55:27.920] special love for Pennsylvania and
+- [55:29.440] Pennsylvania has a special love for you
+- [55:31.440] and this is all about your vision of
+- [55:34.319] peace through strength and what's
+- [55:36.079] happening here at this summit is really
+- [55:37.680] all the the people we need in the room,
+- [55:39.599] the the prime contractors, the uh energy
+- [55:42.960] uh leaders, the emerging technologies,
+- [55:45.359] the the the leaders in labor, the
+- [55:47.200] leaders in finance, all the team that
+- [55:49.599] needs to be in place to implement your
+- [55:51.359] vision. So, if it's all right with you,
+- [55:52.880] what what I'd like to do is turn to the
+- [55:54.799] Secretary of War, uh, let him make some
+- [55:57.119] remarks, and then um, and then draw in
+- [55:59.520] some of the the business leaders we have
+- [56:01.599] here. And, uh, I'll say the the one
+- [56:03.440] little story is when I was on the
+- [56:04.880] campaign trail with the president one
+- [56:06.720] time, I I walked off the stage and he
+- [56:08.480] said, "You know what I like about you?"
+- [56:10.400] He said,, you don't talk too much. He
+- [56:13.200] said, you uh, you don't go on and on.
+- [56:15.200] There was somebody else there. I won't
+- [56:16.240] say who it was. He was going on and on.
+- [56:17.520] He goes, "Keep it short." And, uh, so
+- [56:19.599] we'll all keep it short. Thank you, Mr.
+- [56:21.040] Is it
+- [56:28.240] >> Senator? That was a good warning and a
+- [56:29.520] good reminder for sure.
+- [56:32.000] Uh Mr. President, it is true to say that
+- [56:34.960] there has never been a moment like this
+- [56:37.040] or a stage like this where innovators,
+- [56:40.160] prime contractors, private equity,
+- [56:42.720] titans of industry, uh labor leaders, uh
+- [56:45.920] defense leaders have come together for
+- [56:48.559] this type of moment. There's never been
+- [56:50.319] a moment like this where the aperture
+- [56:51.920] has opened up inside the Department of
+- [56:54.240] Defense for defense and the second word
+- [56:57.280] innovation. Your demand of me as a
+- [57:00.240] business leader and a builder is that we
+- [57:02.319] move at the speed of business and
+- [57:04.480] competition and speed and scale. And
+- [57:08.079] that's what these folks have funded and
+- [57:10.319] founded in their companies. But our
+- [57:12.640] bureaucracy was built to keep most of
+- [57:15.040] you out. uh and we've been waging a war
+- [57:18.319] of attrition against the Pentagon
+- [57:20.079] bureaucracy to open up the aure and make
+- [57:22.559] sure competition and speed and
+- [57:24.640] innovation and commercial options are
+- [57:27.839] have a seat at the table. Not just great
+- [57:29.920] prime contractors who've been there for
+- [57:31.520] a long time, but many of our great
+- [57:33.359] companies that make many of our best
+- [57:34.799] systems started to look a lot more like
+- [57:36.720] the government than they looked like
+- [57:38.480] business. And so what the president does
+- [57:40.720] behind the resolute desk with prime
+- [57:42.400] contractors and you've been at those
+- [57:44.079] meetings and I've been at those meetings
+- [57:45.359] and and it's a reminder to all of us
+- [57:47.760] that our nation needs the best weapons
+- [57:50.079] not tomorrow but today and we need to we
+- [57:52.720] need these companies not just adding an
+- [57:54.640] extra shift to the factory but investing
+- [57:57.119] in another plant and another plant and
+- [57:59.440] another manufacturing line which is
+- [58:01.040] what's happening here in Pennsylvania
+- [58:02.640] and all around the country. So when you
+- [58:04.799] talk about the arsenal of freedom, this
+- [58:07.359] is only something that a builder chief
+- [58:09.440] could unleash. And you're doing it, sir,
+- [58:11.359] on American manufacturing and our
+- [58:13.280] industrial base across the country in
+- [58:15.119] energy, but in defense specifically,
+- [58:18.480] this is a generational investment uh in
+- [58:21.200] the future of our war fighting
+- [58:22.559] capabilities that our country has not
+- [58:24.480] seen since Ronald Reagan. And this one
+- [58:26.480] is bigger because what Joe Biden and
+- [58:29.280] previous administrations did to our
+- [58:30.960] military, you you talk about a dead
+- [58:32.480] country. Well, what we had a dead
+- [58:34.319] department, a Department of Defense that
+- [58:36.960] was doing things the old way, sending
+- [58:38.799] the same money in the wrong direction,
+- [58:41.040] uh, red tape and and and monopolizing
+- [58:44.079] certain certain platforms. And you said
+- [58:46.720] we won't do it anymore. And the American
+- [58:48.240] Warfire requires that we change how we
+- [58:50.400] do these things. And we're going to hold
+- [58:51.440] the big guys accountable, which is what
+- [58:53.200] you do behind the Resolute Desk with
+- [58:54.880] executive orders and no stock buybacks
+- [58:56.799] and no more delays. And we demand that
+- [58:58.960] you build new plants. And then we're
+- [59:01.040] also going to make sure the new runners,
+- [59:02.480] the fast runners, the young guys, the
+- [59:04.160] companies, the tech companies, our best
+- [59:06.319] innovators have the ability to get into
+- [59:08.559] the defense department. You shouldn't
+- [59:10.240] have to sue your way in to the
+- [59:12.160] Department of War, which is what
+- [59:13.839] companies in the past have had to do in
+- [59:15.680] order to compete. I hope these companies
+- [59:18.079] can attest to the fact that because of
+- [59:19.760] President Trump's leadership, we have an
+- [59:21.839] entirely different department. We
+- [59:31.760] And it's important because we're at an
+- [59:33.359] entirely different moment. Not only do
+- [59:35.440] we have nearpeer adversaries with
+- [59:37.040] historic military buildups, but we're at
+- [59:39.119] a step change moment. AI and frontier
+- [59:41.760] models, autonomy, quantum space,
+- [59:44.319] hypersonics, you name it. If you're
+- [59:46.400] ahead now and you you get ahead of the
+- [59:48.240] game, you're going to be way ahead. If
+- [59:49.680] you fall behind now, you fall even
+- [59:51.599] further behind. The have nots and the
+- [59:54.079] halves are that that gap is widening.
+- [59:56.720] President Trump sees the moment and is
+- [59:58.880] in is investing in it in our department
+- [01:00:00.720] but across government to make sure the
+- [01:00:02.799] 21st century is an American century, but
+- [01:00:05.599] he's demanding that we do it
+- [01:00:06.480] differently. We do it in a fiscally
+- [01:00:07.760] responsible way. We audit our
+- [01:00:09.119] department. Uh we ensure that the money
+- [01:00:11.200] that we ask for is well spent. So we've
+- [01:00:14.480] got a different department, a different
+- [01:00:16.640] moment. And thank God we have a
+- [01:00:18.720] different president who rebuilt the
+- [01:00:20.160] military once. He's doing it again and
+- [01:00:23.040] is willing to make a historic
+- [01:00:24.559] investment. $1.5 trillion investment in
+- [01:00:27.599] the War Department to ensure that we out
+- [01:00:30.240] compete without question every other
+- [01:00:33.280] nation on planet Earth so that things
+- [01:00:35.680] like Venezuela can continue to be done
+- [01:00:38.000] to reestablish deterrence around the
+- [01:00:39.680] world. But that next midnight hammer
+- [01:00:41.680] that's required 10, 20 years down the
+- [01:00:43.760] road is is because of the F-47 and the
+- [01:00:46.960] B-21 and the autonomy and the carriers
+- [01:00:50.400] that this president will build because
+- [01:00:52.000] of this historic investment, the Golden
+- [01:00:53.599] Dome that protects our country, the AI
+- [01:00:55.359] that allows us to target faster. This
+- [01:00:57.760] investment is fundamentally will
+- [01:00:59.599] fundamentally change the battlefield,
+- [01:01:01.280] keep the American people safe now and
+- [01:01:03.520] into the future, and it would not happen
+- [01:01:05.920] with Donald Trump. Mr. President, thank
+- [01:01:07.760] you very much.
+- [01:01:13.359] Thank you, Mr. Secretary. Thanks. Thanks
+- [01:01:15.040] for everything you're doing. You know,
+- [01:01:16.559] last year it was almost a year to the
+- [01:01:18.240] day, Mr. President, where you were in
+- [01:01:19.760] Pittsburgh for the energy and innovation
+- [01:01:21.520] summit that Dean and I hosted. And one
+- [01:01:23.839] of the biggest announcements on that day
+- [01:01:25.359] was John Gray from Blackstone, a $25
+- [01:01:27.680] billion announcement. And so I thought
+- [01:01:29.760] we might start with a year later, here's
+- [01:01:31.920] where we are. And I think what you're
+- [01:01:33.599] hearing from the business leaders in
+- [01:01:34.880] this room, the people in Pennsylvania,
+- [01:01:36.000] is it the the amount of investment and
+- [01:01:39.200] the level of activity is on fire and uh
+- [01:01:42.240] John's a perfect example of that. So
+- [01:01:44.160] John, if you could just give us a quick
+- [01:01:45.359] update.
+- [01:01:45.920] >> Sure. Um it's great to be here in
+- [01:01:48.240] Pennsylvania. President Trump, I want to
+- [01:01:50.880] start by thanking you for the deep
+- [01:01:52.799] commitment to supporting investment in
+- [01:01:55.359] American innovation in infrastructure,
+- [01:01:58.160] AI, and defense. Senator McCormack, I
+- [01:02:02.240] want to commend you once again and Dena
+- [01:02:04.400] for hosting a summit here in
+- [01:02:05.839] Pennsylvania focused on the vital
+- [01:02:08.400] national imperatives. We were together a
+- [01:02:10.960] year ago in Pittsburgh. We announced
+- [01:02:12.559] that $25 billion in digital and energy
+- [01:02:15.599] infrastructure. We said we'd do it over
+- [01:02:17.280] a decade. Since then, we've acquired
+- [01:02:19.680] multiple data center sites. We've made
+- [01:02:21.839] enormous progress in our joint venture
+- [01:02:24.319] with local utility PPL. And we're proud
+- [01:02:27.440] to report that we're on track to invest
+- [01:02:30.000] over $40 billion and do it in five
+- [01:02:33.520] years.
+- [01:02:40.720] 50% higher, 50% less time. Not bad. Um,
+- [01:02:45.839] these investments will create nearly
+- [01:02:47.839] 20,000 goodaying construction and
+- [01:02:50.240] permanent jobs, deliver meaningful
+- [01:02:52.319] benefits to communities, and help ensure
+- [01:02:54.720] that America stays at the forefront of
+- [01:02:57.200] the AI race. This would not have
+- [01:02:59.920] happened without the conference that you
+- [01:03:01.920] and the president hosted last year. We
+- [01:03:04.400] also got tremendous support from the
+- [01:03:06.240] governor in terms of infrastructure
+- [01:03:07.839] development. Everybody loves to complain
+- [01:03:10.400] that things are not working in the
+- [01:03:12.000] United States. Well, in Pennsylvania,
+- [01:03:14.400] they're working the way the founders
+- [01:03:15.839] intended 250 years ago. So,
+- [01:03:18.000] congratulations to all of you. I would
+- [01:03:20.400] also just say last year we talked about
+- [01:03:23.039] building critical infrastructure to
+- [01:03:24.720] power the innovation economy. Today,
+- [01:03:27.039] we're talking about applying that
+- [01:03:28.880] innovation to our most important
+- [01:03:30.880] priority, protecting our national
+- [01:03:33.039] security. At Blackstone, we're
+- [01:03:35.200] incredibly proud to be allin on both of
+- [01:03:37.359] these objectives. Technology is, as the
+- [01:03:40.480] secretary noted, fundamentally reshaping
+- [01:03:42.640] the national defense. It's going to
+- [01:03:44.799] require enormous amounts of private
+- [01:03:46.720] capital, not only to invest in the new
+- [01:03:48.960] innovation, but also to scale up
+- [01:03:51.440] production in a capacity constrained
+- [01:03:53.839] world. And Blackstone is re ready to
+- [01:03:56.240] help in a very big way. We've already
+- [01:03:58.799] invested $20 billion in defense and
+- [01:04:01.039] aerospace in the last 5 years. We expect
+- [01:04:03.760] the scale and pace of that investment to
+- [01:04:06.559] increase meaningfully from here. We see
+- [01:04:09.280] national security as a compelling place
+- [01:04:11.200] to deploy capital on behalf of our
+- [01:04:13.599] investors that also supports a core
+- [01:04:16.559] American interest. So, thank you,
+- [01:04:18.720] President Trump, Senator McCormack. It
+- [01:04:20.880] is an honor to be here today.
+- [01:04:22.640] >> Thank you, John.
+- [01:04:26.240] You know, sir, you you noted this, but
+- [01:04:28.720] one of the uh the strongest voices in
+- [01:04:31.359] corporate America, someone who has
+- [01:04:32.720] spoken out in very similar terms as you
+- [01:04:34.799] have about peace through strength and
+- [01:04:36.079] about the need for America's military
+- [01:04:37.599] and economy to be strong is uh Jamie.
+- [01:04:40.000] And Jaime's really taken this on. He's
+- [01:04:41.839] written extensively about it and made
+- [01:04:43.119] this a priority for JP Morgan in terms
+- [01:04:45.440] of national defense and resilience. So
+- [01:04:48.000] Jamie, I wanted to just call on you and
+- [01:04:49.839] ask you to describe why uh you think
+- [01:04:52.640] this is such a priority and how the
+- [01:04:54.640] things we're doing here and the
+- [01:04:55.680] president's agenda is supporting that.
+- [01:04:57.680] >> So thank you Mr. President, Mr.
+- [01:05:00.319] Secretary, Senator uh there's nothing
+- [01:05:02.960] more important for our country and in
+- [01:05:06.240] fact I would don't think it's
+- [01:05:07.680] exaggeration to say for the whole free
+- [01:05:09.039] and democratic world that America
+- [01:05:11.119] maintain the preeminent military
+- [01:05:13.680] supported directly by the preeminent
+- [01:05:15.520] economy of the world. Uh it's none too
+- [01:05:18.000] soon. We got behind, but God knows this
+- [01:05:21.280] is now you guys have ignited the
+- [01:05:23.599] American dream and you've ignited uh
+- [01:05:26.079] security and resiliency. You've
+- [01:05:28.400] reignited that arsenal of democracy that
+- [01:05:30.720] we have in this country uh and is just
+- [01:05:33.599] critical. We there's a microcosm in Phil
+- [01:05:36.400] obviously in Pennsylvania and
+- [01:05:37.520] Philadelphia. I was at the Philadelphia
+- [01:05:38.960] Navy Yard this morning. There's only a
+- [01:05:40.960] small piece what we're doing and a small
+- [01:05:42.400] piece of what a lot of other people here
+- [01:05:43.599] are doing. That Navy Yard actually built
+- [01:05:45.839] ships in the Revolutionary War, ships in
+- [01:05:48.079] World War I, ships in World War II. It
+- [01:05:50.640] was closed down at one point. Uh but the
+- [01:05:53.200] local government and the federal
+- [01:05:54.400] government have reopened it up. You now
+- [01:05:56.160] have ships that are going to be built
+- [01:05:57.440] there by Hanoa. Uh a Korean company and
+- [01:06:00.240] roads industries, they're both adding
+- [01:06:02.720] 400 jobs. People should remember when
+- [01:06:04.880] they add those jobs there, another 5,000
+- [01:06:07.200] jobs be added to support. A lot of small
+- [01:06:09.359] vendors, contractors, uh etc. And we're
+- [01:06:12.880] also helping very importantly to ignite
+- [01:06:15.200] that American dream part is to get the
+- [01:06:17.680] kids whether older, younger, whatever
+- [01:06:19.680] their backgrounds were trained. And
+- [01:06:21.440] there's a school there done partially by
+- [01:06:23.200] Hano and partially by the government to
+- [01:06:25.359] train welders. These welders get paid
+- [01:06:27.760] while they're in an apprenticeship. They
+- [01:06:29.440] get healthc care while an
+- [01:06:30.400] apprenticeship. When they graduate, I
+- [01:06:32.160] think after 16 weeks or something like
+- [01:06:33.839] that, they make $80,000 a year. That is
+- [01:06:36.400] the American dream. They go on to buy a
+- [01:06:37.920] house, get married, have a family, etc.
+- [01:06:41.359] And uh this is one small effort. That's
+- [01:06:43.119] one microcosm. We need to do this around
+- [01:06:45.920] the nation. In fact, to help some of the
+- [01:06:47.520] other nations around in the world,
+- [01:06:48.640] friends and allies do the best they can
+- [01:06:50.720] to rebuild some of their militaries. So
+- [01:06:52.880] my hats are off. I applaud everyone in
+- [01:06:54.319] this room who has helped with this
+- [01:06:55.280] effort. There's nothing more important
+- [01:06:56.720] to leave this world safe for our
+- [01:06:58.319] children. Mr. President, thank you.
+- [01:07:01.440] Thank you.
+- [01:07:04.799] >> Thanks, Jamie. Uh you know, uh I know
+- [01:07:07.280] you know Jim Tlet well from Lockheed.
+- [01:07:09.280] Uh, a small fun fact. So when Lieutenant
+- [01:07:11.839] McCormack got on the plane to deploy for
+- [01:07:14.000] the Gulf War, Captain Tlet was the pilot
+- [01:07:17.039] of the plane out of Pope Air Force Base
+- [01:07:19.359] in North Carolina. And so we've known
+- [01:07:21.280] each other, I guess we got to know each
+- [01:07:22.559] other the last decade or so. But uh, Jim
+- [01:07:25.200] and all the major primes have big
+- [01:07:27.119] operations in Pennsylvania. And Jim, I
+- [01:07:29.520] think have an you have an announcement
+- [01:07:30.799] even today that I was unaware of until
+- [01:07:32.799] earlier today, which is great news. So
+- [01:07:34.400] please give us a quick update on on what
+- [01:07:36.319] you're doing in PA.
+- [01:07:37.359] >> Definitely, Senator. First of all,
+- [01:07:38.400] >> remember that thing he said to me about
+- [01:07:39.760] short.
+- [01:07:41.920] >> First of all, Mr. President, thank you
+- [01:07:43.520] for inspiring all of us to get together
+- [01:07:45.599] at an event like this. Secretary Hexth,
+- [01:07:49.200] really appreciate you're driving the
+- [01:07:51.440] acquisition transformation that is very
+- [01:07:53.760] much needed as you just described. And
+- [01:07:56.160] Senator, this is an amazing gathering
+- [01:07:58.319] for organizing it. You and Dena, you
+- [01:08:00.079] know, really, we all owe you our thanks.
+- [01:08:01.599] So, I appreciate doing that.
+- [01:08:06.559] So, I was born and raised on the north
+- [01:08:08.160] side of Pittsburgh. My dad was a boiler
+- [01:08:10.000] maker. And if I could have welded a
+- [01:08:12.400] straight bead and passed his test, Sean,
+- [01:08:14.960] I'd probably be in Boiler Makers Local
+- [01:08:16.880] 154 in Pittsburgh right now. But it
+- [01:08:19.359] worked out that I'm here today with you.
+- [01:08:21.520] And people like my dad from
+- [01:08:23.199] Pennsylvania, the workers that we have
+- [01:08:25.600] in this state are why we have 5,000
+- [01:08:27.920] employees here already. And what we're
+- [01:08:30.480] going to announce today is in our
+- [01:08:31.759] Archbald, Pennsylvania plant where we
+- [01:08:34.319] make missile components for air defense
+- [01:08:36.319] missiles. Sir, we're going to add
+- [01:08:38.000] another 700 jobs. We're going to double
+- [01:08:40.159] the size of the plant. U invest $60
+- [01:08:43.199] million and add 160,000 square feet to
+- [01:08:47.440] that plant, doubling its size.
+- [01:08:54.880] And that's on top of $300 million we
+- [01:08:57.359] just completed investing in our Valley
+- [01:08:59.920] Forge operation which does strategic
+- [01:09:01.839] missile re-entry among other things. And
+- [01:09:04.239] you know, Mr. President, that we're
+- [01:09:05.600] going to invest upwards of $9 billion in
+- [01:09:07.839] the next three years at 20 different
+- [01:09:10.319] sites. Looking forward to showing you
+- [01:09:12.159] some of those plans when you have time.
+- [01:09:14.480] And we are going to continue to build
+- [01:09:17.040] with you and with the secretary the
+- [01:09:19.120] Arsenal of Democracy and Pennsylvania
+- [01:09:21.120] will be ground zero for that effort.
+- [01:09:24.880] Thanks, Senator.
+- [01:09:26.799] Thank you.
+- [01:09:28.799] And just real quickly, I'll keep us
+- [01:09:30.400] going. Danny uh Deep from General
+- [01:09:32.560] Dynamics. Danny is the president and uh
+- [01:09:35.520] I had a chance to tour that 155 facility
+- [01:09:38.159] in Scranton. And uh you've got assets
+- [01:09:40.480] across Pennsylvania, another huge
+- [01:09:42.239] employer. Uh just give us a quick update
+- [01:09:44.640] on on what's going on in Pennsylvania,
+- [01:09:46.719] how you see the future expanding based
+- [01:09:48.960] on what's the president's policies that
+- [01:09:51.440] have been put in place. Thank you,
+- [01:09:53.359] Senator Secretary, Mr. President. Thank
+- [01:09:56.400] you for your leadership here at home and
+- [01:09:58.159] and abroad. Uh it is uh inspiring. So,
+- [01:10:02.320] here in Pennsylvania, when you talk
+- [01:10:03.760] about manufacturing muscle, this is this
+- [01:10:06.239] is really where we have a lot of muscle.
+- [01:10:08.080] 1100 suppliers, eight facilities around
+- [01:10:10.719] the great Commonwealth. Uh over the last
+- [01:10:14.080] number of years, we've expanded
+- [01:10:15.920] artillery production by 4x.
+- [01:10:19.199] And over the next several years, we'll
+- [01:10:21.600] see it continue to grow. You mentioned
+- [01:10:23.600] Roads Industries in that $2.5 billion
+- [01:10:26.960] award. Let me give you a little bit on
+- [01:10:28.719] Roads Industries because it's a great
+- [01:10:30.080] story. This is a multi-generation
+- [01:10:32.640] company uh with family ownership and
+- [01:10:37.040] they keep their promises and now they
+- [01:10:39.040] have 10 years to look forward and add
+- [01:10:42.159] resources. their their workforce will
+- [01:10:44.480] increase by 5x and uh they're expanding
+- [01:10:47.600] and we're doing that all over the state
+- [01:10:49.199] with all of these 1100 suppliers and and
+- [01:10:52.000] thank you for your leadership to do that
+- [01:10:54.239] and uh we're committed to deliver
+- [01:10:56.480] Virginia class and Colombia and that's
+- [01:10:58.320] what roads is going to work on and uh we
+- [01:11:00.560] don't make aircraft carriers.
+- [01:11:07.600] >> Thank you Danny.
+- [01:11:11.120] you know, uh, your administration has
+- [01:11:13.120] been very active. The secretary, the
+- [01:11:15.120] secretary of the navy, uh, your
+- [01:11:16.800] transportation secretary in the
+- [01:11:18.320] Philadelphia shipyard. Uh, what is
+- [01:11:20.320] happening there is magical. And, uh, we
+- [01:11:22.400] have Michael Cer here is the CEO of that
+- [01:11:24.560] US operation, but it is with Hanois's
+- [01:11:28.640] oversight and leadership. We are
+- [01:11:30.400] bringing next generation ship building
+- [01:11:32.560] back to the United States and it's
+- [01:11:34.320] incredibly exciting. Maybe just give us
+- [01:11:36.000] a quick update on that, Michael.
+- [01:11:37.360] >> Thank you, Senator. Uh, President Trump,
+- [01:11:39.840] I want to start by saying thank you to
+- [01:11:41.840] you and your administration for your
+- [01:11:43.440] leadership on revitalizing the defense
+- [01:11:45.600] industrial base uh and in revitalizing
+- [01:11:48.000] ship building in the United States. Uh,
+- [01:11:50.880] Mr. Secretary, it is the I've been in
+- [01:11:53.679] aerospace and defense industry for
+- [01:11:55.120] decades. This is the most
+- [01:11:56.400] businessfriendly, industryfriendly
+- [01:11:58.880] uh administration we have ever seen. uh
+- [01:12:01.679] the access the the dialogue between uh
+- [01:12:04.880] the Pentagon and all of my colleagues in
+- [01:12:07.679] industry is like nothing we've ever
+- [01:12:09.440] seen. We greatly appreciate it. Um
+- [01:12:12.239] because of that access, the president's
+- [01:12:15.120] leadership and the demand signal, Mr.
+- [01:12:16.960] President, that you have sent on defense
+- [01:12:18.400] budget. Uh we now have an environment
+- [01:12:21.520] that uh Senator McCormack has been able
+- [01:12:23.360] to pull together here where we have
+- [01:12:24.560] defense industry leaning forward. We
+- [01:12:26.480] have private sector, private capital
+- [01:12:28.000] leaning forward. Uh Mr. Mr. President,
+- [01:12:30.000] your leadership has led to all of that.
+- [01:12:31.920] We're very grateful to for the
+- [01:12:33.280] opportunity to build the radar ships
+- [01:12:34.960] that you announced uh today. They will
+- [01:12:37.120] be a central part of the um defending
+- [01:12:40.400] the homeland from the missile threats
+- [01:12:41.679] that you have also uh made a priority.
+- [01:12:44.400] As you mentioned, sir, uh our shipyard
+- [01:12:46.960] in Korea puts out about one ship a a
+- [01:12:49.840] week. Uh we have a plan to bring that
+- [01:12:52.400] capability to Philadelphia. Uh you know
+- [01:12:55.920] this better than anybody, Mr. President,
+- [01:12:57.520] but ships win battles. Shipyards win
+- [01:13:00.000] wars. And we are going to recreate what
+- [01:13:02.800] has been great in Philadelphia.
+- [01:13:04.800] Philadelphia, home to the nation, home
+- [01:13:06.800] to the Navy, home to naval ship building
+- [01:13:09.199] with the first frigot. Uh it is going to
+- [01:13:11.360] be the home to make American ship
+- [01:13:13.040] building great again. And we're very
+- [01:13:14.400] glad to be part of that, sir. Thank you.
+- [01:13:16.239] >> Thank you, Michael. And was I right? One
+- [01:13:19.600] one ship a year two years ago and the
+- [01:13:22.800] goal was to get to 20 ships a year.
+- [01:13:25.199] >> Think of it. One ship a year to 20 ships
+- [01:13:26.880] a year. That's the path. that's
+- [01:13:28.960] happening because of the policies, the
+- [01:13:31.280] emphasis on ship building. We're still
+- [01:13:32.880] not where we need to be, but a huge huge
+- [01:13:34.960] step forward. You know, this whole
+- [01:13:36.400] summit also, Mr. President, we have the
+- [01:13:38.239] the defense primes here, but we have a
+- [01:13:39.920] lot of emerging technologies. There's
+- [01:13:42.080] 130 booths up here. Pennsylvania
+- [01:13:43.600] companies, AI, drones. It's it's
+- [01:13:45.760] incredible what we're seeing. And
+- [01:13:48.000] there's all sorts of capital coming into
+- [01:13:51.440] these emerging technologies in the
+- [01:13:53.280] defense tech space. And we have at the
+- [01:13:55.280] table here two of the really most
+- [01:13:56.800] successful investors in defense tech. So
+- [01:13:59.120] I'd like to ask them both to comment on
+- [01:14:00.560] that because our future as the secretary
+- [01:14:02.560] said is not just doubling down on the
+- [01:14:04.800] existing primes although they play an
+- [01:14:06.239] incredibly important role. It's bringing
+- [01:14:07.920] in new entrance and new technologies and
+- [01:14:09.760] disruptors and that's what we need for
+- [01:14:11.600] the future. So Antonio Gracias who you
+- [01:14:13.440] know well uh has been extremely
+- [01:14:15.040] successful in this space. Uh maybe you
+- [01:14:16.960] could give us a thought Antonio and then
+- [01:14:18.880] I'll turn to Thomas tool.
+- [01:14:21.120] >> U thank you Dave. I appreciate it very
+- [01:14:22.800] much and thank you for inviting me. Mr.
+- [01:14:24.880] President, it's been um extraordinary.
+- [01:14:27.120] You know, I've been working in
+- [01:14:27.760] manufacturing, defense, tech actually
+- [01:14:29.120] since the mid90s and there's never been
+- [01:14:31.520] an environment like this. You're right.
+- [01:14:33.120] Uh Secretary Hex says never. Um we have
+- [01:14:36.320] five companies here today. Uh Andreal,
+- [01:14:39.360] Seronic, Hadrien, General Matter. Um uh
+- [01:14:44.159] we we are literally um seeing an
+- [01:14:47.440] environment and change at the DO that is
+- [01:14:50.080] allowing these companies to accelerate
+- [01:14:51.600] and unleashing American entrepreneurship
+- [01:14:53.679] in the defense area. It's truly
+- [01:14:55.920] extraordinary and I want to thank you.
+- [01:14:57.760] Um we needed it as a country for
+- [01:14:59.199] redesolation. We also need to defend
+- [01:15:01.120] ourselves. I think about my own children
+- [01:15:03.120] if they're fighting a war that they want
+- [01:15:04.239] to have. That's how we decide to invest
+- [01:15:05.679] in and clearly we want this technology.
+- [01:15:08.320] Thank you. We're very grateful.
+- [01:15:11.520] Thank you.
+- [01:15:12.800] Thank you, Antonio
+- [01:15:15.520] Thomas.
+- [01:15:16.960] >> Uh I I live here in Pennsylvania and the
+- [01:15:20.800] uh the atmosphere that you've created,
+- [01:15:23.600] sir, under your leadership, Secretary
+- [01:15:25.440] Hegsth,
+- [01:15:27.040] U. Senator McCormack, we've invested
+- [01:15:30.239] billions of dollars in defense tech
+- [01:15:32.880] because we know that we need it. We know
+- [01:15:35.520] that we have to uh we live in a
+- [01:15:38.400] dangerous world and we have to defend
+- [01:15:40.159] that and we have to be leaders. We've
+- [01:15:42.239] invested in companies like Gecko
+- [01:15:43.920] Robotics here uh in in in Pittsburgh and
+- [01:15:48.320] without the change that you're uh
+- [01:15:51.120] causing,
+- [01:15:52.719] these things aren't possible. So, I just
+- [01:15:54.800] want to say thank you very much and it's
+- [01:15:57.040] going to make a massive difference for
+- [01:15:58.640] the next 20 years.
+- [01:16:04.719] You know, Mr. President, uh, one of the
+- [01:16:06.880] things that you talked about constantly
+- [01:16:08.800] on the campaign trail and that I I tried
+- [01:16:10.640] to talk about as well and that you've
+- [01:16:11.760] been focused on like a laser is jobs.
+- [01:16:14.640] And what's happening here in
+- [01:16:15.920] Pennsylvania is that if you go to talk
+- [01:16:19.040] to any manufacturer or any any job site,
+- [01:16:22.400] they can't get the skilled workers they
+- [01:16:25.360] need because there's so much new
+- [01:16:26.800] investment and activity going in. So, we
+- [01:16:29.040] need to take advantage of this moment
+- [01:16:31.040] and build uh the workforce. In
+- [01:16:32.480] Pennsylvania, we have an incredibly
+- [01:16:33.760] skilled workforce. As I said earlier, we
+- [01:16:35.760] have 190,000 people that work in the
+- [01:16:38.560] defense industry. We hope that number is
+- [01:16:40.239] going to double over the next 5 or 10
+- [01:16:42.480] years. Uh but one thing I think we can
+- [01:16:44.560] all agree on is the American dream is is
+- [01:16:47.199] going to be pursued and captured by
+- [01:16:49.520] creating these great paying jobs for the
+- [01:16:52.000] next generation of folks. And uh you
+- [01:16:54.159] know, Shawn McGarvey, who uh I I has
+- [01:16:56.719] become a friend. I called him during the
+- [01:16:58.719] campaign and he didn't think you or I
+- [01:17:00.560] was going to win. And we bet a steak
+- [01:17:02.480] dinner and uh he ended up losing on that
+- [01:17:04.880] steak dinner and has been a great ally
+- [01:17:08.159] uh in terms of uh what we need to do for
+- [01:17:10.480] our workforce to be successful. So Sean,
+- [01:17:12.880] maybe you could say say a few few words
+- [01:17:15.520] uh what you're seeing and what what the
+- [01:17:17.040] workforce of the future needs to look
+- [01:17:19.120] like.
+- [01:17:20.080] >> Well, thank you Senator, Mr. Secretary,
+- [01:17:22.560] Mr. president. Um, and the president
+- [01:17:24.480] knows, you know, my business better than
+- [01:17:26.719] I know my business. Uh, we've been in
+- [01:17:29.199] the workforce development business when
+- [01:17:31.120] it comes to construction uh skills for
+- [01:17:33.920] 100 plus years. Uh, we have uh 1,600
+- [01:17:37.120] training centers across the United
+- [01:17:38.719] States. We spend $3 billion of our own
+- [01:17:41.120] money every year. We don't need any
+- [01:17:42.480] money from anybody in the audience,
+- [01:17:43.920] anybody on the podium. The federal
+- [01:17:45.520] government, we got our own. Uh, we have
+- [01:17:47.760] 21,000 instructors. We have 300,000 plus
+- [01:17:50.719] people in our programs right now
+- [01:17:52.400] registered apprenticeship and we can
+- [01:17:54.000] ramp that up to a million u so we can
+- [01:17:56.800] meet the needs of this industry uh and
+- [01:17:59.760] the other industries the tech industry
+- [01:18:01.679] the power generation industry uh but
+- [01:18:04.000] what we need is deals and we need deals
+- [01:18:06.080] way way further up the pipeline when
+- [01:18:08.400] other decisions are being made. our
+- [01:18:10.400] members, you know, have historically
+- [01:18:12.400] been just great patriots in this
+- [01:18:14.480] country, whether it was World War I,
+- [01:18:16.320] World War II, uh, entering the CBS to
+- [01:18:18.880] build the air strips, um, and the bases
+- [01:18:21.679] across the world, uh, the Manhattan
+- [01:18:23.920] project, building Oakidge, Savannah
+- [01:18:25.679] River, you name it, and still working in
+- [01:18:27.199] those facilities, uh, today all the way
+- [01:18:29.199] up to, uh, CO when we had to keep
+- [01:18:31.920] hospitals open, build temporary morgs.
+- [01:18:34.080] It was the members of the building
+- [01:18:35.120] trades that stepped up and and did it.
+- [01:18:37.120] So, we believe that uh highly skilled uh
+- [01:18:39.679] craft workers are a national security
+- [01:18:41.280] issue and we are prepared uh to meet any
+- [01:18:44.400] needs necessary right here in
+- [01:18:45.679] Pennsylvania for Senator McCormack or
+- [01:18:47.679] for anybody across this country and we
+- [01:18:49.679] appreciate the opportunity to do so for
+- [01:18:51.199] our country. Mr. President, thank you.
+- [01:18:54.960] >> Thank you, Sean. Thanks for the thanks
+- [01:18:57.520] for the great support for everything
+- [01:18:59.280] you've done on our on our workforce. Uh
+- [01:19:01.440] Mr. Mr President, I think um I I might
+- [01:19:03.440] ask uh this the secretary Dan Driscoll
+- [01:19:06.239] to to make a few remarks and maybe close
+- [01:19:08.719] on that. Um I just want to say this uh
+- [01:19:11.600] this has been an extraordinary event in
+- [01:19:13.199] the Army and the Army War College which
+- [01:19:15.600] you're here the fourth president in
+- [01:19:17.199] America's history to visit here since
+- [01:19:18.880] the Revolutionary War. Uh the the uh
+- [01:19:21.600] Carlilele Arsenal, the the Army War
+- [01:19:23.679] College and uh and the Army's been
+- [01:19:25.760] extraordinary. So uh Mr. Secretary, uh
+- [01:19:28.080] first of all, thank you. Thank you to
+- [01:19:29.600] General Braden Camp and everybody that
+- [01:19:31.040] made this possible. But uh maybe give
+- [01:19:33.040] you give you a word and I'll uh I'll
+- [01:19:34.719] close and then turn to the president.
+- [01:19:36.320] >> Uh Mr. President, Secretary of War,
+- [01:19:38.239] Seth, your leadership, what it's
+- [01:19:39.920] fundamentally done for the people in my
+- [01:19:41.600] life every day, the American soldiers,
+- [01:19:44.239] you have unleashed them, to do what they
+- [01:19:46.480] joined the army to do, to be ready to
+- [01:19:49.120] fight and win our nation's wars. And we
+- [01:19:51.360] had gotten in their way for the last 30
+- [01:19:53.199] and 40 years. we had not let all of
+- [01:19:55.120] these entrepreneurs come get in the mud
+- [01:19:57.120] with him and help them change what they
+- [01:19:59.679] could use to fight. And it is because of
+- [01:20:01.679] you, Secretary, and you, Mr. President,
+- [01:20:03.679] that all of the regulatory nonsense has
+- [01:20:06.719] been knocked out of the way. And I think
+- [01:20:08.560] if you talk to any of the soldiers, sir,
+- [01:20:10.719] on your way to the helicopter, what they
+- [01:20:12.880] will tell you is the last 18 months have
+- [01:20:14.800] looked nothing like most of their
+- [01:20:16.239] careers. And that is because all of you
+- [01:20:18.320] on this stage and everyone out in the
+- [01:20:19.920] audience. So, thank you so much for
+- [01:20:21.600] being here.
+- [01:20:26.880] Mr. President, just uh let let me close
+- [01:20:29.280] with the following remarks. We we I
+- [01:20:31.040] think we're in the middle of an enormous
+- [01:20:32.320] transformation in America that's being
+- [01:20:34.560] led u as a result or taking place as a
+- [01:20:37.120] result of your leadership. Uh the the
+- [01:20:39.520] industrial defense industrial base
+- [01:20:41.280] making sure our military is is ready to
+- [01:20:44.239] take on these many challenges we see and
+- [01:20:46.400] evolves in a way that's able to ensure
+- [01:20:48.480] that we are going to remain the greatest
+- [01:20:49.840] military in the world. uh under your
+- [01:20:52.080] leadership that's happening. So, thank
+- [01:20:53.679] you. Thank you for that. On a personal
+- [01:20:55.120] note, I want to thank you for coming to
+- [01:20:56.640] Pennsylvania. I know um it's hard with
+- [01:20:59.280] your amazing schedule and you've done
+- [01:21:01.040] this twice. You did it last year, you
+- [01:21:02.320] did it this year. It is a catalyst for
+- [01:21:04.719] action. It's making huge things happen
+- [01:21:06.719] in Pennsylvania. Dean and I are so
+- [01:21:08.960] grateful that you're you're willing to
+- [01:21:10.480] do this uh for Pennsylvania and for our
+- [01:21:13.120] country. Um so, thank you. Uh we're
+- [01:21:15.600] we're eternally grateful and we really
+- [01:21:17.280] appreciate your leadership.
+- [01:21:25.920] you, sir. Would you like the final word?
+- [01:21:30.480] >> Well, I just want to say thank you all
+- [01:21:32.159] very much. This is an honor that I won't
+- [01:21:34.640] forget. And I I appreciate you're saying
+- [01:21:37.520] I've been here twice, which is pretty
+- [01:21:40.560] much maxed out once a year, but I'll be
+- [01:21:42.480] here again next year for you. Thank you.
+- [01:21:44.480] >> Thank you very much,
+- [01:21:45.600] >> ladies and gentlemen, the 45th and 47th
+- [01:21:48.080] president of the United States. Thank
+- [01:21:49.360] you.
+- [01:22:18.880] There's no need to feel down. I said
+- [01:22:21.280] young man
+- [01:22:23.440] off the ground. I said, "Young man,
+- [01:22:26.719] you're in a new town. There's no need to
+- [01:22:30.239] be unhappy.
