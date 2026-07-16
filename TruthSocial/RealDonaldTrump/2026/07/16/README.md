@@ -1,7 +1,52 @@
 # TruthSocial / RealDonaldTrump / 2026-07-16
 
-- Posts: 4
+- Posts: 19
 
+- [05:33 UTC - Truth Social post 116928021654827754](116928021654827754/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116928021654827754
+  - _No text content captured._
+- [05:30 UTC - Truth Social post 116928008726091908](116928008726091908/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116928008726091908
+  - _No text content captured._
+- [05:06 UTC - [https://www. breitbart.com/politics/2026/07 /15/exclusive-azerbaijani-president-ilham-ali...](116927914613324285/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116927914613324285
+  - [https://www. breitbart.com/politics/2026/07 /15/exclusive-azerbaijani-president-ilham-aliyev-lauds-trump-as-man-peace-credits-him-armenia-azerbaijan-deal/](https://www.breitbart.c...
+- [05:05 UTC - [https://www. breitbart.com/politics/2026/07 /15/trump-announces-nearly-10-billion-in-defe...](116927910243652851/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116927910243652851
+  - [https://www. breitbart.com/politics/2026/07 /15/trump-announces-nearly-10-billion-in-defense-industrial-base-investments-in-pennsylvania-at-mccormicks-summit/](https://www.breitba...
+- [05:04 UTC - FREEDOM 250 GRAND PRIX🏎️🇺🇸🏁](116927905183625323/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116927905183625323
+  - FREEDOM 250 GRAND PRIX🏎️🇺🇸🏁
+- [04:59 UTC - With today’s announcement, Pennsylvania will play a key role in building the arsenal of fr...](116927888438883834/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116927888438883834
+  - With today’s announcement, Pennsylvania will play a key role in building the arsenal of freedom to defend our nation in the modern world!
+- [04:56 UTC - Truth Social post 116927876658413642](116927876658413642/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116927876658413642
+  - _No text content captured._
+- [04:54 UTC - Truth Social post 116927866544924176](116927866544924176/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116927866544924176
+  - _No text content captured._
+- [04:53 UTC - Truth Social post 116927863979109163](116927863979109163/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116927863979109163
+  - _No text content captured._
+- [04:51 UTC - Truth Social post 116927857673379408](116927857673379408/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116927857673379408
+  - _No text content captured._
+- [04:50 UTC - Truth Social post 116927851703506651](116927851703506651/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116927851703506651
+  - _No text content captured._
+- [04:50 UTC - Truth Social post 116927851121585979](116927851121585979/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116927851121585979
+  - _No text content captured._
+- [04:50 UTC - Truth Social post 116927850600948220](116927850600948220/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116927850600948220
+  - _No text content captured._
+- [04:50 UTC - Truth Social post 116927850484171347](116927850484171347/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116927850484171347
+  - _No text content captured._
+- [04:50 UTC - Truth Social post 116927850452881736](116927850452881736/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116927850452881736
+  - _No text content captured._
 - [03:15 UTC - Truth Social post 116927478836009287](116927478836009287/)
   - Source: https://truthsocial.com/@realDonaldTrump/116927478836009287
   - _No text content captured._
