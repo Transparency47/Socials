@@ -1,0 +1,1243 @@
+<!-- source: https://www.youtube.com/watch?v=Lef87PzK5W8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Lef87PzK5W8 -->
+<!-- date_published: 2026-07-16T18:02:39+00:00 -->
+<!-- date_accessed: 2026-07-16T23:55:19.438870+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Jul. 16, 2026
+
+- [00:03.400] Good afternoon, everyone.
+- [00:05.760] It's great to be back with all of you.
+- [00:08.000] It's good to see you, good to be in this
+- [00:09.320] room. I'm glad everybody showed up
+- [00:10.800] today. Let's get back to work. We're
+- [00:12.680] going to begin with a few scheduling
+- [00:14.000] announcements. Tonight, as you all know,
+- [00:15.920] at 9:00 p.m. Eastern, President Trump
+- [00:18.320] will deliver a major address to the
+- [00:20.320] nation on protecting the integrity of
+- [00:23.000] our elections, and we encourage every
+- [00:25.280] American to tune in. On Friday, the
+- [00:28.000] President will travel to travel to New
+- [00:29.640] York City to attend a FIFA reception at
+- [00:32.279] Trump Tower, followed by his attendance
+- [00:34.880] on Sunday at the FIFA World Cup between
+- [00:37.920] Spain and Argentina. His attendance will
+- [00:40.640] cap what has been the most watched, most
+- [00:42.680] secure, and most successful World Cup in
+- [00:45.560] American history. This is a fitting
+- [00:47.760] conclusion to a tournament that
+- [00:49.320] showcased America's ability to host the
+- [00:51.480] world on the grandest stage. Turning now
+- [00:54.800] to the economy, Tuesday's CPI report
+- [00:57.440] confirmed what President Trump
+- [00:58.840] predicted. Prices are falling, and this
+- [01:01.480] administration's economic policies are
+- [01:03.680] working. Inflation dropped 0.4%
+- [01:07.160] last month, beating expectations and
+- [01:09.560] marking the largest monthly decline in
+- [01:12.000] more than 6 years. Prices fell,
+- [01:14.440] including for gasoline, electricity,
+- [01:16.960] non-prescription drugs, car insurance,
+- [01:19.240] medical care services, and hotels,
+- [01:21.520] delivering relief for American working
+- [01:24.000] families. We also saw real weekly
+- [01:26.520] earnings rise in the month of June. For
+- [01:28.760] private sector workers, real wages have
+- [01:31.000] increased by roughly $1,000 since
+- [01:33.760] President Trump took office, after
+- [01:35.720] falling nearly $3,000 during the
+- [01:38.000] previous administration. This is real
+- [01:40.360] progress made possible by the
+- [01:41.920] President's pro-growth economic agenda.
+- [01:45.120] There is still more work to do, no
+- [01:46.600] doubt, which is why President Trump
+- [01:48.360] remains laser-focused on lowering costs
+- [01:50.760] and raising wages for working families
+- [01:53.240] across the country. Just last week,
+- [01:55.560] Walmart and Sam's Club announced they
+- [01:57.240] will be lowering prices on thousands of
+- [01:59.360] items in their stores across the
+- [02:01.320] country. Shoppers can expect meaningful
+- [02:03.720] savings on groceries, household
+- [02:05.440] essentials, outdoor living products,
+- [02:07.600] toys, apparel, and other everyday
+- [02:09.800] staples. As President Trump said,
+- [02:11.920] Walmart answered his call and stepped up
+- [02:14.040] in a big way, and we commend them for
+- [02:15.959] that. We hope other major retailers will
+- [02:18.160] follow the lead of this patriotic
+- [02:19.920] American company. While we're on the
+- [02:22.080] subject of helping working families get
+- [02:24.440] ahead, I want to remind everyone that
+- [02:26.440] the Trump accounts are now officially
+- [02:28.280] live.
+- [02:29.320] To date, and this is a new stat from the
+- [02:31.160] Council of Economic Advisors this
+- [02:32.720] morning, more than 6.5 million American
+- [02:35.880] children have been signed up for
+- [02:37.840] accounts so far, including my two kids,
+- [02:40.320] who I signed up during my maternity
+- [02:42.120] leave. There are a few things I want to
+- [02:43.840] make clear about this massively
+- [02:45.480] beneficial program that has the
+- [02:47.240] potential to literally transform the
+- [02:49.680] financial future of this country. First,
+- [02:52.680] any child under the age of 18 is
+- [02:54.760] eligible to have a Trump account opened
+- [02:56.680] in his or her name. This is a free
+- [02:59.320] investment savings account that costs
+- [03:01.200] nothing to open. Second, thanks to
+- [03:03.959] President Trump, every child
+- [03:06.400] born between January 1st, 2025 and
+- [03:09.280] December 31st, 2028 will receive a
+- [03:12.239] $1,000 seed deposit from the United
+- [03:14.760] States Treasury. Third, parents,
+- [03:17.120] guardians, relatives, and friends can
+- [03:18.840] contribute up to 5,000 bucks per year
+- [03:21.440] combined for each child. Employers can
+- [03:24.080] also contribute up to $2,500 per year on
+- [03:27.239] a tax- favored basis counting toward the
+- [03:29.320] annual cap. The President believes there
+- [03:31.680] is no better investment than in
+- [03:33.440] America's children. Government
+- [03:35.320] projections show that a child whose
+- [03:37.120] family maxes out contributions could see
+- [03:39.360] the account grow to nearly 300,000
+- [03:42.760] dollars by the time the child turns 18.
+- [03:45.560] This is, I can think we can all agree,
+- [03:47.640] an enormously powerful head start toward
+- [03:50.320] the American dream. These funds can be
+- [03:52.480] used for college, starting a business,
+- [03:54.320] or purchasing a home. This is truly a
+- [03:56.640] transformational, non-partisan program.
+- [03:59.280] So, I encourage everyone listening with
+- [04:00.920] a child to establish a Trump account
+- [04:02.680] today for your child, and tell everyone
+- [04:05.040] you know with children to do the same.
+- [04:06.959] The app is also incredibly inviting and
+- [04:09.280] easy to use for parents at home.
+- [04:11.480] Finally, let's turn to the border. Brand
+- [04:13.800] new numbers this week from the
+- [04:15.160] Department of Homeland Security and
+- [04:16.720] Customs and Border Protection confirm
+- [04:18.680] that for the 14th straight month, this
+- [04:21.480] administration has released zero illegal
+- [04:24.240] aliens into the United States. Again,
+- [04:26.400] let me reiterate, the 14th straight
+- [04:28.760] month, not a single illegal criminal
+- [04:31.600] alien has been entered into our country,
+- [04:34.160] released into our country by this
+- [04:36.680] administration. Illegal crossings in
+- [04:38.960] June remained at historic lows, and
+- [04:41.120] Southwest border apprehensions are down
+- [04:43.440] 94%
+- [04:45.000] compared to the same period under the
+- [04:47.080] Biden administration. These numbers
+- [04:49.560] speak for themselves. Thanks to
+- [04:51.400] President Trump's strong leadership and
+- [04:53.400] unwavering commitment to law
+- [04:55.120] enforcement, America has the most secure
+- [04:57.880] border we have ever had in our nation's
+- [05:00.480] history. The administration continues
+- [05:02.880] working to reverse the previous influx
+- [05:05.040] of millions of legal aliens into our
+- [05:07.120] country by the Biden administration, and
+- [05:09.640] our law enforcement professionals, God
+- [05:11.440] bless them, are arresting criminal
+- [05:13.480] illegal aliens across the country,
+- [05:15.520] including those convicted of the most
+- [05:17.320] heinous and violent crimes. This past
+- [05:19.680] weekend alone, ICE arrested a Mexican
+- [05:22.400] national and gang member convicted of
+- [05:24.320] second-degree murder in California, a
+- [05:26.760] Dominican national convicted of
+- [05:28.520] aggravated manslaughter in New Jersey, a
+- [05:31.160] Saudi national convicted of indecent
+- [05:33.440] liberties with a child in North
+- [05:35.000] Carolina, a Mexican national convicted
+- [05:37.720] of continuous sexual abuse of a child in
+- [05:39.919] California, a Nicaraguan national
+- [05:42.440] convicted of second-degree child
+- [05:44.040] molestation in Rhode Island, and a
+- [05:46.280] Mexican national convicted of lewd acts
+- [05:48.520] with a child under 14 with force in
+- [05:51.040] California. These are egregious crimes,
+- [05:53.120] and again, I think we can all agree that
+- [05:55.080] none of you would want these individuals
+- [05:56.960] living in your communities, and you have
+- [05:58.440] this administration to thank that they
+- [06:00.160] are on their way back home. The American
+- [06:02.200] people delivered a decisive mandate to
+- [06:04.160] arrest and deport these dangerous
+- [06:05.680] criminals, and President Trump is
+- [06:07.400] wholeheartedly committed to delivering
+- [06:09.600] on that mandate every day. He will never
+- [06:11.800] waver in his duty to defend our homeland
+- [06:14.760] and protect the American people. And he
+- [06:16.600] has proven without a shadow of doubt
+- [06:19.160] that the chaos and the lawlessness that
+- [06:21.240] we saw every single day at the border
+- [06:23.919] and across our country under the Biden
+- [06:25.800] administration was a choice, and it is a
+- [06:28.840] choice this president has chosen not to
+- [06:31.080] make. While this work is far from
+- [06:32.919] finished, the border is secure, and
+- [06:34.800] deportations will continue. With that,
+- [06:37.680] I'll take your questions today. I look
+- [06:39.120] forward to doing so. I know there's a
+- [06:40.480] lot of news. We have two people in our
+- [06:42.520] new media seats today, Rachel Bade and
+- [06:44.800] Ben and Rachel, why don't you kick us
+- [06:46.560] off? Ben will give you a question, and
+- [06:48.040] then we'll get to the rest of all of
+- [06:49.480] you. Thanks, Rachel.
+- [06:50.400] >> Uh thanks, Caroline. Welcome back to the
+- [06:51.760] briefing room, and congrats on your
+- [06:53.360] baby.
+- [06:53.880] >> Thank you.
+- [06:54.240] >> Two questions
+- [06:55.240] >> Sure.
+- [06:55.560] >> if I may. The first one is a fun one for
+- [06:57.040] your first day back. You now have two
+- [06:59.919] babies under 2 years old.
+- [07:01.640] >> I do.
+- [07:02.120] >> Uh as someone who has a 4-year-old, I
+- [07:04.400] can only imagine how little you are
+- [07:05.919] sleeping right now. Um what is your one
+- [07:08.600] tip or secret to women who want to have
+- [07:11.000] it all, the kids and the hard-charging
+- [07:13.480] career?
+- [07:14.269] >> [clears throat]
+- [07:14.680] >> Well, thanks for the question, Rachel,
+- [07:16.040] and it is really good to be back with
+- [07:17.320] all of you. Uh I don't think there is a
+- [07:19.120] secret. You just have to show up every
+- [07:20.680] day and keep going. And it really does
+- [07:23.120] take a village. Uh
+- [07:24.840] take the opportunity to shout out to my
+- [07:26.480] husband who's home with our babies right
+- [07:28.040] now. I look forward to returning home
+- [07:29.440] later um to be with them, but it's uh a
+- [07:32.560] challenging, but for me, I view this as
+- [07:34.760] more than a job. I view this as public
+- [07:36.360] service on behalf of a president who I
+- [07:39.320] firmly believe in everything this
+- [07:40.800] administration is doing and really
+- [07:42.480] creating a better country uh for my
+- [07:44.600] children and their future and I'm very
+- [07:46.240] grateful for that. Blessed to both be
+- [07:48.440] working in this job but also to have two
+- [07:50.240] beautiful babies at home and as you know
+- [07:51.920] Rachel and any mom in this room knows,
+- [07:53.760] there's nothing better than being a
+- [07:54.880] mother. So, thanks for the question.
+- [07:56.400] >> Babies are the best. Um
+- [07:58.040] okay, a question about tonight. Um there
+- [08:00.360] are a lot of Republicans in this town
+- [08:01.920] who very much support the Save Act and
+- [08:04.880] want to make sure, you know, our
+- [08:06.280] elections are upheld, election integrity
+- [08:08.720] top priority for them. But some of them
+- [08:10.680] are concerned that tonight's primetime
+- [08:12.919] address might focus on, you know,
+- [08:15.760] elections of the past, uh really
+- [08:17.640] relitigating them rather than voter
+- [08:19.760] concerns of today. Um I'm wondering, can
+- [08:22.720] you tell us if the president tonight is
+- [08:24.360] going to talk about the economy? You
+- [08:25.800] just talked a lot about the economy uh
+- [08:27.560] and and what we're seeing there. And
+- [08:29.640] what does the White House say to
+- [08:31.200] Republicans who are worried that
+- [08:33.320] election issues like this uh could
+- [08:35.520] actually turn off swing voters?
+- [08:37.320] >> Well, a few things. I would encourage
+- [08:38.719] everyone to tune in tonight. I've seen a
+- [08:40.400] lot of reporting and frankly
+- [08:41.840] misreporting about what the president
+- [08:43.840] will say. I think the American people
+- [08:45.720] will be relieved to hear what they are
+- [08:47.720] hearing from the president of the United
+- [08:49.440] States and his commitment to
+- [08:50.560] transparency and the focus on the
+- [08:52.720] integrity of our elections tonight. I
+- [08:54.560] think all Republicans and Democrats
+- [08:56.760] should recognize this should be a
+- [08:57.880] non-partisan issue. If we don't have
+- [09:00.000] safe and secure elections in our
+- [09:01.560] country, we cannot have a country. It is
+- [09:04.120] a a vital part of our democracy, of our
+- [09:07.040] constitutional republic. The president
+- [09:08.960] will be speaking about that tonight. And
+- [09:11.120] in addition, at the very same time, of
+- [09:12.880] course he is working on all of these
+- [09:14.760] economic issues that the American people
+- [09:16.600] have at home. Uh I just read to you uh
+- [09:19.080] the latest inflation numbers are looking
+- [09:20.920] good, the best report in 6 years. The
+- [09:22.560] president uh Republicans and Democrats
+- [09:25.240] and all Americans have this president to
+- [09:26.720] thank for the largest tax cuts in
+- [09:28.640] American history which every Democrat on
+- [09:30.680] Capitol Hill voted against. Uh you have
+- [09:32.920] this president to thank for the Trump
+- [09:34.440] accounts for our children uh and the
+- [09:36.880] securing the future of the American
+- [09:38.280] dream. So, this president is doing a
+- [09:39.760] lot, but obviously
+- [09:42.920] safe and secure elections are a true
+- [09:44.760] tenant of our constitutional republic,
+- [09:46.680] and the president will be speaking about
+- [09:47.800] that tonight.
+- [09:49.120] Thank you. And Ben, please.
+- [09:50.440] >> Hey, so I'm from England. I've been
+- [09:52.120] following the World Cup all around,
+- [09:53.880] absolutely loving it. Unfortunately, we
+- [09:56.040] got knocked out last night. So, I'd love
+- [09:57.880] to ask you a favor.
+- [10:00.240] >> Tough day for you today.
+- [10:01.360] >> Yeah, it's all good though. But, I want
+- [10:03.160] to know, so all these football fans
+- [10:04.880] coming to America, absolutely having a
+- [10:06.760] great time. I've had an amazing time.
+- [10:08.920] What do you want these football fans to
+- [10:10.520] take away from their time in America?
+- [10:12.360] >> Sure. Well, I'm so glad you enjoyed your
+- [10:14.240] experience here in our country, and
+- [10:16.560] sorry for the loss. We look forward to
+- [10:19.160] the final match on Sunday, and I know
+- [10:20.680] the president looks forward to
+- [10:21.640] attending, but I think the world saw
+- [10:24.080] that this president and this country is
+- [10:26.720] able to put on the greatest show in
+- [10:29.240] sports in the world. And we are a kind
+- [10:31.960] people, we are a hardworking people, and
+- [10:34.280] we have the best country on the planet.
+- [10:36.120] And I know I've loved seeing the videos
+- [10:38.480] from
+- [10:39.720] foreigners from around the world who
+- [10:41.040] have traveled to the United States, and
+- [10:42.200] have been quite surprised about how
+- [10:43.600] lovely and enjoyable the United States
+- [10:45.280] is. I don't think we get enough credit
+- [10:47.240] from the international media around the
+- [10:48.880] world, but we encourage everyone to come
+- [10:51.520] and experience America for themselves.
+- [10:53.360] So, thanks for being here.
+- [10:55.560] And safe travels home. You're welcome.
+- [10:57.960] Garrett.
+- [10:58.600] >> Garrett, welcome back.
+- [10:59.480] >> Good to see you.
+- [11:00.480] >> Likewise.
+- [11:01.800] To the degree that this speech tonight
+- [11:03.440] is about elections past, not elections
+- [11:06.000] upcoming.
+- [11:07.280] The 2020 election has had dozens of
+- [11:09.120] recounts, lawsuits, audits. 2024
+- [11:11.839] election widely believed to be safe and
+- [11:14.680] secure. There's not really any question
+- [11:16.080] about that. And a lot of people
+- [11:17.839] >> Because it was too big to rig.
+- [11:19.120] >> Well, I think a lot of people look at
+- [11:20.320] this and
+- [11:20.800] >> massive amount of votes for this
+- [11:21.880] president. That's why he's in the Oval
+- [11:23.200] Office right now.
+- [11:24.040] >> No one disputes that. There were
+- [11:25.240] significant amount of votes for Joe
+- [11:26.480] Biden who won in 2020. I mean, the
+- [11:28.200] question is, why is the president unable
+- [11:31.720] to let this go?
+- [11:33.400] >> Well, first of all, Garrett, I think
+- [11:35.280] part of the problem is that the media
+- [11:37.280] has refused to acknowledge that tens of
+- [11:39.120] millions of Americans across the country
+- [11:41.640] share the concerns of this president
+- [11:43.640] about the sanctity of our elections. In
+- [11:45.720] your premise of your question, you're
+- [11:47.360] jumping ahead to a conclusion in this
+- [11:48.920] speech before even hearing it yourself.
+- [11:50.680] I think that everyone should tune in
+- [11:53.560] tonight, including the people in this
+- [11:55.000] room, and you should report on the
+- [11:56.160] president's speech and the findings that
+- [11:57.880] he is going to reveal in this speech
+- [11:59.680] with a little bit of honesty and a
+- [12:01.000] little bit of integrity because it does
+- [12:03.000] it will shock you if you have an honest
+- [12:05.280] eye listening to the president tonight
+- [12:07.000] and everything he is saying will be
+- [12:08.400] backed by
+- [12:09.800] by by facts and by evidence that will be
+- [12:12.200] provided this evening. And again,
+- [12:14.200] Garrett, again, I think all Americans,
+- [12:16.200] Democrat, Republican, should agree that
+- [12:18.320] we are the greatest country in the
+- [12:19.720] history of the world. We should have the
+- [12:21.080] safest and most secure elections in the
+- [12:23.240] history of the world. And what the
+- [12:24.320] president will be speaking about tonight
+- [12:26.160] will show you that perhaps that is not
+- [12:28.080] the case and we need to make some
+- [12:29.280] adjustments moving forward, including
+- [12:31.280] the Save America Act, as Rachel pointed
+- [12:33.080] out, is a key legislative priority for
+- [12:35.160] this president on Capitol Hill, and he
+- [12:38.000] wants to see all senators and members of
+- [12:40.680] Congress voting in favor of the Save
+- [12:42.800] America Act because it's crucially
+- [12:45.080] important as we move forward.
+- [12:46.960] >> Aisha.
+- [12:47.880] >> Welcome back. And I'm going to assume
+- [12:49.080] the pink is for your baby girl,
+- [12:50.640] >> You know, I didn't think that, but I
+- [12:52.240] guess it is now. Thank you.
+- [12:54.000] >> We've talked a little bit about what the
+- [12:55.320] president might say tonight, but
+- [12:56.838] [clears throat] the other question is
+- [12:57.839] who is running the
+- [12:58.880] the teleprompter tonight after this
+- [13:00.560] report that the other guy is now under
+- [13:02.560] investigation for making money
+- [13:04.240] >> Yeah.
+- [13:04.560] >> off of reading the president's speech.
+- [13:06.120] >> Obviously, I'm aware of the report. The
+- [13:08.160] president is, too. I spoke with him
+- [13:09.880] about it. He believes it's deeply
+- [13:11.920] unfortunate and frankly a disgrace. And
+- [13:14.560] the individual that was cited in that
+- [13:16.200] report is complying with the CFTC but
+- [13:18.760] has been put on paid administrative
+- [13:20.760] leave. So, there will be a teleprompter
+- [13:22.839] operator tonight, of course, but it will
+- [13:24.600] not be be one unfortunately in that
+- [13:26.440] story.
+- [13:26.880] >> One more on Iran. The Vice President
+- [13:29.360] J.D. Vance went on this podcast with Joe
+- [13:31.280] Rogan yesterday, talked about Israel, in
+- [13:33.600] which he said that there are some people
+- [13:35.840] within their system that we know beyond
+- [13:38.040] a shadow of a doubt were manipulating
+- [13:40.520] and trying to change American public
+- [13:42.240] opinion to keep the war going on
+- [13:44.520] indefinitely. Does the President agree
+- [13:46.880] with that statement?
+- [13:47.920] >> I think the President would certainly
+- [13:49.120] agree that yes, foreign countries
+- [13:50.840] certainly do try to persuade American
+- [13:53.160] public opinion. There's no doubt about
+- [13:54.720] that. I think it's just a basic fact.
+- [13:56.720] Ed.
+- [13:57.280] >> Good to see you, Karine. Following up on
+- [13:59.080] the teleprompter and then one on
+- [14:00.120] tonight's speech. What steps is the
+- [14:02.360] White House taking to ensure something
+- [14:04.480] like that doesn't happen again?
+- [14:05.880] >> Well, the White House has extremely
+- [14:07.520] strict ethical guidelines with respect
+- [14:10.600] to issues like this. And as I just told
+- [14:12.480] you, this individual will no longer be
+- [14:15.160] here. He'll be on paid administrative
+- [14:17.360] administratively, I'm sorry, without
+- [14:19.000] pay. The administrative leave is unpaid,
+- [14:21.200] to be very clear. That was a decision by
+- [14:23.760] the President, so I think that speaks
+- [14:25.400] for itself.
+- [14:26.080] >> On the
+- [14:27.080] concerns about the election,
+- [14:29.560] will the President accept the results of
+- [14:32.360] November's elections?
+- [14:33.839] >> Look, Ed.
+- [14:35.320] You should tune into the President's
+- [14:36.839] speech tonight before you jump ahead to
+- [14:38.360] conclusions about what's actually in the
+- [14:39.960] speech. Again, I've seen a lot of
+- [14:41.360] reporting and misreporting about what
+- [14:43.040] the President will say. We hope CBS will
+- [14:45.320] take the speech and all Americans should
+- [14:47.280] should take it.
+- [14:49.480] >> Will he accept the results?
+- [14:50.720] >> Karine,
+- [14:51.600] two questions on the Trump account.
+- [14:53.839] First, following the birthright
+- [14:55.960] citizenship case, is there a concern
+- [14:58.480] that babies that are born to illegal
+- [15:01.120] immigrants here in the United States are
+- [15:02.880] not excluded from these accounts?
+- [15:05.220] [clears throat] And also, since the
+- [15:07.200] $1,000 per child from the Treasury seeds
+- [15:11.120] these accounts, can you assuage concerns
+- [15:13.520] from those who feel this is wealth
+- [15:15.240] redistribution?
+- [15:16.760] >> I would certainly not describe it as
+- [15:19.440] that. As you know, this was an
+- [15:21.040] incredible public
+- [15:22.880] private public partnership. We had
+- [15:25.640] incredibly generous Americans, Michael
+- [15:27.560] Dell, and many others who contributed to
+- [15:30.400] the fund for the Trump accounts. So,
+- [15:32.200] that money will then be passed along to
+- [15:34.320] America's children, which I think is a
+- [15:35.840] great thing that
+- [15:37.480] all Americans from all political
+- [15:39.160] persuasions can agree upon. With respect
+- [15:41.480] to your question on birthright
+- [15:42.400] citizenship, I think the president has
+- [15:43.920] made his view and the White House has
+- [15:45.720] made our view on this case quite clear.
+- [15:47.920] We're going to continue to move forward
+- [15:49.600] to work with Congress hopefully in the
+- [15:52.160] future to remedy this problem in our
+- [15:55.200] country and to ensure that we cannot
+- [15:58.120] have this scam continuing where you have
+- [16:00.360] foreigners from all around the world
+- [16:01.880] traveling to our country to give birth
+- [16:03.840] to babies who are then given the
+- [16:05.320] greatest privilege on the face of the
+- [16:06.960] planet, American citizenship. That's not
+- [16:09.320] how our founding fathers intended this
+- [16:11.040] country to work or to operate, and the
+- [16:12.880] administration is committed to finding
+- [16:14.360] solutions to remedy that.
+- [16:16.080] >> Do they have access to the Trump
+- [16:17.320] accounts?
+- [16:17.926] >> [cough and clears throat]
+- [16:18.000] >> Those Those are children of those
+- [16:20.200] illegal aliens?
+- [16:21.320] >> something I've discussed directly with
+- [16:22.720] the president, so I don't want to speak
+- [16:23.880] out of turn on that.
+- [16:25.640] As you know, Carrie, all American
+- [16:27.839] citizen children are able to access the
+- [16:29.640] Trump accounts as it stands right now.
+- [16:32.320] Sure, go ahead.
+- [16:33.680] >> Thank you very much,
+- [16:35.240] Mark Stone from Sky News. Can I switch
+- [16:37.360] to Iran, please, specifically
+- [16:39.839] the Minab school attack? 120 children
+- [16:43.200] dead, 26 of their teachers. A Sky News
+- [16:46.080] investigation released today points to
+- [16:48.480] all this being a tragic mistake by
+- [16:51.240] America, by the US military. So, could
+- [16:53.160] you explain, please, why the president
+- [16:55.360] is repeatedly saying it wasn't America
+- [16:58.560] when he hasn't actually He says also
+- [17:00.000] that he hasn't even seen the report.
+- [17:02.000] >> I can't speak to the Sky News
+- [17:03.720] investigation respectfully because I
+- [17:05.439] have not read it. All I can speak to is
+- [17:07.640] what the president has said as I speak
+- [17:09.360] on his behalf, and the investigation
+- [17:11.360] continues, and we would defer you to the
+- [17:13.160] Department of War for further questions.
+- [17:15.560] >> I'm following up, if I may.
+- [17:17.439] >> Sure.
+- [17:18.120] >> I I I just want to understand
+- [17:19.480] >> going to change. I just want to
+- [17:20.720] understand why he consistently says it
+- [17:23.160] wasn't us. We didn't do this when all
+- [17:25.480] the evidence and indeed the preliminary
+- [17:27.880] report and we've spoken to an a military
+- [17:30.760] insider who says this was human error.
+- [17:33.760] >> Well, that's the president's opinion and
+- [17:35.240] at the very same time. He has said the
+- [17:36.880] Department of War is investigating the
+- [17:38.680] matter and we would defer you to them
+- [17:40.640] for any questions with respect to the
+- [17:42.240] investigation which obviously has not
+- [17:43.800] been released yet. I would defer you to
+- [17:45.720] them for further questions on it. But
+- [17:47.840] there's been I think the president feels
+- [17:50.000] that way because he knows that our
+- [17:51.600] military always acts in good faith and
+- [17:54.000] absolutely never targets civilians or
+- [17:56.000] children unlike the other side of this
+- [17:58.240] conflict Iran who is well known for
+- [18:00.520] killing women and children and innocent
+- [18:03.040] people in their country for a very long
+- [18:05.040] time. So you should focus on that in
+- [18:06.240] your reporting.
+- [18:06.920] >> Thanks Kayleigh.
+- [18:08.600] Welcome back. Another World Cup question
+- [18:10.960] much pains me.
+- [18:13.720] The President Trump had some harsh words
+- [18:15.560] for Spain at the NATO summit last week
+- [18:18.760] about their spending. Does that mean
+- [18:20.960] he's going to be supporting Argentina?
+- [18:23.687] >> [laughter]
+- [18:24.760] >> Danny, it is a really good question and
+- [18:26.800] I'm disappointed myself for not asking
+- [18:28.600] the president before I came out here
+- [18:30.160] knowing you would probably ask. I
+- [18:32.000] haven't talked to him about it but we'll
+- [18:34.200] get you an answer on that. You're
+- [18:35.240] welcome to ask him yourself at some
+- [18:36.600] point before the game. I'm sure you'll
+- [18:37.880] see him and I'm sure he'll have a funny
+- [18:39.400] answer for you on it.
+- [18:41.320] Sure, in the middle. Go ahead. Sure
+- [18:42.960] Jasmine. Go ahead.
+- [18:45.120] >> Back on the teleprompter issue. Notice
+- [18:48.360] reported earlier this year that Cal-OSHA
+- [18:50.080] was inaccessible on the Wi-Fi that
+- [18:52.080] journalists here at the White House have
+- [18:54.920] access to
+- [18:56.520] our staffers back in the West Wing and
+- [18:58.880] other parts of the EOB etc. Do they have
+- [19:01.680] access to Cal-OSHA and fully market on
+- [19:03.320] their Wi-Fi?
+- [19:04.440] >> On our work computers? Honestly, I've
+- [19:06.920] never tried so I don't know. But I'm
+- [19:08.560] happy to go try and get you an answer on
+- [19:10.360] that.
+- [19:13.680] >> Sure.
+- [19:15.120] go ahead and then Reagan go.
+- [19:16.480] >> Are there any other White House staffers
+- [19:18.360] or uh people within the administration
+- [19:20.600] who are suspected of also uh placing
+- [19:23.360] bets on Kalshi or Polymarket or other
+- [19:25.640] other things with some of this
+- [19:27.080] privileged information?
+- [19:28.400] >> Not to my knowledge. Not that I've been
+- [19:30.000] made aware of and as you saw, I think
+- [19:31.880] this played out exactly how it should.
+- [19:33.920] Uh Kalshi notified the CFTC of of
+- [19:36.320] suspicious activity. They investigated
+- [19:38.560] that, identified the individual and he
+- [19:40.520] will now no longer be working at the
+- [19:41.840] White House. So, I think that answers
+- [19:43.480] all the questions on this matter.
+- [19:44.680] Reagan.
+- [19:45.240] >> Thank you, Caroline. I have a question
+- [19:46.480] for you on the Save America Act and
+- [19:48.160] Senator Graham and then a quick question
+- [19:50.080] on Iran.
+- [19:50.720] >> Sure.
+- [19:51.080] >> Um Trump said in one of his final
+- [19:53.040] conversations with the late Senator
+- [19:54.880] Graham that he was talking about the
+- [19:56.320] Save America Act and that he felt like
+- [19:57.760] they were in a great position with it.
+- [19:59.800] Do you anticipate that the Senate is
+- [20:01.760] going to be more aggressive to push the
+- [20:03.680] Save America Act in light of the fact
+- [20:05.840] that it was so important to Senator
+- [20:07.320] Graham so close to his death?
+- [20:08.680] >> Sure. Well, since I haven't had the
+- [20:10.280] opportunity, let me just express my
+- [20:11.960] sincere condolences to Senator Graham's
+- [20:14.520] staff and his family. He was beloved by
+- [20:16.960] so many here at the White House,
+- [20:18.320] especially the President and I know that
+- [20:20.600] the news of his sudden passing passing
+- [20:22.560] was just tragic to all of us, especially
+- [20:25.240] the President who considered him a dear
+- [20:27.200] friend. Um the Save America Act, as I
+- [20:29.640] said, Reagan, is
+- [20:31.400] of vital importance to this President uh
+- [20:33.880] and he wants to see it move forward. I
+- [20:35.640] understand um that Capitol Hill and
+- [20:38.200] Speaker Johnson are moving forward with
+- [20:40.760] uh attaching as many elements of the
+- [20:42.560] Save America Act as possible to the
+- [20:44.560] budget reconciliation 3.0. Here we go.
+- [20:47.280] Uh the President is supportive of that
+- [20:48.960] process uh and he hopes that Republicans
+- [20:51.840] um will vote for this important piece of
+- [20:53.840] legislation. Uh the budget
+- [20:55.640] reconciliation bill not only uh will
+- [20:58.200] address the Save America Act, but also
+- [21:00.760] uh ensure uh important aid for our
+- [21:03.080] farmers uh and our war fighters, which
+- [21:05.160] the President supports as well.
+- [21:07.000] >> Brian.
+- [21:07.800] >> Thank you, Caroline. Welcome back.
+- [21:09.200] >> Thank you.
+- [21:10.000] >> On the uh Calshie situation, I have just
+- [21:12.680] a few questions on that.
+- [21:13.960] >> Sure.
+- [21:15.000] >> This individual has been accused of
+- [21:17.520] making trades around the president's
+- [21:18.800] speeches for months. I mean, this has
+- [21:20.840] been going on since at least earlier
+- [21:23.120] this year, maybe even before that.
+- [21:26.440] Did the White House White House Counsel
+- [21:28.720] have any awareness that this was going
+- [21:30.520] on with this individual? And if not,
+- [21:32.320] >> No.
+- [21:32.840] >> And so no, then why not? Is there any
+- [21:35.000] sort of
+- [21:36.120] plan in place to try to figure this out
+- [21:38.280] to see if anyone else is doing this or
+- [21:39.680] to track future people from
+- [21:42.360] see if they're making these types of
+- [21:43.360] bets in the White House. Any any
+- [21:44.600] discussions around that?
+- [21:45.680] >> Look, there are very strict ethical
+- [21:47.440] guidelines here at the White House that
+- [21:48.880] explicitly state not to do this. And the
+- [21:51.440] White House Counsel's office makes that
+- [21:52.960] clear to all of us who sign up to work
+- [21:55.120] in government on behalf of the
+- [21:56.600] president. So, I think there has been a
+- [21:58.240] plan in place. This individual
+- [21:59.840] unfortunately violated the plan, and
+- [22:01.480] therefore he's paying the consequences
+- [22:03.160] for it. I don't know why there's
+- [22:05.320] further questions on this.
+- [22:06.400] >> this, but then doesn't that leave open
+- [22:08.160] the possibility, even though there are
+- [22:09.480] the rules, and there's no disrespect in
+- [22:10.640] that strict rules on this.
+- [22:12.200] But if there are no mechanisms in place,
+- [22:15.080] and then I'm not saying that there are
+- [22:16.440] or there shouldn't or should not be, but
+- [22:17.400] if there are none in place to try to
+- [22:19.040] track this happening inside the White
+- [22:20.720] House and inside executive branch of the
+- [22:22.480] government, doesn't that leave open the
+- [22:23.680] possibility for this to keep happening
+- [22:24.960] or happening again and these result in
+- [22:26.680] people making bets like this inside the
+- [22:28.240] administration?
+- [22:29.040] >> Again, there are very strict ethical
+- [22:30.720] requirements required by [clears throat]
+- [22:32.120] all staffers and officials here at the
+- [22:34.480] White House. And if they are violated,
+- [22:35.880] people will pay consequences for that,
+- [22:37.400] as you're seeing with this case. Libby.
+- [22:41.120] Thank you.
+- [22:42.240] >> I have a question about Senator
+- [22:43.320] McConnell, but first on Iran.
+- [22:45.880] President Trump has now green-lighted
+- [22:47.240] strikes on Iran for nearly every day
+- [22:49.640] this week. Do you and does the White
+- [22:51.960] House describe negotiations more at a
+- [22:54.040] standstill or essentially completely
+- [22:55.880] over?
+- [22:56.720] >> Well, I've spoken with the president
+- [22:58.080] about this as recently as an hour ago.
+- [23:00.520] Iran very much continues to talk to the
+- [23:03.280] United States of America and expressed
+- [23:05.080] that they want to make a deal with us
+- [23:07.440] because they are suffering devastating
+- [23:09.560] blows on behalf of our United States
+- [23:11.880] military. The reason, and this is
+- [23:13.880] important for the American people to
+- [23:15.160] understand, the reason for the recent
+- [23:17.080] strikes over the course of the last
+- [23:18.600] several days is because Iran violated
+- [23:21.560] the memorandum of understanding that we
+- [23:23.360] struck with them. Specifically, in the
+- [23:25.920] memorandum of understanding that they
+- [23:27.480] signed, they were not to fire on
+- [23:29.600] commercial vessels moving through the
+- [23:31.000] Strait of Hormuz. And unfortunately,
+- [23:33.440] they have made the tragic decision for
+- [23:35.840] them to do that. And President Trump is
+- [23:38.040] not going to sit by and allow these
+- [23:40.320] active acts of terrorism to take place
+- [23:42.760] in the Strait without ensuring Iran pays
+- [23:45.360] consequences for that, and that's what
+- [23:46.760] we are witnessing right now.
+- [23:48.080] >> What did he say about this within the
+- [23:49.640] last hour? I mean, does he essentially
+- [23:51.360] seem fed up with these negotiations? And
+- [23:53.840] can you explain why the American people
+- [23:56.400] should think that a deal with
+- [23:57.741] [clears throat] Iran would even be
+- [23:58.680] worthwhile at this point, given the fact
+- [24:00.680] that they broke it already?
+- [24:02.280] >> Well, look at how bad they are behaving.
+- [24:03.960] It just proves the president's initial
+- [24:05.640] point for launching Operation Epic Fury
+- [24:08.040] in the first place. Iran can never
+- [24:10.200] obtain a nuclear weapon. That's why he
+- [24:12.000] launched Operation Epic Fury. They have
+- [24:13.960] suffered devastating blows to their
+- [24:15.760] military and their economy as a result.
+- [24:18.120] The president is always open and willing
+- [24:20.280] to diplomacy. He is the peace through
+- [24:22.840] strength president after all. After
+- [24:25.360] Operation Epic Fury, the conclusion of
+- [24:27.000] it, we did move forward into a
+- [24:28.720] diplomatic phase, if But unfortunately,
+- [24:31.680] Iran has since violated that. They have
+- [24:33.480] expressed they still want to make a deal
+- [24:35.080] to the president. We're talking to them,
+- [24:37.320] but again, the president is not going to
+- [24:39.280] allow them to fire on ships in the
+- [24:40.760] Strait without paying a consequence for
+- [24:42.640] that. And I think just one more point, I
+- [24:44.440] think throughout this entire endeavor,
+- [24:46.400] the president has proved not just to
+- [24:48.440] Iran, but to the entire world, that we
+- [24:50.920] can hit Iran anytime, anywhere, any
+- [24:53.200] place, and their ability to defend
+- [24:55.800] themselves has been essentially wiped
+- [24:58.320] out because of this president and
+- [25:00.800] operation epic fury in the first place.
+- [25:03.760] Go ahead.
+- [25:04.560] >> Thank you so much. Welcome back.
+- [25:06.120] >> Thank you.
+- [25:06.600] >> Two questions for you. If I can read two
+- [25:08.720] comments, one made by President Trump
+- [25:10.760] and one made by the Vice President on
+- [25:13.000] Iran. President Trump recently said, "As
+- [25:15.680] far as I'm concerned, it's just a waste
+- [25:17.600] of time dealing with them. They're
+- [25:19.080] liars. There's something wrong with
+- [25:20.960] them. They are cuckoo. They are scum,
+- [25:22.720] sick people, vicious, violent people."
+- [25:25.200] And then Vice President Pence went on
+- [25:26.800] Joe Rogan last night and he said, "I'm
+- [25:28.720] very frustrated by the Americans and
+- [25:31.200] frankly by people in other countries who
+- [25:33.320] say you cannot negotiate with the
+- [25:35.880] Iranians." So, your response to these
+- [25:38.360] contradictions because I think you can
+- [25:40.240] understand how that's confusing for
+- [25:41.880] Americans with this mixed messaging and
+- [25:43.840] then second question for you, at least
+- [25:46.160] six Americans are still detained in
+- [25:48.560] Iran. Will President Trump make this
+- [25:51.520] conditional a point of condition in
+- [25:54.160] continuing these conversations with the
+- [25:56.080] country as well as political prisoners
+- [25:58.480] and also people that are still being
+- [26:00.880] executed in Iran to this day.
+- [26:02.840] >> Sure. To your second question, I'll
+- [26:04.360] never create a red line or a condition
+- [26:06.600] on behalf of the president without his
+- [26:08.120] blessing. I haven't heard him say that,
+- [26:09.600] but obviously ensuring the return of
+- [26:12.200] Americans wrongfully detained or held
+- [26:14.480] hostage all over this world remains a
+- [26:16.760] priority for him and he has done so in a
+- [26:19.320] tremendous way over the course of the
+- [26:21.000] last year and a half. Americans from all
+- [26:22.720] over the world have returned home thanks
+- [26:24.560] to this president and the efforts of his
+- [26:26.320] national security team. To your first
+- [26:28.120] question about the comments between the
+- [26:29.680] president and the vice president,
+- [26:31.040] respectfully I do think you're taking
+- [26:32.920] comments from different times throughout
+- [26:34.240] this conflict and kind of asking me if
+- [26:36.840] these are contradictory of each other. I
+- [26:38.480] can tell you the president and vice
+- [26:39.680] president are on the exact same page
+- [26:41.200] about where we are right now in this
+- [26:43.120] conflict and the fact that you do see
+- [26:46.360] elements of what's remaining in the
+- [26:49.080] Iranian regime that are more willing to
+- [26:51.120] make a deal and then other elements who
+- [26:52.800] are not so maybe willing to make a deal
+- [26:54.520] shows that Operation Epic Fury was
+- [26:56.760] incredibly effective because we neutered
+- [26:59.400] their ability to communicate with one
+- [27:01.000] another and they are a fragmented
+- [27:03.200] system. They are not the once very
+- [27:05.120] strong powerful terrorist state that
+- [27:06.800] they were before this operation which
+- [27:09.080] was one of the ultimate goals. So we'll
+- [27:11.280] continue to work through the process and
+- [27:12.840] as I said, the president will hold them
+- [27:14.720] accountable when they turn their back on
+- [27:17.720] the words that they state to the United
+- [27:19.400] States, but he is always open to
+- [27:21.880] diplomacy at the very same time.
+- [27:24.560] >> Thank you, Karoline.
+- [27:25.320] >> Sure.
+- [27:25.800] >> Regarding the president's speech
+- [27:27.240] tonight, he's been in office over 540
+- [27:29.600] days now. If what he says is tonight is
+- [27:31.920] backed up by evidence, why hasn't anyone
+- [27:34.040] been charged?
+- [27:35.240] >> Well, he hasn't revealed it yet. He
+- [27:37.360] hasn't declassified the documents yet
+- [27:39.480] and you will see what he says tonight
+- [27:41.120] and then we'll move forward
+- [27:41.960] appropriately from there.
+- [27:43.320] >> from the Justice Department?
+- [27:44.520] >> speak on behalf of the Justice
+- [27:45.560] Department, Kaitlan. You know that.
+- [27:46.760] Rachel.
+- [27:47.400] >> Karoline, is there a world where
+- [27:48.440] there'll be charges?
+- [27:49.600] >> You'll have to ask the Justice
+- [27:50.720] Department. I don't charge people. I
+- [27:52.080] just speak on behalf of the president.
+- [27:53.400] Rachel.
+- [27:53.880] >> Thanks, Karoline. Welcome back. Just a
+- [27:55.160] point of clarification really quick. On
+- [27:57.000] the staffer who is accused of profiting
+- [27:58.840] off of the president's speeches, I used
+- [28:01.040] to he no longer be working here. Is he
+- [28:03.120] on administrative leave or is he going
+- [28:04.960] to be fired after October?
+- [28:06.280] >> He's on unpaid administrative leave
+- [28:08.040] right now.
+- [28:08.480] >> Okay. And just to follow up on the
+- [28:10.840] president's speech tonight, I mean we've
+- [28:12.280] been talking to a lot of Republicans
+- [28:13.560] over on Capitol Hill. They have said
+- [28:15.840] that focusing on the economy is the
+- [28:17.640] right way to go ahead of the midterm
+- [28:18.920] elections. They believe that's what
+- [28:20.240] voters care most about.
+- [28:22.480] What does the president say to
+- [28:23.960] Republicans who think that focusing on
+- [28:25.840] the 2020 election, election integrity,
+- [28:27.960] all of these issues right now is not the
+- [28:29.720] right approach so close to the election?
+- [28:31.200] >> Again, you guys have not heard the
+- [28:32.640] speech yet. So I would digress with the
+- [28:35.280] criticism until you actually hear what
+- [28:37.280] the president is going to say and what
+- [28:38.800] he's going to
+- [28:39.960] say when he addresses the American
+- [28:41.800] public. I would also add again that the
+- [28:44.240] administration and especially this
+- [28:45.720] president are are able to walk and chew
+- [28:48.320] gum at the same time and tackle a number
+- [28:50.360] of issues
+- [28:51.520] on a number of different subjects every
+- [28:53.200] single day. We see that president do
+- [28:54.640] that working around the clock on foreign
+- [28:56.440] policy, on domestic policy all of the
+- [28:58.320] time. You all report on it. You have to
+- [29:00.520] keep up with it. So, I think you can
+- [29:01.840] agree with me on that point.
+- [29:03.760] And I would also add the president will
+- [29:06.000] continue to be traveling all around the
+- [29:07.720] country to talk about the economy. We
+- [29:09.560] were just in Pennsylvania a couple weeks
+- [29:11.600] ago touring a Mack Truck facility which
+- [29:13.720] has been greatly strengthened and
+- [29:15.880] enriched because of this president's
+- [29:17.400] economic policies over the last year and
+- [29:19.200] a half and he loves doing that and he
+- [29:20.880] will continue to do so.
+- [29:22.960] >> We have seen
+- [29:24.600] with the increased Houthi strikes a real
+- [29:26.320] decrease in traffic through commercial
+- [29:28.040] traffic through the Strait of Hormuz.
+- [29:29.520] What is the US doing right now to
+- [29:31.360] facilitate flows through the Strait of
+- [29:33.280] Hormuz and preemptively address the risk
+- [29:35.160] that Houthis will actually choke off the
+- [29:36.680] Red Sea oil route and that prices will
+- [29:39.320] increase further before November?
+- [29:41.000] >> Sure. Well, two separate questions.
+- [29:42.760] First, let me address what's happening
+- [29:44.160] in the strait right now. We know that
+- [29:45.560] there is a blockade of ships directed by
+- [29:47.400] the president for ships entering and
+- [29:49.880] departing Iranian ports only. This has
+- [29:52.040] been fully implemented and is in full
+- [29:54.400] force. This blockade was reimposed due
+- [29:56.520] to Iran's inability to honor their
+- [29:59.400] agreement with the United States of
+- [30:00.640] America. More than 10,000 US sailors,
+- [30:03.360] Marines, and airmen along with two
+- [30:04.880] aircraft carriers and more than 20
+- [30:06.560] warships and dozens of aircraft are
+- [30:08.800] executing the blockade mission as we
+- [30:10.680] speak. And during the first 24 hours of
+- [30:13.280] the blockade, US CENTCOM has redirected
+- [30:15.920] two compliant commercial vessels and
+- [30:17.880] disabled one non-compliant vessel. So,
+- [30:20.720] look, the strait is open for ships that
+- [30:23.920] are not traveling to and from Iranian
+- [30:26.400] ports specifically and the US Navy is is
+- [30:29.040] there to ensure that can take place.
+- [30:31.520] With respect to gas prices, as you know,
+- [30:33.120] the price of oil right now is
+- [30:34.400] approximately $80 a barrel, maybe a
+- [30:36.800] little less. Before I came out here,
+- [30:38.320] that's what it was at. Gas prices are
+- [30:40.160] down approximately 60 cents a gallon off
+- [30:42.760] the peak of this conflict and the
+- [30:44.800] president was honest with the American
+- [30:46.280] people from the beginning. There may be
+- [30:48.120] temporary disruptions in the oil market,
+- [30:50.200] but what we haven't seen is what all of
+- [30:53.000] the naysayers said that there would be
+- [30:54.720] massive increases in the price of oil
+- [30:57.640] that so many warned about and that's in
+- [30:59.760] large part because of the president's
+- [31:01.400] domestic energy policies here at home to
+- [31:03.600] revamp our domestic uh production here,
+- [31:06.240] but also the administration has taken
+- [31:08.720] many swift actions to mitigate uh these
+- [31:11.080] temporary disruptions. As you know, uh
+- [31:13.080] we've released oil through our SPR, the
+- [31:15.760] Jones Act waiver, which has been
+- [31:17.320] incredibly effective, fuel environmental
+- [31:19.600] waivers. We also President signed the
+- [31:21.600] Defense Production Act to restart
+- [31:23.080] California oil production. Um so all of
+- [31:25.520] these very swift and mighty actions on
+- [31:27.520] behalf of this administration have led
+- [31:29.720] to a rather stable oil market and the
+- [31:31.800] president will continue to do all he can
+- [31:34.000] to ensure prices come down, stay stable
+- [31:36.640] for the American people and the American
+- [31:38.160] consumer uh until the end of this
+- [31:40.080] conflict. Um and ultimately, I think
+- [31:42.640] Americans should keep in mind why we're
+- [31:44.080] doing this in the first place to ensure
+- [31:46.120] that Iran, a terror state, can never
+- [31:47.920] obtain a nuclear weapon. Dasha.
+- [31:51.160] Dasha, go ahead.
+- [31:51.840] >> Karine. Nice to see you back.
+- [31:52.800] >> You too.
+- [31:53.400] >> Two questions, one on tonight and one on
+- [31:55.120] immigration.
+- [31:56.480] It it strikes me listening to the
+- [31:57.680] conversation in this room about Iran. Um
+- [32:00.920] given the questions that folks on both
+- [32:02.720] sides of the aisle have about strategy
+- [32:04.680] and end game, given that the United
+- [32:06.200] States has intensified strikes on Iran,
+- [32:08.840] typically in a time of conflict when the
+- [32:10.840] president gives an address to the
+- [32:11.960] nation, you would expect him to address
+- [32:14.320] this conflict. Number one, will he talk
+- [32:16.520] about Iran and why is that not the the
+- [32:18.720] major topic of of his speech? Uh does he
+- [32:21.880] believe that the Save Act and and the
+- [32:23.360] 2020 election election integrity are
+- [32:25.320] more important right now?
+- [32:26.480] >> Well, no, it's not a matter of
+- [32:27.920] importance. It's just a matter of
+- [32:29.240] timing. The president will be making a
+- [32:31.080] very important announcement with respect
+- [32:32.800] to the integrity of our elections.
+- [32:34.560] However, it is also very possible at the
+- [32:36.400] top of the speech he will mention the
+- [32:38.360] current situation with Iran and also the
+- [32:40.360] economy as well. As you all know,
+- [32:42.720] President Trump is a man of his own word
+- [32:44.920] and he sometimes is thinking about these
+- [32:47.440] things up until he walks out, but we
+- [32:49.360] have had conversations about him
+- [32:51.000] addressing a range of topics and that
+- [32:52.560] could very well be possible tonight.
+- [32:53.840] Again, this is all more reason for all
+- [32:56.240] of you to carry the speech live and for
+- [32:57.880] the American people to tune in tonight
+- [33:00.200] so they can hear directly from the
+- [33:01.680] American
+- [33:02.840] the president and draw their own
+- [33:04.480] conclusions.
+- [33:05.320] >> Caroline, go ahead.
+- [33:07.120] >> Caroline, sorry. I just wanted to add
+- [33:07.880] the immigration question real quick.
+- [33:09.200] Sorry.
+- [33:10.840] Three men were killed in ICE encounters
+- [33:12.280] in less than a week. As a result, DHS
+- [33:14.440] announced that it would end vehicle
+- [33:16.040] stops and then President Trump urged
+- [33:17.600] them to change their position. Can you
+- [33:19.360] confirm whether vehicle stops are are
+- [33:21.520] back on and is the administration doing
+- [33:24.120] anything more to prevent these kinds of
+- [33:25.640] deaths, maybe accelerating distribution
+- [33:27.480] of body cam footage, which body cameras,
+- [33:29.640] which weren't present in this case?
+- [33:31.560] >> So, a couple of things. Vehicles stops
+- [33:34.080] are continuing. Verbal guidance has been
+- [33:36.480] given to all field offices across the
+- [33:38.160] country by the Department of Homeland
+- [33:40.280] Security. The president and the
+- [33:41.920] secretary of Homeland Security are on
+- [33:43.400] the same page that vehicle stops are a
+- [33:45.320] necessary tool that ICE agents need in
+- [33:47.920] order to continuing continue their
+- [33:50.080] deportation campaign of the worst of the
+- [33:52.200] worst illegal alien criminals from our
+- [33:53.840] country. With respect to body cameras, I
+- [33:56.080] know there's been some questions about
+- [33:57.360] that in recent days. Over half of all
+- [33:59.720] ICE field offices now do have body
+- [34:01.600] cameras and the remainder of the field
+- [34:03.600] offices are expected within 60 days.
+- [34:06.000] It's been a slower rollout than we would
+- [34:07.480] have hoped, but that's because of the
+- [34:08.600] Democrats decision to shut down DHS for
+- [34:11.280] several weeks. So, we expect to fully
+- [34:13.760] execute on the promise of body cams to
+- [34:16.280] all field offices across the country
+- [34:18.040] very soon.
+- [34:18.840] >> Karen.
+- [34:19.399] >> Caroline,
+- [34:20.360] on the parasite outbreak related to
+- [34:22.919] produce. Can you give an update on the
+- [34:24.919] administration's response to this? Are
+- [34:26.960] there federal officials on the ground in
+- [34:28.960] the hardest hit states right now doing
+- [34:30.879] any testing of production facilities or
+- [34:32.840] farms to try to figure out where this
+- [34:34.480] outbreak has started.
+- [34:35.320] >> Sure.
+- [34:35.879] >> Well, what I can tell you having been
+- [34:37.560] back at the White House for just a
+- [34:39.240] couple of short weeks, I've been in
+- [34:41.040] meetings on this very topic and I can
+- [34:43.040] tell you the White House is closely
+- [34:44.760] monitoring the situation, has a handle
+- [34:46.679] on the situation. We're committed to
+- [34:48.440] providing the CDC and the FDA the
+- [34:51.000] resources that they need and we urge all
+- [34:53.200] Americans to follow CDC guidance on
+- [34:56.000] properly washing and cooking raw
+- [34:57.800] ingredients to prevent this foodborne
+- [34:59.880] illness. As you know,
+- [35:01.640] there has been an unusually high number
+- [35:03.440] of cases. There are typically thousands
+- [35:05.440] of cases of this outbreak every year,
+- [35:07.960] but there has been an unusually higher
+- [35:09.560] number and that's why we're working with
+- [35:10.920] the FDA and other partners at the
+- [35:12.960] federal, state, and local level to
+- [35:14.800] increase detection methods, provide the
+- [35:16.680] guidance, and then also, most
+- [35:18.480] importantly, trace the outbreak back to
+- [35:20.520] its original source, which we are
+- [35:22.280] currently in the process of doing.
+- [35:24.000] >> And what about permanent leadership at
+- [35:25.640] the CDC and FDA and any funding cuts?
+- [35:28.240] Has that slowed the response to figure
+- [35:30.440] out where this outbreak has started?
+- [35:32.120] >> No, we've talked to the CDC and FDA
+- [35:33.920] specifically about that and not at all.
+- [35:36.520] They have the resources they need to
+- [35:38.320] make sure that Americans are fully
+- [35:39.840] informed and protected from this illness
+- [35:42.720] during this time.
+- [35:43.920] >> Carolyn.
+- [35:44.760] >> Please.
+- [35:45.320] >> Carolyn, welcome back.
+- [35:46.320] >> Thanks.
+- [35:46.960] >> Last year the administration signed a
+- [35:48.720] critical mineral steel mining deal with
+- [35:51.040] Kazakhstan for a little known US
+- [35:52.560] company. It was an agreement that
+- [35:54.000] President Trump and Howard Lutnick got
+- [35:55.800] tentative approval for with Kazakhstan's
+- [35:57.720] president in September. Six days before
+- [36:00.360] the deal was signed, which was in
+- [36:01.800] November, the president's older son with
+- [36:04.120] other partners took a 20% investment in
+- [36:06.520] a company related to the deal. What did
+- [36:08.520] the president know about his son's
+- [36:09.840] involvement in this arrangement and when
+- [36:11.520] did he find out about it?
+- [36:12.640] >> From my understanding, Maggie, nothing.
+- [36:14.760] Spoken to the president and his family
+- [36:16.920] about this. They would absolutely never
+- [36:18.560] do anything that would put the president
+- [36:20.520] in a place of a conflict of interest and
+- [36:22.640] we have
+- [36:23.840] timelines to give you and to provide
+- [36:25.440] you, which we did to the news media at
+- [36:26.840] the time when this story broke, um to
+- [36:28.680] prove that very point that I just made.
+- [36:32.000] >> Just one second. So, the the president
+- [36:33.400] did not learn about it until it was in
+- [36:34.560] the media. That was when he found out.
+- [36:36.680] >> That's my understanding of the matter,
+- [36:38.080] yes.
+- [36:41.000] Karoline, I'll go to you after this.
+- [36:42.600] Thank you. Sure.
+- [36:43.920] >> Thank you.
+- [36:44.480] >> Go ahead.
+- [36:45.400] >> Me?
+- [36:46.440] >> Why don't we just
+- [36:47.160] >> Okay, thank you very much.
+- [36:49.200] >> Starting in the back.
+- [36:50.640] Okay.
+- [36:51.760] Thank you.
+- [36:52.160] >> Yesterday, Iran launched a drone attack
+- [36:54.880] against US facilities in Erbil,
+- [36:57.320] threatening American personnel in the
+- [36:59.720] Kurdistan region, one of the American
+- [37:02.160] closest partner in the Middle East.
+- [37:05.400] What is your message to those
+- [37:07.880] responsible? Um are you staying with
+- [37:11.120] your loyal ally in the Middle East and
+- [37:13.160] at least helping them to defend itself?
+- [37:17.800] >> Who launched the attack, you're saying?
+- [37:19.160] >> Iran, Kurdistan region.
+- [37:20.720] >> Well, I think I've I've addressed that
+- [37:22.400] previously in saying that um the Irani
+- [37:26.000] Iranian Iran has unfortunately shown um
+- [37:29.240] to violate the word that they struck
+- [37:31.320] with the president United States.
+- [37:32.440] They're paying consequences for that in
+- [37:33.920] the strikes that the president has
+- [37:35.040] authorized in the recent days.
+- [37:36.600] >> Thanks, Karoline. You were with the
+- [37:38.000] president in Ankara for the NATO summit,
+- [37:41.000] and there Ukraine was one of the
+- [37:42.520] >> not, actually.
+- [37:43.320] >> Oh, you were not. Okay, yeah. And but
+- [37:44.880] the issue of Ukraine was one of the most
+- [37:47.440] important topics there, and but the
+- [37:50.080] situation is escalating between the two
+- [37:52.560] sides in these days, but there are still
+- [37:55.040] efforts. Can you give us more
+- [37:56.880] information about where we are and how
+- [38:00.080] uh the local powers power breakers,
+- [38:03.480] including Turkey, are involving in order
+- [38:06.040] to solve the problem?
+- [38:07.160] >> Sure, I'll check with the National
+- [38:08.400] Security Council and get back to you on
+- [38:10.120] that with more specific guidance. What I
+- [38:12.040] can tell you is I know the president
+- [38:14.040] greatly enjoyed his visit to Turkey, and
+- [38:15.920] not just uh his participation in the
+- [38:18.160] NATO summit, uh where he uh applauded
+- [38:21.080] the United States for getting our NATO
+- [38:22.920] allies uh to step up and pay their fair
+- [38:25.080] share for our defense, but also he
+- [38:27.520] greatly enjoyed his time with President
+- [38:29.040] Erdoğan in Turkey and appreciates the
+- [38:31.800] bilateral relationship between our two
+- [38:33.440] countries. Kara.
+- [38:34.440] >> Caroline, welcome back.
+- [38:35.520] >> Thanks.
+- [38:35.920] >> Contrary to what the mainstream media is
+- [38:38.200] reporting, Americans that I speak to
+- [38:39.840] care deeply about election integrity.
+- [38:42.560] Why do you think the mainstream media is
+- [38:43.880] so fearful of tonight's speech and
+- [38:45.960] anything to do with election
+- [38:47.040] interference? And why are they
+- [38:48.920] attempting to discredit President
+- [38:50.360] Trump's speech before they even heard
+- [38:51.840] it? And lastly, what's your message to
+- [38:53.560] AOC who is asking for President Trump
+- [38:55.600] the mainstream media to actually censor
+- [38:57.440] the sitting president's speech tonight?
+- [38:59.240] >> Yeah, I think that the mainstream media
+- [39:01.640] should air the president's speech and
+- [39:03.560] allow the American people to draw their
+- [39:05.080] own conclusions from it. Again, I think
+- [39:06.640] it's important that the American public
+- [39:08.600] hears directly from the President of the
+- [39:10.440] United States on a topic that to your
+- [39:12.440] point is very near and dear to the
+- [39:14.320] hearts of many Americans across the
+- [39:15.880] country, the integrity of our elections.
+- [39:17.880] This should be a non-partisan
+- [39:20.080] non-controversial issue and I think
+- [39:21.760] you'll hear the President talk about
+- [39:22.840] that tonight. So, we'll see you then.
+- [39:24.440] Thank you.
+- [39:25.080] >> Thank you, Caroline. Who is telling the
+- [39:26.680] President that he won the 2020 election?
