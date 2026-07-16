@@ -10,7 +10,8 @@
     "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle."
+    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "YouTube/WhiteHouse: ScrapeError: Could not fetch YouTube feed. https://www.youtube.com/feeds/videos.xml?user=WhiteHouse: HTTP 404; https://www.youtube.com/feeds/videos.xml?user=whitehouse: HTTP 404"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -125028,6 +125029,50 @@
       "published": "2026-07-15T22:54:07.591000+00:00",
       "title": "Iran has allowed an American Citizen, who was wrongfully detained in December of 2024 unde...",
       "url": "https://truthsocial.com/@realDonaldTrump/116926450735170990"
+    },
+    "truthsocial:realdonaldtrump:116927468287924793": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-16T04:24:35.155197+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/16/116927468287924793",
+      "platform": "truthsocial",
+      "post_id": "116927468287924793",
+      "published": "2026-07-16T03:12:54.218000+00:00",
+      "title": "Truth Social post 116927468287924793",
+      "url": "https://truthsocial.com/@realDonaldTrump/116927468287924793"
+    },
+    "truthsocial:realdonaldtrump:116927472640102809": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-16T04:24:35.154952+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/16/116927472640102809",
+      "platform": "truthsocial",
+      "post_id": "116927472640102809",
+      "published": "2026-07-16T03:14:00.692000+00:00",
+      "title": "Truth Social post 116927472640102809",
+      "url": "https://truthsocial.com/@realDonaldTrump/116927472640102809"
+    },
+    "truthsocial:realdonaldtrump:116927476957200193": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-16T04:24:35.154690+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/16/116927476957200193",
+      "platform": "truthsocial",
+      "post_id": "116927476957200193",
+      "published": "2026-07-16T03:15:06.502000+00:00",
+      "title": "Truth Social post 116927476957200193",
+      "url": "https://truthsocial.com/@realDonaldTrump/116927476957200193"
+    },
+    "truthsocial:realdonaldtrump:116927478836009287": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-16T04:24:35.154327+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/16/116927478836009287",
+      "platform": "truthsocial",
+      "post_id": "116927478836009287",
+      "published": "2026-07-16T03:15:35.234000+00:00",
+      "title": "Truth Social post 116927478836009287",
+      "url": "https://truthsocial.com/@realDonaldTrump/116927478836009287"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
