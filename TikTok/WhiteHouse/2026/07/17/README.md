@@ -1,7 +1,10 @@
 # TikTok / WhiteHouse / 2026-07-17
 
-- Posts: 2
+- Posts: 3
 
+- [22:42 UTC - Did someone say red card? 🤣](7663630960222604557/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7663630960222604557
+  - Did someone say red card? 🤣
 - [17:06 UTC - The greatest country on earth 🇺🇸](7663544224318573838/)
   - Source: https://www.tiktok.com/@WhiteHouse/video/7663544224318573838
   - The greatest country on earth 🇺🇸
