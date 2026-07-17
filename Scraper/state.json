@@ -10,7 +10,8 @@
     "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle."
+    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/Pt6vjCSrDBg: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=Pt6vjCSrDBg! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=Pt6vjCSrDBg&ei=h4xZatyVBp2Qy_sPpZ_m4Qo&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1784278775&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=59CBE1904820112714AB32DA3675E8881DD3ABBD.689CE6F4219CF706B9090C008525E1F8EBF7E163&key=yt8&kind=asr&lang=en&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -10452,6 +10453,17 @@
       "published": "2026-07-16T20:22:22+00:00",
       "title": "Now you know what the hype is about \ud83d\udd25\ud83c\uddfa\ud83c\uddf8",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7663223796521864462"
+    },
+    "tiktok:whitehouse:7663310173397585165": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-07-17T01:59:29.048470+00:00",
+      "path": "TikTok/WhiteHouse/2026/07/17/7663310173397585165",
+      "platform": "tiktok",
+      "post_id": "7663310173397585165",
+      "published": "2026-07-17T01:57:31+00:00",
+      "title": "BREAKING NEWS: President Trump declassifies information on foreign influence in U.S. elect...",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7663310173397585165"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -125281,6 +125293,28 @@
       "published": "2026-07-16T12:48:47.296000+00:00",
       "title": "Truth Social post 116929732753891262",
       "url": "https://truthsocial.com/@realDonaldTrump/116929732753891262"
+    },
+    "truthsocial:realdonaldtrump:116932617277175999": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-17T01:59:13.744217+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/17/116932617277175999",
+      "platform": "truthsocial",
+      "post_id": "116932617277175999",
+      "published": "2026-07-17T01:02:21.559000+00:00",
+      "title": "[https://www. whitehouse.gov/election-integr ity](https://www.whitehouse.gov/election-inte...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116932617277175999"
+    },
+    "truthsocial:realdonaldtrump:116932674422752484": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-17T01:59:13.743534+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/17/116932674422752484",
+      "platform": "truthsocial",
+      "post_id": "116932674422752484",
+      "published": "2026-07-17T01:16:53.597000+00:00",
+      "title": "Truth Social post 116932674422752484",
+      "url": "https://truthsocial.com/@realDonaldTrump/116932674422752484"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
