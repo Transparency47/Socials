@@ -1,0 +1,556 @@
+<!-- source: https://www.youtube.com/watch?v=iIlqG0untYM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: iIlqG0untYM -->
+<!-- date_published: 2026-07-17T01:30:24+00:00 -->
+<!-- date_accessed: 2026-07-17T14:11:41.412171+00:00 -->
+
+# Transcript: President Trump Delivers an Address to the Nation, Jul. 16, 2026
+
+- [15:57.600] Good evening. Before we begin, I'm proud
+- [16:00.399] to report that our country is safer,
+- [16:03.360] stronger, and far wealthier than it has
+- [16:06.639] ever been before. We are doing great.
+- [16:09.920] Less than two years ago, we inherited an
+- [16:12.560] economic and social disaster after the
+- [16:15.839] worst inflation in 48 years. The wide
+- [16:18.880] open borders with millions and millions
+- [16:21.199] of people pouring in from all over the
+- [16:23.759] world, including criminals of all types
+- [16:25.920] and 11,888
+- [16:29.680] murders, many of whom killed more than
+- [16:32.800] one person. We had transgender for
+- [16:36.720] everybody, men and women sports, crime
+- [16:40.720] ravaging our cities, and the whole world
+- [16:43.440] was laughing at us as a nation. But not
+- [16:46.959] anymore. Two years ago, our country was
+- [16:50.560] dead. Now we are the hottest country
+- [16:54.560] anywhere in the world. America is
+- [16:57.279] respected like we have never been
+- [16:59.839] respected before. We have more money
+- [17:03.040] being invested in the United States than
+- [17:05.280] at any time in the history of our
+- [17:07.760] country. More Americans are working
+- [17:10.079] today than ever before. This week it was
+- [17:14.000] announced that inflation saw the largest
+- [17:17.600] monthly decline in more than six years.
+- [17:20.880] Just happened was just given out. The
+- [17:24.000] media reported it and we accepted the
+- [17:27.839] best in six years. The tax cuts in our
+- [17:30.799] great big beautiful bill are saving
+- [17:33.200] hardworking families thousands and
+- [17:35.760] thousands of dollars like with the
+- [17:38.960] provisions. No tax on tips, no tax on
+- [17:42.880] overtime, and no tax on social security
+- [17:45.679] for our great seniors along with the
+- [17:48.640] interest deduction on a loan used to
+- [17:50.880] purchase a car. but only if that car is
+- [17:54.080] made in America and a 100% expensing for
+- [17:58.160] our job creating businesses. Our stock
+- [18:02.400] markets are at their highest point in
+- [18:06.400] many years, but we can actually say of
+- [18:09.440] all time, and your 401ks, pensions, and
+- [18:12.960] retirement accounts are setting records
+- [18:15.039] every single day, the highest in
+- [18:17.840] history. For years, we paid the highest
+- [18:20.960] price for prescription drugs anywhere in
+- [18:23.360] the world. Now, we pay the lowest price
+- [18:26.320] under my most favored nation's policy
+- [18:29.679] because I was able to get the rest of
+- [18:31.679] the world and the pharmaceutical
+- [18:34.640] companies to act responsibly.
+- [18:37.840] Drug prices are coming down by 70, 80,
+- [18:41.360] and 90%.
+- [18:43.280] Trump rx.gov.
+- [18:45.520] This will ultimately reduce the cost of
+- [18:48.640] health care. You have to go to
+- [18:50.799] trumprx.gov
+- [18:52.640] and take advantage of it. But the cost
+- [18:55.360] of health care is coming way down
+- [18:57.440] because of what we've done with
+- [18:59.360] prescription drugs. And with Trump
+- [19:01.760] accounts, every child in America now has
+- [19:04.080] access to a tax-free investment account
+- [19:07.039] to save for their future. Billions and
+- [19:09.919] billions of dollars are being invested,
+- [19:11.840] put in by companies and individuals to
+- [19:14.960] take care of our children so that at age
+- [19:18.000] 18 they will have potentially hundreds
+- [19:20.320] of thousands of dollars in their account
+- [19:23.120] and they'll get off to a great start in
+- [19:25.600] life. So for that, go to
+- [19:28.320] trumpaccounts.gov
+- [19:30.320] and sign up your child or any child
+- [19:33.360] you'd like to sign up. Our previously
+- [19:36.160] wide open borders have been transformed
+- [19:38.640] into the most secure borders in the
+- [19:41.600] history of our country with zero illegal
+- [19:44.640] aliens being admitted to the United
+- [19:46.559] States in the past 14 months. That is
+- [19:50.559] zero. Nobody thought it was possible. We
+- [19:53.600] had the worst border in the history of
+- [19:56.240] our country. And now we have the best.
+- [19:58.480] Crime is plummeting nationwide with the
+- [20:00.799] murder rate at its lowest level since
+- [20:03.919] 1900
+- [20:05.440] or more than 125 years ago. We're making
+- [20:09.919] a record investment in our armed forces
+- [20:12.320] and we have the strongest and most
+- [20:14.240] powerful military by far anywhere in the
+- [20:17.760] world. I built it during my first term
+- [20:20.640] and unfortunately we're forced to use it
+- [20:23.840] now. We won in Venezuela, which is now
+- [20:27.039] working with us to produce millions and
+- [20:29.760] millions of barrels of oil. We are
+- [20:32.320] likewise winning big in Iran, and you
+- [20:35.039] will see the fruits of that labor very,
+- [20:37.520] very shortly. America is back and doing
+- [20:41.520] really well. But we still have a major
+- [20:44.720] challenge that must be urgently
+- [20:46.720] addressed because no country can be
+- [20:49.600] great without fair and honest elections.
+- [20:52.960] You have to trust your country because
+- [20:55.919] if there can be no trust, there can be
+- [20:59.039] no greatness. And that's very simple. No
+- [21:01.840] trust, no greatness. For many years,
+- [21:05.200] I've called for bold, swift, and
+- [21:07.919] decisive action to protect the integrity
+- [21:10.640] of America's elections. Every American
+- [21:13.600] deserves to know that when they cast
+- [21:15.679] their vote, that vote will be counted
+- [21:18.320] accurately in a system. And that is to
+- [21:21.440] make that system secure. One where
+- [21:24.559] cheating and interference are not just
+- [21:27.600] difficult, but virtually impossible.
+- [21:30.640] Unfortunately, the system we have today
+- [21:32.799] falls catastrophically short of that
+- [21:35.919] standard. Tonight, I'm announcing the
+- [21:38.640] immediate declassification and release
+- [21:41.039] of critical intelligence, revealing
+- [21:43.840] shocking vulnerabilities in our election
+- [21:46.960] infrastructure.
+- [21:48.640] This evidence shows that the election
+- [21:50.720] system we have dangerously exposes
+- [21:54.559] and really exposes like levels never
+- [21:57.840] thought possible the hacking,
+- [22:00.640] exploitation, and foreign interference.
+- [22:04.240] Just as disturbingly this vital
+- [22:06.960] information has for many years been
+- [22:09.200] covered up and hidden from you, the
+- [22:11.840] American people, our beautiful, our
+- [22:13.760] great American people. But that all
+- [22:16.480] changes right now. The documents we will
+- [22:19.600] release starting tonight have been
+- [22:22.000] gathered by the White House Government
+- [22:24.960] Transparency Task Force, a great group
+- [22:27.520] of people along with the staff of the
+- [22:30.320] president's intelligence advisory board
+- [22:33.840] supported by our top intelligence agency
+- [22:36.640] chiefs who have all personally reviewed
+- [22:39.200] the findings. We are presenting this
+- [22:42.159] evening and fully confirmed their
+- [22:44.880] authenticity.
+- [22:46.480] You can see these documents for yourself
+- [22:48.720] at white house.gov.
+- [22:51.360] That's whitehouse.gov.
+- [22:53.760] Go check it out. Our purpose in
+- [22:56.720] disclosing this information is not to
+- [22:58.880] weaken confidence in election, but to
+- [23:01.919] earn that confidence by confronting
+- [23:04.960] vulnerabilities and correcting them very
+- [23:07.520] very quickly. And that's what we're
+- [23:09.039] doing. The documents cover five major
+- [23:12.159] areas of concern. First, they show that
+- [23:16.240] over a period of years, starting during
+- [23:18.240] the 2020 election cycle, the People's
+- [23:21.840] Republic of China carried out what is
+- [23:24.000] believed to be the largest compromise of
+- [23:26.720] election data in history, resulting in
+- [23:30.240] China's illicit acquisition of 220
+- [23:34.720] million US voter files. That information
+- [23:38.559] includes names, addresses, phone
+- [23:40.400] numbers, political party preferences,
+- [23:42.720] and other sensitive data that would be
+- [23:45.760] needed to register to vote and engage in
+- [23:48.799] other nefarious activities, which is
+- [23:51.840] exactly what was happening. This data
+- [23:54.720] loss presents an unprecedented election
+- [23:57.600] security nightmare. The intelligence
+- [24:00.240] even shows that China signed a data
+- [24:02.720] exploitation unit specifically to this
+- [24:05.840] new project. Compounding the travesty,
+- [24:09.520] the second set of documents we are
+- [24:11.679] releasing reveals that members of the
+- [24:14.559] deep state, very very famous group of
+- [24:17.520] people, many cases in our intelligence
+- [24:20.640] agency work to actively suppress and
+- [24:23.840] downplay information about the extent of
+- [24:26.240] China's sinister election meddling,
+- [24:29.840] covering it up from both the president
+- [24:32.080] and the American people like nobody
+- [24:34.400] thought was possible. US spy agencies
+- [24:37.679] began learning about the compromise of
+- [24:39.840] voter registration files in 2020 when
+- [24:42.960] they discovered that tens of millions of
+- [24:45.360] voter data. Think of that. Tens of
+- [24:48.640] millions of voters data in 18 states
+- [24:52.320] have been bought, stolen, or hacked by
+- [24:56.159] China. Yet those responsible for
+- [24:59.520] sounding the alarm instead kept the
+- [25:02.000] information secret and hidden. They did
+- [25:05.120] not disclose to me as president or to
+- [25:07.919] anyone else and to the best of our
+- [25:09.840] knowledge. They did not inform Congress.
+- [25:12.880] In fact, all they kept saying is this is
+- [25:16.880] the most secure election in the history
+- [25:18.960] of our country. a standard very pat line
+- [25:21.840] that was divvied out to say the cover up
+- [25:25.279] of this colossal security breach is even
+- [25:28.720] more disturbing in light of the
+- [25:30.480] additional information showing that
+- [25:32.240] China engaged in other election related
+- [25:35.600] activities to undermine my first
+- [25:38.159] administration and our 2020 campaign.
+- [25:41.600] They did not not want and they just
+- [25:43.760] didn't want it. They fought like hell
+- [25:45.919] not to have it. Donald Trump to win and
+- [25:49.440] for good reason. As the documents we are
+- [25:52.960] releasing show, CIA reporting explicitly
+- [25:56.640] stated, and I quote, "In mid 2018, the
+- [26:00.799] Chinese Communist Party's policy was to
+- [26:03.279] leverage all domestic and foreign
+- [26:05.440] elements that were opposed to the US
+- [26:08.240] president in an effort to reduce the US
+- [26:10.559] president's votes and make him resign or
+- [26:13.600] prevent his reelection." Isn't that
+- [26:16.559] nice? Also, in mid 2018, China was
+- [26:20.559] working to influence the results of the
+- [26:22.960] US midterm elections and later the
+- [26:25.440] results of the 2020 presidential
+- [26:28.159] election itself. Separately, in mid
+- [26:31.200] 2019, the Chinese government's strategy
+- [26:33.760] against the United States was focused on
+- [26:36.640] undermining domestic confidence in the
+- [26:38.880] US president. They wanted to just make
+- [26:41.520] you sound like your president wasn't so
+- [26:44.400] hot when actually your president has
+- [26:46.720] done a great job and they did everything
+- [26:49.600] possible to do exactly that. Going on
+- [26:53.360] this document says, and this is by the
+- [26:55.600] CIA, the strategy included efforts to
+- [26:59.039] use Chinese contacts with big US
+- [27:02.240] companies to influence US business
+- [27:04.559] leaders to turn against the president of
+- [27:06.799] the United States of America.
+- [27:09.520] The Chinese government sought to
+- [27:11.440] identify US journalists who had reported
+- [27:14.720] negatively on the US president and pay
+- [27:18.000] them large sums of money to write more
+- [27:20.640] negative articles about him as many as
+- [27:24.080] they could and they didn't care what
+- [27:26.240] they said. The Chinese government wanted
+- [27:29.200] US president to lose the next election
+- [27:31.679] and the reason they wanted me to lose is
+- [27:34.880] because they knew I was wise to them.
+- [27:38.240] charged them billions and billions of
+- [27:40.320] dollars worth of tariffs and built the
+- [27:43.120] strongest military anywhere in the
+- [27:44.960] world. We have the strongest military
+- [27:47.279] anywhere in the world. These are exact
+- [27:50.559] quotes from the CIA reporting. The name
+- [27:54.880] of the person doing the quote is now
+- [27:58.559] under review. But it gets even worse.
+- [28:01.200] Raw intelligence obtained by the FBI in
+- [28:04.000] 2020, yet buried by rogue bureaucrats,
+- [28:07.120] stated that China's activities even
+- [28:10.000] included an attempt to manufacture
+- [28:12.240] illegal ballots for Joe Biden. Documents
+- [28:16.320] show that during this period, dozens of
+- [28:19.039] significant CIA and NSA reports about
+- [28:22.080] China's election targeting were kept out
+- [28:25.039] of the presidential briefing. These were
+- [28:28.640] briefings I would get almost every day.
+- [28:31.600] Everything was kept out that was of
+- [28:33.919] importance. One email among intelligence
+- [28:37.039] analysts admitted that they had quote
+- [28:39.679] deliberately massaged the presidential
+- [28:42.880] daily briefing to withhold information
+- [28:44.960] regarding Chinese activities related to
+- [28:47.760] the election. Another official inside
+- [28:50.799] the FBI wrote that she was running quote
+- [28:54.399] a shadow government unquote to keep
+- [28:57.440] intelligence about China's election
+- [28:59.440] meddling from becoming known and to keep
+- [29:02.159] it away from the honorable press. Other
+- [29:05.360] officials who witnessed such efforts
+- [29:07.279] perceive the motivations to be blatantly
+- [29:10.960] political. Recently we found significant
+- [29:14.080] numbers of burn bags in formation. And
+- [29:17.200] this is a group of bags that were used
+- [29:20.960] to destroy
+- [29:22.720] information given by President Barack
+- [29:26.399] Hussein and Obama to be burned. It was
+- [29:29.120] supposed to be burned. These bags were
+- [29:32.480] supposed to be at a different level by
+- [29:36.720] different people incinerated and
+- [29:38.720] checked. But it never happened. Maybe we
+- [29:41.679] got lucky. We believe this was not done
+- [29:45.520] on purpose, but rather through gross
+- [29:47.440] incompetence of the people that were
+- [29:49.440] supposed to burn the bags. But the
+- [29:51.919] findings are stunning. Today, I'm asking
+- [29:54.640] the office of the Director of National
+- [29:56.799] Intelligence, the Department of Justice,
+- [29:58.799] the FBI, and the CIA to investigate how
+- [30:02.000] and why such crucial information was
+- [30:04.080] hidden, to fire those involved in the
+- [30:06.720] cover up, and to file criminal charges,
+- [30:08.960] if appropriate, against these people.
+- [30:12.000] Yet, concealing China's meddling was
+- [30:14.640] only the beginning. The third set of
+- [30:17.279] documents we are releasing proves that
+- [30:19.600] for many years Americans were blatantly
+- [30:22.720] lied to about the security of our
+- [30:25.840] election infrastructure, including
+- [30:27.919] electronic voting machines and ballot
+- [30:30.720] counting systems. Dishonest almost all.
+- [30:34.799] They're vulnerable and they're easily
+- [30:37.679] compromised and people within our
+- [30:40.240] government knew that. Tonight, we're
+- [30:42.640] publishing a series of previously
+- [30:44.640] classified US intelligence community
+- [30:47.120] assessments and other reports proving
+- [30:49.600] that our government has long known these
+- [30:52.240] machines are extremely exposed to
+- [30:54.880] attack. As one assessment states, we
+- [30:57.600] judge that the United States
+- [31:00.799] adversaries, including at a minimum
+- [31:03.279] Russia, China, Iran, North Korea, as
+- [31:06.559] well as non-state groups, have the
+- [31:09.120] capability to compromise US election
+- [31:11.760] infrastructure.
+- [31:13.440] That's unquote, but that's some
+- [31:15.679] statement, isn't it? Made by supposedly
+- [31:18.799] great patriots of our country. The
+- [31:21.760] document goes on to further state that
+- [31:24.320] quote, "We assess that centralized
+- [31:27.120] election related data repositories such
+- [31:30.799] as voter registration databases, poll
+- [31:34.080] books, and other official election
+- [31:36.480] websites are most vulnerable to
+- [31:39.200] exploitation and adversaries could use
+- [31:42.159] this access to these systems to disrupt
+- [31:45.120] election processes within the United
+- [31:47.440] States of America." Tonight, we're
+- [31:49.919] releasing all of those findings and
+- [31:52.000] spanning from January 2020 to June 2026.
+- [31:57.200] This is a cyber threat aimed at the very
+- [31:59.919] heart of our democracy.
+- [32:02.320] Many people have questioned whether it
+- [32:04.559] could actually be possible to
+- [32:06.480] electronically manipulate vote totals or
+- [32:08.960] change election results on these
+- [32:12.159] terrible machines. Today we are
+- [32:14.720] releasing documents that show the CIA
+- [32:16.960] obtained reporting of a specific plot to
+- [32:21.440] do a big number in favor of the corrupt
+- [32:24.880] Maduro regime in Venezuela.
+- [32:28.640] And that's exactly what happened.
+- [32:31.039] Conspiring to digitally rig their own
+- [32:34.559] country's elections in 2020. And that's
+- [32:36.880] what they did. This reporting included
+- [32:39.600] precise details about methods to regime
+- [32:43.600] develop to digitally alter vote totals
+- [32:46.799] in ways that could not be detected even
+- [32:50.240] with an audit no matter how deep they
+- [32:52.640] went. This intelligence underscores why
+- [32:55.840] we must take urgent action to ensure
+- [32:58.240] that our own system can never ever be
+- [33:01.120] hacked or compromised like it was in the
+- [33:03.919] past. The fourth set of documents
+- [33:06.320] reveals that even when significant
+- [33:08.399] evidence of fraud has been detected, it
+- [33:11.519] has been buried and covered up. Among
+- [33:15.519] the disclosures tonight are FBI files
+- [33:18.799] detailing evidence of alleged fraud by a
+- [33:21.200] large-scale voter registration operation
+- [33:23.760] in Michigan. In 2020, Michigan State
+- [33:27.360] Police raided a Democrat get out the
+- [33:30.000] vote organization, corrupt group in
+- [33:33.600] Moskegan
+- [33:35.120] and were so concerned by what they
+- [33:37.840] found. They were just so concerned, they
+- [33:39.919] couldn't believe it, actually that they
+- [33:42.159] contacted the FBI in Detroit. The
+- [33:45.279] documents state that some canvasers
+- [33:47.840] admitted to FBI agents that they signed
+- [33:50.159] voter registration forms and other
+- [33:52.159] people's names, submitted fraudulent
+- [33:54.880] registration for people who did not
+- [33:57.120] exist, and received gift cards tied to
+- [34:00.320] their number of applications that they
+- [34:02.880] produced. In other words, it was pay,
+- [34:07.440] play, and cheat. The FBI agents working
+- [34:10.800] on the case believe that crimes were
+- [34:14.079] committed. Yet, the Biden Department of
+- [34:16.320] Justice slowwalked the investigation and
+- [34:18.800] killed it. Tonight, I'm asking the FBI
+- [34:23.040] director to ensure that the matter is
+- [34:25.520] fully investigated and to work with the
+- [34:28.159] Department of Justice to prosecute those
+- [34:30.639] responsible for any crimes. Finally, to
+- [34:33.760] reveal just how vulnerable our elections
+- [34:36.000] continue to be, we are releasing the
+- [34:38.560] results of a stunning investigation by
+- [34:40.720] the Department of Homeland Security.
+- [34:43.839] According to the DHS review, state voter
+- [34:47.599] roles, and public records, they
+- [34:50.560] identified approximately 278,000
+- [34:53.440] non-citizens who are registered to vote
+- [34:56.240] in federal elections. Since Democrat
+- [34:59.520] states refuse to share their voter
+- [35:01.680] files, the real number is actually much
+- [35:04.160] higher than that. Yet, even this limited
+- [35:08.400] analysis found more than a quarter of a
+- [35:10.400] million foreigners illegally registered
+- [35:13.200] to vote.
+- [35:14.960] Put together these disclosures reveal an
+- [35:17.599] election system so broken and so
+- [35:19.839] vulnerable that no one can possibly
+- [35:22.640] defend it. It is not defensible.
+- [35:26.079] Hundreds of millions of US voter files
+- [35:28.880] are in the hands of foreign governments.
+- [35:31.839] Our machines and ballot counting systems
+- [35:34.320] are exposed to hacking and manipulation
+- [35:37.440] and corruption. China and other
+- [35:39.920] countries have been trying to meddle in
+- [35:42.160] our elections. Evidence of fraud has
+- [35:44.320] been buried. Hundreds of thousands of
+- [35:46.800] non-citizens and dead people are listed
+- [35:50.160] and active on the voter roles. And yet
+- [35:53.280] we still have elections with no voter
+- [35:55.920] ID, no proof of citizenship, and tens of
+- [35:59.839] millions of ballots flown aimlessly
+- [36:02.079] through the mail. As one example of the
+- [36:05.200] insanity California's recent election
+- [36:07.839] for mayor of LA and governor, was held
+- [36:10.880] on June 2nd, long time ago, but it was
+- [36:14.800] just completed a few days ago on July
+- [36:18.320] 10th. Think of that. Much more than one
+- [36:20.480] month. took a month to count the votes.
+- [36:23.119] I wonder what they were doing. This is
+- [36:25.520] worse than any third world country.
+- [36:28.400] There's no third world country that has
+- [36:30.960] elections like we have. In a rare move,
+- [36:34.079] NBC and ABC fake news have both said
+- [36:37.680] that they would not cover this speech.
+- [36:39.440] They knew what it was about because of
+- [36:41.760] the fact that they don't like the topic
+- [36:43.680] because they know how corrupt our system
+- [36:46.320] is and they don't want to reveal it.
+- [36:48.480] They and others in the media are part of
+- [36:50.400] a plot. They want to continue this fraud
+- [36:53.440] for whatever reason. They want to keep
+- [36:55.200] it going. They want to protect the
+- [36:57.599] radical left. They can't have a great
+- [37:01.040] country. And that's true. You can't have
+- [37:02.800] a great country without free and fair
+- [37:05.440] elections. Fraud like this should mean a
+- [37:08.400] revocation of their licenses. They use
+- [37:11.280] our public multibillion dollar in value
+- [37:14.240] airways for absolutely no money. They
+- [37:17.040] pay nothing.
+- [37:18.800] All we want is honesty in our elections
+- [37:21.040] and honesty in reporting. They pay
+- [37:23.359] nothing for multi-billion
+- [37:25.839] dollar
+- [37:27.359] assets. Great damage has been done to
+- [37:30.240] our country. Our elections were left
+- [37:33.359] vulnerable to being rigged and stolen
+- [37:36.560] and the trust of the American people was
+- [37:38.800] lost. This cannot be allowed to
+- [37:41.119] continue. So every American, whether
+- [37:43.359] you're a Republican, Democrat,
+- [37:45.599] independent, or otherwise, should be
+- [37:48.079] able to agree that we deserve the most
+- [37:50.480] secure, honest, and fair election system
+- [37:52.800] anywhere in the world. Secure election
+- [37:55.520] should be a partisan really should just
+- [37:58.960] we should be together, Democrats,
+- [38:02.160] Republicans, independents, everybody.
+- [38:04.800] And it should not be a partisan issue.
+- [38:07.359] It should cause to unite us, not to
+- [38:09.760] divide us. This should be a cause. We
+- [38:12.240] should be united, not divided. In light
+- [38:15.359] of the brand new and irrefutable
+- [38:18.079] information I have revealed tonight, my
+- [38:21.359] administration is in the process of
+- [38:23.440] notifying the states whose election data
+- [38:26.560] was compromised by the People's Republic
+- [38:29.920] of China and many others. We will be
+- [38:32.880] working closely to mitigate any harm and
+- [38:35.920] we're taking swift action to ensure that
+- [38:38.720] sensitive voter data is better protected
+- [38:41.520] so we can never be bought, we can never
+- [38:44.400] be hacked, and we can never watch a
+- [38:47.599] stolen election again. Tomorrow, the
+- [38:51.680] Secretary of Homeland Security will hold
+- [38:53.599] a briefing to outline his department's
+- [38:56.079] recent work, confirming cyber
+- [38:58.800] vulnerabilities in our electronic voting
+- [39:01.920] systems. They are bad. We're in the
+- [39:04.560] process of informing governors,
+- [39:06.320] senators, and members of Congress of
+- [39:08.720] potential issues in their states.
+- [39:11.839] If you look at voting today, it's in
+- [39:14.320] such bad shape in so many states, and we
+- [39:17.520] are committing to fix it. And we're also
+- [39:20.400] committing to be working with those
+- [39:22.480] states and local jurisdictions to help
+- [39:24.640] them fix and patch known technical
+- [39:27.680] vulnerabilities before the midterm
+- [39:29.920] elections. We have very important
+- [39:32.000] elections coming up. We want those
+- [39:34.160] elections to be honest. I've also
+- [39:36.640] ordered DHS to notify every state about
+- [39:39.359] non-citizens on their voter roles and
+- [39:41.839] direct them to remove all ineligible
+- [39:44.640] voters from the lists immediately. But
+- [39:47.839] most importantly, addressing this crisis
+- [39:50.000] of election security demands that
+- [39:53.119] Congress must pass the Save America Act.
+- [39:59.119] How easy is that to do unless you want
+- [40:02.000] to cheat?
+- [40:03.760] The only reason you wouldn't do it is
+- [40:06.400] you want to cheat because your policies
+- [40:08.480] are so bad and your candidates are so
+- [40:12.079] pathetic that you can't get away or
+- [40:14.480] can't get elected any other way. This
+- [40:17.119] landmark bill requires that all voters
+- [40:19.760] must show photo voter ID. How simple is
+- [40:24.160] that? Could I have your photo, please?
+- [40:27.440] Photo voter ID. All voters must provide
+- [40:31.119] proof of citizenship.
+- [40:33.440] Are you a citizen of our country,
+- [40:35.119] please? And hopefully there will be no
+- [40:38.320] corrupt mail-in ballots, which if you
+- [40:40.480] watched California and so many other
+- [40:42.560] places, mail-in ballots are inherently
+- [40:45.760] corrupt.
+- [40:47.440] So you would have no mail-in ballots
+- [40:50.720] except for illness, disability, military
+- [40:55.359] deployment, or travel if you're going
+- [40:57.839] away on business or vacation. These
+- [41:01.440] reforms are urgently needed to stop the
+- [41:04.240] vulnerabilities that I've mentioned. To
+- [41:06.960] all Americans, I ask you to pick up your
+- [41:09.200] phone tomorrow, call your
+- [41:10.640] representatives in the House and Senate,
+- [41:12.960] and demand that they pass the Save
+- [41:16.640] America Act without delay. Together, we
+- [41:20.160] will restore faith and confidence in our
+- [41:23.119] country, and we will be bigger, better,
+- [41:26.319] and stronger than ever before. Thank
+- [41:29.839] you. God bless you. God bless our great
+- [41:32.960] military and God bless America. Thank
+- [41:36.240] you very much.
