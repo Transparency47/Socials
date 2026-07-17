@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-17
 
-- Posts: 6
+- Posts: 7
 
+- [17:38 UTC - Truth Social post 116936532955860241](116936532955860241/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116936532955860241
+  - _No text content captured._
 - [13:46 UTC - The Reflecting Pool, so badly damaged by Deranged Vandals, has been emptied as the massive...](116935620328114224/)
   - Source: https://truthsocial.com/@realDonaldTrump/116935620328114224
   - The Reflecting Pool, so badly damaged by Deranged Vandals, has been emptied as the massive slash gets repaired. We got it through the great July Fourth Weekend. What kind of animal...
