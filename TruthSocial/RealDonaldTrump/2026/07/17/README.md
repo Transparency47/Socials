@@ -1,7 +1,25 @@
 # TruthSocial / RealDonaldTrump / 2026-07-17
 
-- Posts: 7
+- Posts: 13
 
+- [19:36 UTC - Truth Social post 116936997445912023](116936997445912023/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116936997445912023
+  - _No text content captured._
+- [19:35 UTC - Such great news in June’s Inflation Numbers! Prices FELL by the most in a single month in ...](116936996023550699/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116936996023550699
+  - Such great news in June’s Inflation Numbers! Prices FELL by the most in a single month in over six years. The June CPI was below the forecast of every single Economist (67!) that B...
+- [19:32 UTC - BIG WIN in Court for the American People! The so-called "Digital Equity Act," a Biden DEI ...](116936982358585849/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116936982358585849
+  - BIG WIN in Court for the American People! The so-called "Digital Equity Act," a Biden DEI law, was ruled exactly what I said it was last year — A RACIST and UNCONSTITUTIONAL giveaw...
+- [19:30 UTC - For decades, horrible politicians allowed our Industrial Base to move overseas. Their Trad...](116936972968744613/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116936972968744613
+  - For decades, horrible politicians allowed our Industrial Base to move overseas. Their Trade Policies encouraged Companies to find the cheapest Labor, and build the Products we inve...
+- [19:24 UTC - We are holding Canada responsible for the fact that they are not properly maintaining thei...](116936952365066409/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116936952365066409
+  - We are holding Canada responsible for the fact that they are not properly maintaining their Forests, and Brush therein, and the United States is being unnecessarily invaded by filt...
+- [19:15 UTC - It was my Honor to welcome now Senator Darline Graham Nordone (The sister of the Late, Gre...](116936914779266256/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116936914779266256
+  - It was my Honor to welcome now Senator Darline Graham Nordone (The sister of the Late, Great Lindsey Graham!), from the Wonderful State of South Carolina, into the Oval Office. We...
 - [17:38 UTC - Truth Social post 116936532955860241](116936532955860241/)
   - Source: https://truthsocial.com/@realDonaldTrump/116936532955860241
   - _No text content captured._
