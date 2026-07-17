@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/Pt6vjCSrDBg: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=Pt6vjCSrDBg! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=Pt6vjCSrDBg&ei=5gxaasT6N8r0ut0P7qyGuAM&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1784311638&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=959D897A731B03FA71AABF3556D590A8CDAFF278.672EB8EEE7FBE36AFD7E3B9A5A7A6FAD4ED43B17&key=yt8&kind=asr&lang=en&variant=gemini&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/Pt6vjCSrDBg: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=Pt6vjCSrDBg! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=Pt6vjCSrDBg&ei=Gh5aaq3sKLyF0_wP6bGs-AM&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1784316042&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=A306BA05931F708A1F4FB6AA53587E9ACF499C24.6BAE4F1572A95BB14012C7DE3FC2CCAA6741C657&key=yt8&kind=asr&lang=en&variant=gemini&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -125315,6 +125315,17 @@
       "published": "2026-07-17T01:16:53.597000+00:00",
       "title": "Truth Social post 116932674422752484",
       "url": "https://truthsocial.com/@realDonaldTrump/116932674422752484"
+    },
+    "truthsocial:realdonaldtrump:116935174937259039": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-17T12:20:31.349008+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/17/116935174937259039",
+      "platform": "truthsocial",
+      "post_id": "116935174937259039",
+      "published": "2026-07-17T11:52:48.354000+00:00",
+      "title": "Great reviews on speech last night. Big audience. Pass THE SAVE AMERICA ACT!!! Thank you! ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116935174937259039"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",

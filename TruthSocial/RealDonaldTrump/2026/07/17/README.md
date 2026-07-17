@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-17
 
-- Posts: 2
+- Posts: 3
 
+- [11:52 UTC - Great reviews on speech last night. Big audience. Pass THE SAVE AMERICA ACT!!! Thank you! ...](116935174937259039/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116935174937259039
+  - Great reviews on speech last night. Big audience. Pass THE SAVE AMERICA ACT!!! Thank you! President DONALD J. TRUMP
 - [01:16 UTC - Truth Social post 116932674422752484](116932674422752484/)
   - Source: https://truthsocial.com/@realDonaldTrump/116932674422752484
   - _No text content captured._
