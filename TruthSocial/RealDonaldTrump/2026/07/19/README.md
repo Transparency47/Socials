@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-19
 
-- Posts: 2
+- Posts: 3
 
+- [14:05 UTC - The People of Aberdeen, in Scotland, are dancing in the streets because the new Prime Mini...](116947019736199780/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116947019736199780
+  - The People of Aberdeen, in Scotland, are dancing in the streets because the new Prime Minister, Andy Burnham, has stated that he will be opening up, all the way, the invaluable Nor...
 - [11:54 UTC - Republicans should add Iran to the Russian Sanctions Bill. That’s what Lindsey wanted to d...](116946506480346191/)
   - Source: https://truthsocial.com/@realDonaldTrump/116946506480346191
   - Republicans should add Iran to the Russian Sanctions Bill. That’s what Lindsey wanted to do, and it was going to happen. IMPORTANT!!! President DJT
