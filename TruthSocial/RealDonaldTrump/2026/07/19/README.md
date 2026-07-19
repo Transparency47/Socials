@@ -1,7 +1,88 @@
 # TruthSocial / RealDonaldTrump / 2026-07-19
 
-- Posts: 8
+- Posts: 35
 
+- [18:27 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) They do this, and the Rep...](116948053237314981/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116948053237314981
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) They do this, and the Republican Party is DEAD! Key House caucus leaders target Supreme Court, Senate filibuster: [...
+- [18:27 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The People of Aberdeen, i...](116948052957822885/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116948052957822885
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The People of Aberdeen, in Scotland, are dancing in the streets because the new Prime Minister, Andy Burnham, has s...
+- [18:27 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Republicans should add Ir...](116948052695866371/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116948052695866371
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Republicans should add Iran to the Russian Sanctions Bill. That’s what Lindsey wanted to do, and it was going to ha...
+- [18:26 UTC - GUILTY! Jack Smith spied on me in Congress — this illegal weaponization needs to end: [htt...](116948048561169364/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116948048561169364
+  - GUILTY! Jack Smith spied on me in Congress — this illegal weaponization needs to end: [https:// nypost.com/2026/07/15/opinion/ jack-smith-spied-on-me-in-congress-this-illegal-weapo...
+- [18:20 UTC - From Greg Wischer at the United States Department of the Interior: “Given POTUS’s directio...](116948025261561512/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116948025261561512
+  - From Greg Wischer at the United States Department of the Interior: “Given POTUS’s direction to coat the WW2 Memorial fountains, we visited the “vault”—which is located underneath t...
+- [18:18 UTC - Planting beautiful Maple and Oak Trees at the White House!](116948014934688647/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116948014934688647
+  - Planting beautiful Maple and Oak Trees at the White House!
+- [18:16 UTC - Truth Social post 116948009042803645](116948009042803645/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116948009042803645
+  - _No text content captured._
+- [18:16 UTC - Truth Social post 116948007739064265](116948007739064265/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116948007739064265
+  - _No text content captured._
+- [18:16 UTC - Truth Social post 116948006598410523](116948006598410523/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116948006598410523
+  - _No text content captured._
+- [18:16 UTC - Truth Social post 116948006410741363](116948006410741363/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116948006410741363
+  - _No text content captured._
+- [18:15 UTC - Truth Social post 116948005413087488](116948005413087488/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116948005413087488
+  - _No text content captured._
+- [18:15 UTC - Truth Social post 116948004352261325](116948004352261325/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116948004352261325
+  - _No text content captured._
+- [18:14 UTC - Truth Social post 116948001714583433](116948001714583433/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116948001714583433
+  - _No text content captured._
+- [18:14 UTC - Truth Social post 116948001159323550](116948001159323550/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116948001159323550
+  - _No text content captured._
+- [18:14 UTC - Truth Social post 116948000698717066](116948000698717066/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116948000698717066
+  - _No text content captured._
+- [18:14 UTC - Truth Social post 116948000689975369](116948000689975369/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116948000689975369
+  - _No text content captured._
+- [18:14 UTC - Truth Social post 116948000486397370](116948000486397370/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116948000486397370
+  - _No text content captured._
+- [18:13 UTC - Truth Social post 116947995879749073](116947995879749073/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116947995879749073
+  - _No text content captured._
+- [18:13 UTC - Truth Social post 116947995379658189](116947995379658189/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116947995379658189
+  - _No text content captured._
+- [18:13 UTC - Truth Social post 116947994664061595](116947994664061595/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116947994664061595
+  - _No text content captured._
+- [18:11 UTC - Truth Social post 116947987736463009](116947987736463009/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116947987736463009
+  - _No text content captured._
+- [18:10 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116947984234570305 Jack Posobie...](116947986461055239/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116947986461055239
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116947984234570305 Jack Posobiec: “She said the quiet part out loud!”
+- [18:10 UTC - Truth Social post 116947984234570305](116947984234570305/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116947984234570305
+  - _No text content captured._
+- [18:09 UTC - Truth Social post 116947982536049627](116947982536049627/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116947982536049627
+  - _No text content captured._
+- [18:09 UTC - PRESIDENT TRUMP HIGHLIGHTS NEARLY $10 BILLION IN DEFENSE INVESTMENTS AT PENNSYLVANIA SUMMI...](116947979682929338/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116947979682929338
+  - PRESIDENT TRUMP HIGHLIGHTS NEARLY $10 BILLION IN DEFENSE INVESTMENTS AT PENNSYLVANIA SUMMIT: [https://www. rsbnetwork.com/news/president- trump-highlights-nearly-10-billion-in-defe...
+- [18:08 UTC - Pennsylvania defense summit leads to nearly $10 billion in defense contracts that will cre...](116947978783478510/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116947978783478510
+  - Pennsylvania defense summit leads to nearly $10 billion in defense contracts that will create thousands of jobs: [https://www. washingtonexaminer.com/policy/ defense/4650426/pennsy...
+- [18:08 UTC - Trump says ‘proud American veterans’ will replace illegal immigrant truck drivers: [https:...](116947977880667502/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116947977880667502
+  - Trump says ‘proud American veterans’ will replace illegal immigrant truck drivers: [https://www. washingtonexaminer.com/news/wh ite-house/4650629/trump-veterans-replace-illegal-imm...
 - [18:08 UTC - Trump Touts $10 Billion Pa. Defense Investment: [https://www. newsmax.com/newsfront/donald...](116947976850103217/)
   - Source: https://truthsocial.com/@realDonaldTrump/116947976850103217
   - Trump Touts $10 Billion Pa. Defense Investment: [https://www. newsmax.com/newsfront/donald-t rump-defense-summit-pennsylvania/2026/07/15/id/1262982/](https://www.newsmax.com/newsfr...
