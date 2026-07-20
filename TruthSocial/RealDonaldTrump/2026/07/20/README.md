@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-07-20
 
-- Posts: 5
+- Posts: 7
 
+- [10:45 UTC - Truth Social post 116951897860970399](116951897860970399/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116951897860970399
+  - _No text content captured._
+- [10:38 UTC - Congratulations! A perfect baby boy for the wonderful Vance family.](116951869701865529/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116951869701865529
+  - Congratulations! A perfect baby boy for the wonderful Vance family.
 - [02:32 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116949957118811451](116949957911190936/)
   - Source: https://truthsocial.com/@realDonaldTrump/116949957911190936
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116949957118811451
