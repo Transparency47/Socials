@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-07-20
 
-- Posts: 3
+- Posts: 5
 
+- [02:32 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116949957118811451](116949957911190936/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116949957911190936
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116949957118811451
+- [02:32 UTC - Truth Social post 116949957118811451](116949957118811451/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116949957118811451
+  - _No text content captured._
 - [00:38 UTC - Christopher Macchio, the Great Opera Singer, was AMAZING at the World Cup today — He "took...](116949510224898590/)
   - Source: https://truthsocial.com/@realDonaldTrump/116949510224898590
   - Christopher Macchio, the Great Opera Singer, was AMAZING at the World Cup today — He "took the house down!" President DONALD J. TRUMP
