@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-20
 
-- Posts: 15
+- Posts: 16
 
+- [22:18 UTC - I had a very good conversation with the new Prime Minister of the United Kingdom, Andy Bur...](116954623645571071/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116954623645571071
+  - I had a very good conversation with the new Prime Minister of the United Kingdom, Andy Burnham. We discussed many subjects, including the outstanding relationship we have had with...
 - [17:56 UTC - Great words of wisdom from Highly Respected James Carafano. Thank you James! “Our position...](116953590033213088/)
   - Source: https://truthsocial.com/@realDonaldTrump/116953590033213088
   - Great words of wisdom from Highly Respected James Carafano. Thank you James! “Our position in the Region is the strongest that it’s been since the end of World War II. We have been...
