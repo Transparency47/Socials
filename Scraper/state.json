@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=pi5u1SCguks: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=pi5u1SCguks! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=I_zASMpa114: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=I_zASMpa114! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -10508,6 +10508,17 @@
       "published": "2026-07-18T16:25:36+00:00",
       "title": "En epic 2026 fifa World Cup in the USA \ud83e\udd85 see you at the finals tomorrow \ud83d\udc40",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7663904863599840525"
+    },
+    "tiktok:whitehouse:7664383598325271821": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-07-20T02:09:30.403236+00:00",
+      "path": "TikTok/WhiteHouse/2026/07/19/7664383598325271821",
+      "platform": "tiktok",
+      "post_id": "7664383598325271821",
+      "published": "2026-07-19T23:23:08+00:00",
+      "title": "That\u2019s a wrap on the 2026 FIFA World Cup \ud83d\udd25",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7664383598325271821"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -125909,6 +125920,39 @@
       "published": "2026-07-19T18:27:55.619000+00:00",
       "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) They do this, and the Rep...",
       "url": "https://truthsocial.com/@realDonaldTrump/116948053237314981"
+    },
+    "truthsocial:realdonaldtrump:116949428377514667": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-20T02:09:19.245632+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/20/116949428377514667",
+      "platform": "truthsocial",
+      "post_id": "116949428377514667",
+      "published": "2026-07-20T00:17:38.592000+00:00",
+      "title": "The National Academy of Sciences has historically published analytical Scientific Manuals ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116949428377514667"
+    },
+    "truthsocial:realdonaldtrump:116949495681903940": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-20T02:09:19.245254+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/20/116949495681903940",
+      "platform": "truthsocial",
+      "post_id": "116949495681903940",
+      "published": "2026-07-20T00:34:45.576000+00:00",
+      "title": "Wonderful news! I have just been informed that Giant Eagle, a GREAT American Grocery Compa...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116949495681903940"
+    },
+    "truthsocial:realdonaldtrump:116949510224898590": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-20T02:09:19.244767+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/20/116949510224898590",
+      "platform": "truthsocial",
+      "post_id": "116949510224898590",
+      "published": "2026-07-20T00:38:27.481000+00:00",
+      "title": "Christopher Macchio, the Great Opera Singer, was AMAZING at the World Cup today \u2014 He \"took...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116949510224898590"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
