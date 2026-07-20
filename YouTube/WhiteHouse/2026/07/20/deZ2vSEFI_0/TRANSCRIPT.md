@@ -1,0 +1,137 @@
+<!-- source: https://www.youtube.com/watch?v=deZ2vSEFI_0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: deZ2vSEFI_0 -->
+<!-- date_published: 2026-07-20T16:09:57+00:00 -->
+<!-- date_accessed: 2026-07-20T21:30:57.655237+00:00 -->
+
+# Transcript: President Trump Gaggles with Press at Joint Base Andrews, Jul. 19, 2026
+
+- [00:02.560] What people would be incredible.
+- [00:05.040] There's never been anything like it
+- [00:06.480] probably in terms of an event, let alone
+- [00:09.520] soccer or football or whatever you want
+- [00:11.120] to call it, but
+- [00:12.640] I thought it was incredible. It was four
+- [00:14.320] times greater than any FIFA ever held.
+- [00:17.400] And it's probably about five times
+- [00:19.080] actually, they're telling me today.
+- [00:21.520] So, we're very proud of our country.
+- [00:23.320] We're very proud of the job that was
+- [00:24.880] done by everybody.
+- [00:26.800] Uh we congratulate Gianni and Infantino.
+- [00:30.080] And all of his staff.
+- [00:32.160] The incredible job they did, but this
+- [00:34.200] really is one of the greatest events of
+- [00:36.080] any kind ever held. So, it's
+- [00:38.120] we're really happy that it it did go
+- [00:39.960] well.
+- [00:40.880] And all over the world people have
+- [00:42.880] come
+- [00:43.800] and they've loved our country.
+- [00:45.640] You know, it's shown off our country in
+- [00:46.880] a different light.
+- [00:48.560] And
+- [00:49.880] it's a great thing. It's a great event.
+- [00:52.160] And I'm glad you all enjoyed it.
+- [00:56.120] Okay.
+- [00:58.560] No, I wouldn't say that. I thought they
+- [00:59.800] were both played well.
+- [01:01.640] Uh I would say Spain played better, you
+- [01:03.680] know.
+- [01:04.839] But uh they both played well. I mean,
+- [01:06.680] they got to the finals.
+- [01:08.720] And it was very exciting actually. It
+- [01:10.680] looked like
+- [01:11.760] Spain dominated, but it was a very close
+- [01:13.600] match, you know.
+- [01:15.160] So, it was great. It was a great event.
+- [01:17.120] Yes.
+- [01:19.760] Well, we feel very badly, but you know,
+- [01:21.440] those
+- [01:22.640] great people, those great patriots are
+- [01:24.320] out there fighting that Iran cannot have
+- [01:26.600] a nuclear weapon.
+- [01:28.160] Uh Iran has been very, very badly
+- [01:30.160] damaged.
+- [01:31.560] They've uh lost
+- [01:33.640] everything almost totally.
+- [01:36.280] They've got very little left. They've
+- [01:37.480] got some missiles.
+- [01:38.960] They've got some drones. They've got
+- [01:40.560] some manufacturing ability, not much.
+- [01:43.600] Uh we control these freights.
+- [01:45.920] You know, we control anything.
+- [01:47.760] So, we'll see what happens. So, we hit
+- [01:49.280] it very hard again today.
+- [01:51.440] And uh we did that in honor of the
+- [01:54.000] probably three. It's probably three as
+- [01:56.320] opposed to the two.
+- [01:57.920] Great faith in this.
+- [02:03.800] Well, we're going to see. We'll be
+- [02:04.960] sticking to that.
+- [02:11.440] Again,
+- [02:13.560] Well, it was good, but I I told them I
+- [02:15.200] mean, you got to stop these fires from
+- [02:17.800] coming in and poisoning our air. Our air
+- [02:20.360] is poisoned.
+- [02:22.000] I have a good relationship with my
+- [02:23.880] counterpart, but
+- [02:25.440] you know, we got to stop the fires up
+- [02:27.120] there. If we can help them, we'll help
+- [02:28.360] them.
+- [02:29.520] But maybe they can pay us for damages or
+- [02:32.080] something. So, we can get some damages.
+- [02:34.440] But it was terrible. I mean, you had
+- [02:35.840] businesses closing.
+- [02:37.600] In particular, Michigan,
+- [02:39.760] you look at at Detroit, Great Michigan,
+- [02:42.000] and that is one of everything. That is
+- [02:43.520] closing
+- [02:44.440] car plants and a lot of other things.
+- [02:46.160] So,
+- [02:47.320] I've never remember this happening. Over
+- [02:49.200] the last
+- [02:50.640] four or five years, it's
+- [02:52.120] started to take place. I've never
+- [02:53.560] remember it.
+- [02:58.680] I did. I spoke with
+- [03:00.040] Spain,
+- [03:01.320] and I congratulated them on having a
+- [03:03.120] great team. I spoke to I really spoke to
+- [03:05.000] a lot of people.
+- [03:07.640] No, I have no chance.
+- [03:09.400] I have no chance to win anything.
+- [03:16.480] Well, it has it has a lot,
+- [03:19.080] and you know, it has a lot of
+- [03:20.680] capability, but as I understand, is in
+- [03:23.239] about a month or so, they're going to
+- [03:24.680] take
+- [03:25.600] they have to be uh maxed out.
+- [03:27.959] So, they're going to be sending it out.
+- [03:29.760] They'll have to be maxed out. It'll take
+- [03:31.200] about a month.
+- [03:36.280] I did. While I was in Spain, I gave them
+- [03:38.160] a message.
+- [03:39.440] Uh I spoke to them about it. I said,
+- [03:41.200] "You got to You got to get it stopped."
+- [03:43.440] It's really forest management.
+- [03:46.400] And they should know how to do that.
+- [03:48.200] If you go back four or five years, I
+- [03:49.680] don't remember them we're a problem like
+- [03:51.640] this. So, we do have that problem.
+- [03:58.480] Well, you keep hitting me. This is a far
+- [04:00.800] bigger job that we're doing. We were
+- [04:03.000] doing a little job of stopping them from
+- [04:05.560] having a good capability. Now, we're
+- [04:07.360] just ending it. So, it's really not the
+- [04:09.720] same thing. What we're doing now is
+- [04:11.360] we're ending any chance that they could
+- [04:13.760] have a nuclear.
+- [04:15.400] If you look at it, after a week and a
+- [04:17.760] half, not for a week, a week and a half
+- [04:19.440] to a week.
+- [04:20.600] We stopped them from properly, but I
+- [04:22.880] don't want to have to work properly.
+- [04:24.520] Thank you very much.
+- [04:25.600] >> Thank you, sir.
