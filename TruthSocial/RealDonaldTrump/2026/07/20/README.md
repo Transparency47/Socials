@@ -1,7 +1,19 @@
 # TruthSocial / RealDonaldTrump / 2026-07-20
 
-- Posts: 11
+- Posts: 15
 
+- [17:56 UTC - Great words of wisdom from Highly Respected James Carafano. Thank you James! “Our position...](116953590033213088/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116953590033213088
+  - Great words of wisdom from Highly Respected James Carafano. Thank you James! “Our position in the Region is the strongest that it’s been since the end of World War II. We have been...
+- [16:50 UTC - Benjamin Netanyahu will not be arrested, in any way, shape, or form, while in the United S...](116953334292806992/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116953334292806992
+  - Benjamin Netanyahu will not be arrested, in any way, shape, or form, while in the United States of America. He is fighting against the Islamic Republic of Iran, which recently kill...
+- [16:41 UTC - Every time Iran kills an American Soldier they will pay for that killing many times over! ...](116953296612438865/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116953296612438865
+  - Every time Iran kills an American Soldier they will pay for that killing many times over! This directive has been passed on to Secretary of War, Pete Hegseth, Chairman of the Joint...
+- [16:36 UTC - The World Cup turned out to be a spectacular SUCCESS! I want to thank all of those involve...](116953279157877523/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116953279157877523
+  - The World Cup turned out to be a spectacular SUCCESS! I want to thank all of those involved but, in particular, our GREAT Law Enforcement. The Respect that everyone has for them, t...
 - [15:38 UTC - Thank you to our Great Speaker, Mike Johnson, the House Budget Chairman, Jodey Arrington, ...](116953050956197142/)
   - Source: https://truthsocial.com/@realDonaldTrump/116953050956197142
   - Thank you to our Great Speaker, Mike Johnson, the House Budget Chairman, Jodey Arrington, and the members of the House Budget Committee, including Lloyd Smucker, Ron Estes, Andrew...
