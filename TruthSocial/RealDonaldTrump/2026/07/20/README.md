@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-07-20
 
-- Posts: 8
+- Posts: 11
 
+- [15:38 UTC - Thank you to our Great Speaker, Mike Johnson, the House Budget Chairman, Jodey Arrington, ...](116953050956197142/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116953050956197142
+  - Thank you to our Great Speaker, Mike Johnson, the House Budget Chairman, Jodey Arrington, and the members of the House Budget Committee, including Lloyd Smucker, Ron Estes, Andrew...
+- [15:23 UTC - Truth Social post 116952990636519565](116952990636519565/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116952990636519565
+  - _No text content captured._
+- [14:57 UTC - Truth Social post 116952888743069277](116952888743069277/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116952888743069277
+  - _No text content captured._
 - [13:03 UTC - Truth Social post 116952441181355206](116952441181355206/)
   - Source: https://truthsocial.com/@realDonaldTrump/116952441181355206
   - _No text content captured._
