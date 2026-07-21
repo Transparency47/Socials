@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=QJsXFCC1J4Q: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=QJsXFCC1J4Q! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: ScrapeError: Could not fetch YouTube feed. https://www.youtube.com/feeds/videos.xml?user=WhiteHouse: HTTP 404; https://www.youtube.com/feeds/videos.xml?user=whitehouse: HTTP 404"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -10530,6 +10530,17 @@
       "published": "2026-07-20T15:17:42+00:00",
       "title": "This is our why.",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7664629537380044046"
+    },
+    "tiktok:whitehouse:7664785314279329054": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-07-21T04:29:58.408803+00:00",
+      "path": "TikTok/WhiteHouse/2026/07/21/7664785314279329054",
+      "platform": "tiktok",
+      "post_id": "7664785314279329054",
+      "published": "2026-07-21T01:21:51+00:00",
+      "title": "Nobody does it quite like POTUS & America \ud83e\udd85\ud83c\uddfa\ud83c\uddf8 an unforgettable FIFA World Cup",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7664785314279329054"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
