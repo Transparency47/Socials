@@ -1,7 +1,10 @@
 # TikTok / WhiteHouse / 2026-07-21
 
-- Posts: 3
+- Posts: 4
 
+- [20:56 UTC - Your fyp just got an upgrade. THE CABINET IS HERE ⬇️](7665087917160729870/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7665087917160729870
+  - Your fyp just got an upgrade. THE CABINET IS HERE ⬇️
 - [17:04 UTC - Don’t bet against the king 😤](7665028183342845198/)
   - Source: https://www.tiktok.com/@WhiteHouse/video/7665028183342845198
   - Don’t bet against the king 😤

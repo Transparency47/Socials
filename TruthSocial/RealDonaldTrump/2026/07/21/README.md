@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-21
 
-- Posts: 19
+- Posts: 20
 
+- [20:44 UTC - Thank you to all of the House Republicans who are supporting the first step towards gettin...](116959913931409391/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116959913931409391
+  - Thank you to all of the House Republicans who are supporting the first step towards getting as much of THE SAVE AMERICA ACT, as possible, in the Budget Bill, and to our Great Speak...
 - [19:54 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Afghanistan War: 20 years...](116959718559155454/)
   - Source: https://truthsocial.com/@realDonaldTrump/116959718559155454
   - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Afghanistan War: 20 years, 2,000 DEAD. Iraq War: 9 years, 4,600 DEAD. Vietnam War: 19 years and 5 months, 58,220 DE...
