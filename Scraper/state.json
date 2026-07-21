@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=vUNswx1aNi4: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=vUNswx1aNi4! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=ECHL5H4ebdw: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=ECHL5H4ebdw! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -10552,6 +10552,17 @@
       "published": "2026-07-21T13:10:33+00:00",
       "title": "FAFO.",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7664967777328844045"
+    },
+    "tiktok:whitehouse:7665028183342845198": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-07-21T17:51:57.196930+00:00",
+      "path": "TikTok/WhiteHouse/2026/07/21/7665028183342845198",
+      "platform": "tiktok",
+      "post_id": "7665028183342845198",
+      "published": "2026-07-21T17:04:37+00:00",
+      "title": "Don\u2019t bet against the king \ud83d\ude24",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7665028183342845198"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -174398,6 +174409,17 @@
       "title": "President Trump Participates in a Site Visit at Thermo Fisher Scientific",
       "url": "https://www.youtube.com/watch?v=O9OpQ_g3HQA"
     },
+    "youtube:whitehouse:O9_ZVXZmRVg": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-21T17:52:04.368174+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/21/O9_ZVXZmRVg",
+      "platform": "youtube",
+      "post_id": "O9_ZVXZmRVg",
+      "published": "2026-07-21T15:24:56+00:00",
+      "title": "President Trump greets Lebanese President Joseph Auon before a bilateral meeting at the White House",
+      "url": "https://www.youtube.com/shorts/O9_ZVXZmRVg"
+    },
     "youtube:whitehouse:O9rCTRL6vmQ": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -176729,6 +176751,17 @@
       "published": "2025-05-20T00:00:05+00:00",
       "title": "President Trump Participates in a Kennedy Center Board Dinner",
       "url": "https://www.youtube.com/watch?v=VxX6NGl-kB8"
+    },
+    "youtube:whitehouse:W0972oS1oJ0": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-21T17:52:02.310627+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/21/W0972oS1oJ0",
+      "platform": "youtube",
+      "post_id": "W0972oS1oJ0",
+      "published": "2026-07-21T17:15:01+00:00",
+      "title": "President Trump Greets the President of the Republic of Lebanon",
+      "url": "https://www.youtube.com/watch?v=W0972oS1oJ0"
     },
     "youtube:whitehouse:W2K2j_Wakgs": {
       "account": "WhiteHouse",
@@ -184913,6 +184946,17 @@
       "published": "2025-04-07T16:26:26+00:00",
       "title": "The United States can no longer continue with the policy of unilateral economic surrender.",
       "url": "https://www.youtube.com/watch?v=vNzGsyfO7vA"
+    },
+    "youtube:whitehouse:vUNswx1aNi4": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-21T17:52:03.277246+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/21/vUNswx1aNi4",
+      "platform": "youtube",
+      "post_id": "vUNswx1aNi4",
+      "published": "2026-07-21T15:45:56+00:00",
+      "title": "President Trump Participates in a Bilateral Meeting with the President of the Republic of Lebanon",
+      "url": "https://www.youtube.com/watch?v=vUNswx1aNi4"
     },
     "youtube:whitehouse:vVorrMd6lz0": {
       "account": "WhiteHouse",

@@ -1,0 +1,787 @@
+<!-- source: https://www.youtube.com/watch?v=vUNswx1aNi4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: vUNswx1aNi4 -->
+<!-- date_published: 2026-07-21T15:45:56+00:00 -->
+<!-- date_accessed: 2026-07-21T17:52:03.277246+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the President of the Republic of Lebanon
+
+- [00:04.000] Well, thank you very much. It's a great
+- [00:05.839] pleasure to be with the president of
+- [00:08.639] Lebanon. He's highly respected in his
+- [00:10.960] country and actually long beyond his
+- [00:13.040] country. Uh we've spoken
+- [00:16.560] uh previously numerous occasions through
+- [00:19.920] representatives and the relationship is
+- [00:22.640] very good. I think that Lebanon has been
+- [00:25.039] a very mistreated country for a long
+- [00:26.960] period of time. It's an amazing group of
+- [00:28.800] people, professors, doctors, lawyers,
+- [00:32.960] great intellects, and it's been hit hard
+- [00:36.480] for many, many decades. Really, it's
+- [00:39.520] been u hit very, very hard. And yet I
+- [00:42.559] have people that live in Lebanon, people
+- [00:44.399] that are parents of friends of mine,
+- [00:47.440] many cases, and they would never leave.
+- [00:49.200] They would not leave under any circum
+- [00:50.960] they love it. They love the country and
+- [00:53.600] it's uh probably a dangerous place in a
+- [00:56.800] lot of ways, but they live in areas they
+- [00:58.879] say, "We hear bombs going off all the
+- [01:00.480] time, but we want to live in Lebanon."
+- [01:01.920] They love the country, very smart
+- [01:03.280] people, very successful people, and they
+- [01:05.439] live there. But it has been it's been a
+- [01:08.080] a country of great intellect,
+- [01:11.840] great intellectuals. Uh they still love
+- [01:15.040] it. They want to be there. And we're
+- [01:17.680] going to help it. We're going to help it
+- [01:19.439] a lot. So, it's an honor to have the
+- [01:21.600] president and your representatives here.
+- [01:24.159] We've already met a couple of times and
+- [01:26.080] we've had some good meetings and uh we
+- [01:29.119] are going to uh solve a lot of problems.
+- [01:32.000] We've already solved some of them for
+- [01:33.840] Lebanon. As you know, there's a
+- [01:35.759] Hezbollah problem, but we've done some
+- [01:39.600] things that I think uh the world will
+- [01:42.400] take notice. Again, it's been a very
+- [01:46.159] badly treated place and country, and
+- [01:49.439] we're going to have it properly treated
+- [01:51.439] and treated with respect that it
+- [01:53.040] deserves. And Mr. President, it's an
+- [01:55.360] honor having you. Thank you very much.
+- [01:57.439] >> No, thank you.
+- [01:58.560] >> I've been looking forward to this visit
+- [02:00.479] for a long time.
+- [02:01.280] >> Thank you very such a great president
+- [02:03.040] like yourself.
+- [02:03.920] >> Well, that's a very nice thing. See, he
+- [02:05.759] knows how to get to me.
+- [02:08.399] >> He can have anything now. He can have
+- [02:10.479] anything. Would you like to say
+- [02:11.760] something?
+- [02:12.560] >> No, really. I would like uh to thank uh
+- [02:15.120] President Trump really and his team for
+- [02:18.560] the historic visit and for the historic
+- [02:21.599] achievement that we did together uh by
+- [02:24.400] signing the uh framework uh with the
+- [02:27.840] ultimate objective of ending the state
+- [02:29.760] of hostility between Lebanon and Israel
+- [02:31.760] forever. I think Mr. President this will
+- [02:34.239] be your legacy. Together we'll be able
+- [02:37.360] to achieve this objective. It's about
+- [02:39.680] time for Lebanon and for the whole
+- [02:41.200] region uh to be stable and secure. And I
+- [02:44.879] know your vision is peace. Your vision
+- [02:47.760] is stability. And I think my vision
+- [02:49.920] coincides with your vision. And together
+- [02:52.319] I think we we will be able to achieve
+- [02:54.400] and to score success in that regard.
+- [02:56.239] >> I agree with that. I do agree with that.
+- [02:58.239] And you have tremendous spirit on your
+- [03:00.400] side. You have people that love that
+- [03:01.920] country and they're [clears throat]
+- [03:03.519] going to make it work.
+- [03:05.040] >> We're going to make it work.
+- [03:06.000] >> Right. Thank you very much,
+- [03:06.959] >> Mr. President.
+- [03:09.840] President Trump Lebanon. I have two
+- [03:12.640] questions. One for you. President Trump,
+- [03:14.800] as you work to expand the Abraham
+- [03:16.720] Accords, Lebanon still enforces a 1955
+- [03:20.000] law criminalizing contact with Israeli
+- [03:22.319] for over 70 years. You previously stated
+- [03:25.120] you would push Lebanon on this issue and
+- [03:27.760] people there is some people still going
+- [03:29.599] to prison last month. So did you raise
+- [03:31.920] it with you will raise it with President
+- [03:33.680] Trump today?
+- [03:34.239] >> I will. The Abraham Accords have been I
+- [03:37.599] think a tremendous success. I think
+- [03:39.120] you're going to see a lot of countries
+- [03:40.319] joining pretty soon. Uh as you know we
+- [03:43.120] have our original group and they are
+- [03:45.280] it's so successful for them economically
+- [03:48.400] successful. It's been that nobody left
+- [03:50.959] uh even during this time of conflict. So
+- [03:54.319] uh no I think uh Lebanon has a very
+- [03:57.040] important place.
+- [04:03.120] What is your level of concern of a
+- [04:05.200] blockade of the Red Sea by the Houthy
+- [04:07.840] rebels opening up another front?
+- [04:10.080] >> Well, we'll have to see what happens. So
+- [04:11.680] far, it hasn't happened. Might happen.
+- [04:14.080] Uh but we take care of things. If
+- [04:15.840] something like that happens, we take
+- [04:17.280] care of it. You know, we've done that
+- [04:19.040] with the Houthis before. And we haven't
+- [04:21.840] heard from them in a while since we did
+- [04:24.400] what we did originally. That was a about
+- [04:27.120] 45 days of very powerful action we took
+- [04:30.400] against the Houthis and we've had no
+- [04:33.040] problem with the Houthis. They've had no
+- [04:34.720] problem with us for a long period of
+- [04:37.600] time, including during this conflict. Uh
+- [04:40.639] I think that if there is something like
+- [04:42.560] that, we'll just have to take care of
+- [04:43.840] business
+- [04:48.720] rejected the agreement between Lebanon
+- [04:50.880] and Israel and said he said it's a
+- [04:52.560] sedition. It's going to cause civil war.
+- [04:54.960] He's he's the he's the speaker of the
+- [04:56.639] Lebanese parliament and he speaks for
+- [04:58.000] Hezbollah. He's his big brother. What do
+- [05:00.240] you have to say about that?
+- [05:01.120] >> Well, maybe I'll let you speak to that.
+- [05:03.440] >> Actually, the framework doesn't require
+- [05:05.280] the endorsement of the parliament. Okay.
+- [05:07.919] It's part of our constitution. It's a
+- [05:09.759] prerogative of the president and we are
+- [05:12.080] committed to it and I think the speaker
+- [05:14.000] of the parliament uh is really wants to
+- [05:17.440] to see the end of this uh war. He's from
+- [05:20.960] the south and he knows he did his best
+- [05:24.080] to uh rebuild the south but
+- [05:26.160] unfortunately the south being destroyed
+- [05:28.080] in front of his eyes. So he's actually
+- [05:30.960] supportive what we are doing. Uh but we
+- [05:33.520] need uh to be careful uh
+- [05:37.440] his his position as a speaker and as a
+- [05:40.000] leader of the Shia community. We have to
+- [05:42.720] understand how critical is his position.
+- [05:44.800] But I can tell you that speaker is a man
+- [05:47.280] of state. He's supportive what we are
+- [05:49.199] doing and he's supportive of ending the
+- [05:51.440] state of hostility, ending the war once
+- [05:53.440] for all.
+- [05:55.919] >> Just want I think when he sees because
+- [05:57.520] I've heard that he's a good person, good
+- [05:59.840] man. And when he sees the progress made,
+- [06:02.479] I'm sure he's going to come on
+- [06:04.184] [laughter]
+- [06:05.360] from Lebanon from NBC from Lebanon. I
+- [06:08.400] have two questions, please. When will
+- [06:10.000] the Israeli army fully withdraw from
+- [06:12.160] Lebanon? Is there a clear timeline for
+- [06:14.479] for that? And last question, please.
+- [06:16.240] Last week you met with the Iraqi prime
+- [06:18.000] minister and discussed him or described
+- [06:20.080] him as handsome and saying he could
+- [06:22.319] become one of the best leaders in the
+- [06:24.400] Middle East. How would you describe?
+- [06:25.840] >> Which one are we talking about?
+- [06:26.880] >> The Iraqi prime minister.
+- [06:28.400] >> Yes. How you describe President?
+- [06:30.240] >> Well, I'd say he's handsome also. And I
+- [06:32.639] think he could become one of the most
+- [06:34.080] important leaders in the Middle East.
+- [06:36.319] Actually, we do this because they've
+- [06:37.759] been doing trying to do this for for
+- [06:40.319] decades, right? Decades and decades. So
+- [06:43.199] uh if I made that statement about
+- [06:45.280] somebody else, I would put him in the
+- [06:46.720] same category.
+- [06:47.600] >> When the army withdraw from Lebanon,
+- [06:49.680] when the Israeli army withdraw withdraw
+- [06:51.440] from Lebanon, is there a clear timeline?
+- [06:53.120] >> They're in the process of doing that.
+- [06:54.639] They're in the process of redeploying to
+- [06:57.440] other sections and uh again they get
+- [07:00.160] along very well. That was a great
+- [07:01.520] agreement they signed with Lebanon and
+- [07:03.680] they're redeployed.
+- [07:07.120] >> Mr. President, thank you Mr. President.
+- [07:09.599] Um, the Lebanese army needs help and the
+- [07:12.000] United States said that it's very
+- [07:13.520] important for the Lebanese army to take
+- [07:15.440] over the villages that Hezbollah
+- [07:17.680] withdraw from. How are you going to help
+- [07:19.840] him and how this
+- [07:20.880] >> Well, we're going to be speaking about
+- [07:22.000] that today
+- [07:23.759] in this
+- [07:24.160] >> We'll be speaking about that today with
+- [07:25.599] your president and uh we have some very
+- [07:29.120] concrete plans already in store for that
+- [07:31.199] with others going in and helping. uh but
+- [07:34.160] they they're also becoming much more
+- [07:36.000] self-sufficient
+- [07:37.759] and we will be speaking about that.
+- [07:39.599] That's one of the subjects we're going
+- [07:40.639] to be talking
+- [07:43.520] my question is sorry um Isra uh the
+- [07:46.720] Lebanese army said today that Israeli
+- [07:48.639] forces opened fire in proximity uh to
+- [07:51.280] the Lebanese trying to deploy in one of
+- [07:53.199] these pilot zones. This is day two of
+- [07:55.039] the pilot zones. Are you prepared to
+- [07:57.120] take any steps, additional steps to put
+- [07:59.280] pressure on Israel to withdraw? Uh,
+- [08:02.560] which I believe President is planning to
+- [08:04.639] ask.
+- [08:05.039] >> Well, I'll look at I just heard about
+- [08:06.319] that before this conference just
+- [08:08.000] happened and we'll be looking at that.
+- [08:09.919] Yeah.
+- [08:10.400] >> Thank you, Mr. President. Mr. President,
+- [08:12.000] there are no signs that Iran is ready to
+- [08:13.840] stop fighting. So, so what is the plan?
+- [08:15.759] Is the plan bombing until
+- [08:17.840] >> How would you know if there are no
+- [08:18.879] signs? What? You know something that I
+- [08:21.280] don't know? Well, they continue to
+- [08:22.400] attack our ally,
+- [08:23.360] >> but you don't know what the dialogue is
+- [08:25.120] behind the scenes that they want to meet
+- [08:26.720] desperately to try and end it because
+- [08:28.639] they're getting decimated. You don't get
+- [08:30.879] that when you listen to your fake
+- [08:32.719] station. But, uh, you don't know. You
+- [08:36.560] don't know anything. So, talks are
+- [08:38.320] >> you know something that I don't know.
+- [08:39.919] You know something I don't know.
+- [08:41.360] >> Well, tell us.
+- [08:42.240] >> Uh, I will tell you they want to
+- [08:44.240] desperately meet and until they're ready
+- [08:47.279] to meet in a meaningful way, we have no
+- [08:49.440] interest in even
+- [08:54.000] Mr. President, are you planning on
+- [08:55.519] putting any pressure consequences on
+- [08:57.600] China for what you announced about them
+- [09:00.160] meddling in the 2020 election?
+- [09:01.760] >> Well, we're going to talk to him about
+- [09:02.959] it. It took place a long time ago. I
+- [09:05.519] think China is maybe a little bit
+- [09:06.880] different today than it was then. But
+- [09:08.399] look, they're they do things
+- [09:12.959] too. It's not a one-way street, but
+- [09:15.040] we'll be talking to them. You know,
+- [09:16.560] >> Mr.
+- [09:17.839] Something that doesn't get talked about
+- [09:19.040] a lot, but the border patrol reported 14
+- [09:21.680] consecutive months month months no
+- [09:23.360] releases at the southern border. This is
+- [09:25.839] something you talked a lot about on the
+- [09:27.279] campaign trail that you could run on the
+- [09:29.360] job you did on the southern border. Do
+- [09:30.800] you feel similarly at this point in time
+- [09:33.040] in midterms considering how well the job
+- [09:35.120] you've done? What is the lesson you've
+- [09:36.720] learned about border patrol?
+- [09:38.000] >> Well, thank you for that question. The
+- [09:39.920] uh fact is and maybe it pertains a
+- [09:42.160] little bit with respect to you and
+- [09:43.600] borders and everything else. We had a
+- [09:45.920] border that was totally out of control.
+- [09:48.000] I probably won the election at least
+- [09:49.920] partially on the border, would you say?
+- [09:52.240] And the border now we literally in 14
+- [09:54.560] months I think it came out this morning
+- [09:56.160] actually just announced that in 14
+- [09:57.920] months we had nobody coming through.
+- [10:00.480] Zero the zero people. I have to then
+- [10:03.519] millions came through and we had zero
+- [10:06.000] people come in illegally into our
+- [10:08.000] country and that's made by people that
+- [10:10.560] happen to be uh Democrats largely
+- [10:13.279] Democrats or people that do those stats
+- [10:16.079] uh and I'm sure they don't like saying
+- [10:17.839] it but we really had virtually nobody
+- [10:19.600] coming in and they actually say nobody
+- [10:21.440] not even virtually. So, it's amazing
+- [10:23.839] what's happened there. And uh very
+- [10:26.160] people talk about that anymore. You
+- [10:27.680] know, they don't like talking about
+- [10:28.640] that. They don't like talking about
+- [10:29.839] Venezuela where we lost no people. I'll
+- [10:32.880] be going to do for something that I feel
+- [10:37.279] is is it's a great honor for me to do
+- [10:40.000] it. These are people that want it and
+- [10:42.240] they feel like I do that Iran cannot
+- [10:44.399] have a nuclear weapon. Very simple. It's
+- [10:46.560] a very simple dictim. they cannot have a
+- [10:49.200] nuclear weapon and they won't have
+- [10:50.720] they're not going to they have no chance
+- [10:52.320] of having a nuclear weapon. Uh and as
+- [10:55.440] far as Iran is concerned, I'll let Pete
+- [10:57.120] maybe say a couple of words, but we are
+- [11:00.160] doing very well. We are degrading them
+- [11:01.920] at levels that nobody thought was
+- [11:03.600] possible. They're being degraded uh
+- [11:06.800] really uh so seriously. They did slip
+- [11:10.800] something through in Jordan and uh if we
+- [11:13.680] had other operators, you know, would
+- [11:16.399] have not happened unfortunately. But uh
+- [11:20.320] we because we have the best equipment in
+- [11:22.000] the world, you know, we've stopped
+- [11:23.120] almost everything. But when you let
+- [11:25.360] other people do your job with the United
+- [11:27.839] States, we let other people do the job
+- [11:29.600] and sometimes it doesn't work out so
+- [11:31.200] well. But uh we're going to be going and
+- [11:34.560] paying our respects at Dover
+- [11:37.279] saying just how we're doing generous
+- [11:39.519] speaking.
+- [11:39.839] >> Well, it'll be an honor as well to join
+- [11:41.360] you at Dover to recognize these
+- [11:43.120] incredible Americans um who committed to
+- [11:45.360] the cause just like you are. Something
+- [11:47.200] no president's been willing to do 47
+- [11:49.279] years. They build up a conventional
+- [11:51.120] capability like the North Koreans did.
+- [11:52.720] Remember North Korea made their way to a
+- [11:54.640] bomb. So much weaponry that they no one
+- [11:57.120] was willing to stand up to them.
+- [11:58.560] President Trump was and continues to to
+- [12:01.120] this day. Iran's been given every
+- [12:03.040] opportunity to to negotiate uh to show
+- [12:05.279] that they're reasonable on this trade of
+- [12:06.560] Hormuz. Uh but if they're going to shoot
+- [12:08.480] a commercial shipping, then we're going
+- [12:09.760] to hit them, as the president said, 10
+- [12:11.519] times harder, which every night we're
+- [12:13.360] degrading them further and further. Uh
+- [12:15.360] and the president
+- [12:18.320] has they could talk otherwise they can
+- [12:20.320] deal with the war department and we're
+- [12:21.760] >> and the blockade is up and fully I mean
+- [12:25.519] it's uh nobody gets through nobody gets
+- [12:29.200] through the blockade it's like a steel
+- [12:30.560] wall.
+- [12:33.279] >> Thank you Mr. President. Uh yesterday
+- [12:34.959] there was another attack on an ICE
+- [12:36.320] facility this time in New York City.
+- [12:38.240] What in your view is prompting these
+- [12:40.160] attacks? And do you have a message for
+- [12:41.519] those who are attacking ICE? You're
+- [12:43.360] talking about the fire that was set in
+- [12:44.959] front of the federal building.
+- [12:46.959] >> Well, this is uh what's happening with
+- [12:49.120] the people that they allowed to come
+- [12:50.399] into our country. They shouldn't have
+- [12:52.240] allowed them to come in. They shouldn't
+- [12:53.920] be here. Uh they're radical lunatics.
+- [12:57.680] And uh I'm getting them out. You know,
+- [13:00.720] we're getting them out at a pace. You
+- [13:02.639] know, we've gotten rid of more than any
+- [13:04.079] other I I read stories. They try and
+- [13:06.560] give you phony stats. I was with Tom
+- [13:08.880] Hman this morning. I'll give you the
+- [13:10.320] statistics if if you want, but we're
+- [13:12.800] getting bad people out of our country at
+- [13:15.600] levels never seen before. There's never
+- [13:18.320] been a time when more bad people and you
+- [13:21.120] take a look just here in Washington, we
+- [13:23.440] got almost five, we took out almost
+- [13:25.839] 5,000
+- [13:27.519] hardline hardcore criminals, most of
+- [13:31.040] whom came in during the open border
+- [13:33.200] periods of the previous administration.
+- [13:36.720] uh an an amazing statistic and this is
+- [13:39.040] something that I hate to be talking
+- [13:41.040] about in front of the president of
+- [13:43.040] Lebanon, but he's got his problems and
+- [13:46.959] different problems, but we don't have
+- [13:48.399] any problems in Washington DC. We have
+- [13:51.120] virtually we've wiped out about 92% of
+- [13:53.360] the crime. Uh and we're going to get
+- [13:55.760] very close to I believe we're going to
+- [13:57.279] get close to 100% of the crime. And if
+- [14:00.320] you take a look at this city and compare
+- [14:02.480] this to what it was 15 16 months ago,
+- [14:05.040] this was a dangerous city. Uh I don't
+- [14:08.000] know how I better not compare to Lebanon
+- [14:10.160] because I don't exactly have your stats,
+- [14:12.320] but uh it might have been Lebanon was
+- [14:14.480] safer. This was a dangerous city under
+- [14:17.199] the previous administration, Biden, and
+- [14:20.160] now it's a very safe city. There was an
+- [14:22.079] article that came out two days ago that
+- [14:24.079] Washington DC is has made the greatest
+- [14:27.839] progress of any city in the nation. Now,
+- [14:30.160] Memphis also and New Orleans also. And
+- [14:33.440] if they would ask us for help in
+- [14:34.959] Chicago, we would turn that around so
+- [14:36.800] fast. If they'd ask us for help in New
+- [14:39.040] York, we would turn that around so fast.
+- [14:41.120] Los Angeles, we would turn that around
+- [14:42.880] so fast. But the the stat that's so
+- [14:45.600] amazing is that 2% of the people create
+- [14:48.720] 91% of the crime. Think of that. It's a
+- [14:51.120] great stat because if it was 70% of the
+- [14:54.639] people that's a problem. It was 20%
+- [14:57.600] that's a 2% of the people create 91% of
+- [15:01.760] the crime. Think of that. 2% of the
+- [15:04.399] people you can handle that easily. So
+- [15:07.360] Washington DC is now one of the hottest
+- [15:09.360] cities in the country. We have the
+- [15:10.800] hottest country in the world. But
+- [15:12.959] Washington is now hot. And uh I and I do
+- [15:18.240] have to say one other thing. We just had
+- [15:19.920] the World Cup as you know very well and
+- [15:23.040] it was the most successful World Cup
+- [15:25.600] ever. We didn't even have a protest. We
+- [15:28.959] had no crime. With all those events was
+- [15:31.839] like having many, many Super Bowls. Each
+- [15:34.480] one was like a Super Bowl. And with all
+- [15:36.880] of that, we didn't have crime. We didn't
+- [15:39.120] have bedum. Everybody left here with a
+- [15:41.839] different opinion than what they read in
+- [15:45.040] the fake news. They love this country. I
+- [15:47.839] saw Scotland. I saw Norway. I saw all
+- [15:50.000] these countries. I mean the level of
+- [15:52.720] love that nobody wanted to leave. And I
+- [15:56.399] just want to congratulate everybody the
+- [15:58.399] job that we did and all of us everybody
+- [16:00.480] in this room because everybody in this
+- [16:02.079] room was involved. The vice president
+- [16:04.000] was very much involved. Um it was it was
+- [16:08.240] amazing. I was with Johnny the other day
+- [16:10.959] who's the job he did is great. But he
+- [16:14.480] said he never thought in a million years
+- [16:16.720] it could be so free of any difficulty.
+- [16:19.759] Think of it. We didn't even have a
+- [16:21.600] protest. Not only no crime. Now there's
+- [16:24.480] a reason for all this. But part of it
+- [16:27.120] was that people just wanted to pull
+- [16:29.440] together this country for like a
+- [16:32.880] four-week period just pulled together.
+- [16:36.079] Really amazing. And I didn't want to say
+- [16:37.519] it before the final. I didn't want to
+- [16:38.959] say how well it was doing. I wanted to
+- [16:41.120] get the final upward because you never
+- [16:42.639] know. It only takes
+- [16:46.160] we just had the most successful World
+- [16:48.160] Cup in history. Did five times the
+- [16:50.880] business of any World Cup in history.
+- [16:54.800] And I can't wait to get him back, but I
+- [16:57.199] think we won't be able to get him for
+- [16:58.320] the next
+- [17:03.680] here, especially with this up.
+- [17:05.520] >> Do you feel safe, especially considering
+- [17:08.480] your life? Why wouldn't I feel safe? on
+- [17:17.199] from Are you still speaking with you
+- [17:19.839] said in previous interviews that you're
+- [17:21.839] speaking?
+- [17:22.240] >> Well, I don't want to say that but I
+- [17:23.439] would speak to I speak to everybody.
+- [17:26.079] I'll speak to people that a lot of
+- [17:27.520] people think I shouldn't be speaking to
+- [17:28.880] and things work out.
+- [17:31.360] >> Mr. President,
+- [17:32.320] >> I would speak to I would say this. If
+- [17:33.919] the president wanted me to speak to
+- [17:35.360] Hezbollah, you know, he's lived with
+- [17:37.360] Hezbollah for a long time. And if the
+- [17:40.160] president wanted me to speak to I would
+- [17:42.799] I would
+- [17:48.480] president follow on Iran. If the
+- [17:50.720] Iranians do not make a deal ultimately,
+- [17:54.212] [clears throat] how long will it take
+- [17:55.840] for you to stamp out their threats to
+- [17:57.840] the straight and enable shipping?
+- [17:59.919] >> So if we left right now, it would take
+- [18:02.320] Iran 20 25 years to rebuild.
+- [18:05.919] Okay? And we're not finished at all. But
+- [18:08.640] if we left right now, it would take them
+- [18:11.360] a long time, years, years to rebuild.
+- [18:15.280] But we're not leaving right now. Uh so
+- [18:17.600] we've had a big impact on Iran. Uh if we
+- [18:21.120] didn't do what I did with regard to two
+- [18:24.000] things, the uh Iran nuclear deal done by
+- [18:27.760] Barack Hussein Obama. I terminated that.
+- [18:30.799] If I didn't terminate it, you wouldn't
+- [18:32.400] have Israel right now because they would
+- [18:34.000] have had a nuclear weapon years ago. And
+- [18:37.120] if we didn't do the B2 bombers, uh,
+- [18:40.080] knocking out the nuclear sites a year
+- [18:43.120] ago, one of the first things we did
+- [18:45.200] early in the administration, they would
+- [18:47.760] have a nuclear weapon, and you wouldn't
+- [18:50.240] have Israel. And in my opinion, you
+- [18:52.160] wouldn't have various other countries in
+- [18:54.640] the Middle East. They'd all be gone.
+- [18:56.080] They would have been terminated,
+- [18:57.360] extinguished. But I believe that by
+- [19:00.799] doing what we did by terminating Iran,
+- [19:04.000] who's uh very evil people leading that
+- [19:07.679] country, you saw the number of
+- [19:09.760] protesters that they kill, 52,000 plus.
+- [19:12.799] I put a couple of them up today. Young
+- [19:14.640] kids that kill them. They kill them like
+- [19:16.000] they're like they're uh candy. It's
+- [19:20.080] crazy what they do. They treat them so
+- [19:23.520] badly. They they they're just killing
+- [19:25.280] people just at random. over 52,000
+- [19:28.559] people and nobody talks about it. But if
+- [19:31.360] I didn't do the attack on their nuclear
+- [19:34.960] sites or if I didn't terminate the Obama
+- [19:38.559] agreement with Iran, which was a a
+- [19:41.840] absolute it was an absolute hit on
+- [19:45.520] having them get that was a road to a
+- [19:47.600] nuclear weapon and our deal will be a
+- [19:51.200] wall. It already is. They can't have a
+- [19:53.039] nuclear weapon right now. It would take
+- [19:54.320] them years to produce it. And we will
+- [19:56.880] absolutely attack. We, you know, the the
+- [20:00.720] new site that they're talking about. I
+- [20:02.559] mean, how about these people? They're in
+- [20:05.039] this because of nuclear weapons and
+- [20:06.640] they're trying to possibly reconstitute
+- [20:10.080] a site. Uh, we'll hit that site. Any
+- [20:13.280] site where they're even thinking about
+- [20:15.200] nuclear, we'll be hitting it very, very
+- [20:16.880] powerfully. Now,
+- [20:19.039] nobody knows except the Iranians the
+- [20:21.919] damage that we've done to them. We have
+- [20:24.000] damage
+- [20:25.840] that will take them 20 25 years to
+- [20:29.039] recover from. So if we left tomorrow, we
+- [20:32.000] had a big we had a big success. But
+- [20:34.080] we're not leaving tomorrow.
+- [20:35.440] >> Mr.
+- [20:40.559] There's a bill right now that's being
+- [20:42.559] considered that would allow illegal
+- [20:44.159] aliens who are working in farming to get
+- [20:46.720] legal status. Do you support that
+- [20:48.480] legislation?
+- [20:49.039] >> I don't know about it. I'll take a look
+- [20:50.480] at it.
+- [20:53.360] last night the Canada tariffs one are
+- [20:55.440] those a response to the wildfires in
+- [20:57.760] >> No no no no that's separate we're
+- [20:59.600] looking at that separately
+- [21:00.799] >> and what is there anything
+- [21:02.000] >> it's only response to the way they've
+- [21:03.440] treated our farmers and our people you
+- [21:06.159] know Canada's been very very tough on us
+- [21:09.360] over the years for many years and no
+- [21:11.760] other president's done anything about it
+- [21:13.840] I I love Canada I love the people of
+- [21:16.240] Canada many friends that live in Canada
+- [21:18.320] but their leadership from Trudeau to the
+- [21:20.960] current leadership
+- [21:22.400] Um, I mean, in all fairness to them,
+- [21:25.600] they need us to survive. Without us,
+- [21:29.200] there's no way they can survive. So, but
+- [21:31.919] they've been very, very tough over a
+- [21:34.240] period of the last 50 years, actually.
+- [21:42.400] >> Tony ABC from Lebanon. Do you still
+- [21:44.880] support Syria entering Lebanon to disarm
+- [21:46.960] Hezbollah?
+- [21:48.400] >> You mean coming in and doing something
+- [21:50.000] with Hezbollah? Yes.
+- [21:51.280] >> Well, it's a concept, you know, we get
+- [21:53.120] along very well with the president of
+- [21:54.640] Syria's done a very good job. I wouldn't
+- [21:56.799] be surprised if this gentleman's going
+- [21:58.240] to do a job just like that. He's done a
+- [22:00.000] very good job. He's pulled Syria
+- [22:01.360] together. Uh he would like to come in
+- [22:03.679] and do uh something with Hezbollah. You
+- [22:07.120] know, they've been fighting, he's been
+- [22:08.240] fighting Hezbollah for a long time. I
+- [22:10.240] think it'd be very effective. So, it's
+- [22:12.400] something I think
+- [22:17.440] tariffs. you increased the tariffs on
+- [22:19.520] Canada yesterday. Can you say if you
+- [22:21.520] still expect to impose tariffs on the
+- [22:23.600] wildfire problem and can you say that a
+- [22:27.039] lot of damage has been done they're not
+- [22:29.440] managing their forest properly and the
+- [22:31.440] wind has a tendency to blow right over
+- [22:34.000] New York City right over you saw Detroit
+- [22:36.480] they had to close the whole place
+- [22:37.919] Michigan was really affected they had to
+- [22:40.320] close businesses for four days uh it's
+- [22:44.000] very serious what they're doing and they
+- [22:46.240] don't seem to be able to do anything
+- [22:47.600] about it if they managed their forests
+- [22:49.760] they wouldn't have
+- [22:51.039] president.
+- [22:54.559] Do
+- [22:54.720] >> you believe that Iran is trying to
+- [22:56.159] impact the midterm elections by
+- [22:58.320] threatening the street of
+- [22:59.520] >> probably they won't have any impact on
+- [23:01.280] me? I'm just going to do the right
+- [23:03.200] thing. I don't view it as you having an
+- [23:05.200] election in a period of time. You know,
+- [23:07.840] everyone says, "Oh, I'm doing something
+- [23:09.520] before." No, the election I I can't
+- [23:12.960] think about that having to do with this.
+- [23:15.600] I think people are very impressed. I
+- [23:17.360] mean, we took over Venezuela. We now
+- [23:19.919] have a great relationship with
+- [23:21.520] Venezuela. We went to war with Venezuela
+- [23:24.480] and the war ended in one day and we have
+- [23:28.480] now an incredible relationship with
+- [23:30.559] Venezuela. We're taking out millions of
+- [23:32.159] barrels of oil. They're making more
+- [23:34.320] money now than they ever made before,
+- [23:35.919] ever. And we're making a lot of money.
+- [23:38.559] We paid for the war many times over with
+- [23:40.799] Venezuela. We lost nobody. We lost
+- [23:43.520] nobody. We didn't lose one. And it was a
+- [23:45.919] a violent attack, as you know. We took
+- [23:48.640] out a a man who was a very evil man.
+- [23:51.039] What he did was very evil. Many many in
+- [23:53.280] many different ways. We took took him
+- [23:55.360] out. Uh but you know Venezuela they said
+- [23:59.440] the same thing. When I did Venezuela
+- [24:01.280] everyone said because look at the drugs.
+- [24:02.799] Look at look at what they did where they
+- [24:04.559] took all of their prisons. They opened
+- [24:06.400] up their prisons and they have everybody
+- [24:08.320] in a prison come in through Biden's
+- [24:11.120] absolutely insane open borders policy.
+- [24:15.440] And we did that in one day. Think of it.
+- [24:18.960] And now we are working very closely with
+- [24:22.000] the administration and we get along very
+- [24:25.520] well. Venezuela is a very happy place.
+- [24:28.159] Had a tragic incident with the uh you
+- [24:31.120] know the event that took place couple of
+- [24:33.360] days ago, couple a week ago. What a
+- [24:36.400] terrible thing that was. They had a they
+- [24:39.039] had a movement, a shifting of earth that
+- [24:40.880] was unbelievable. Nobody's ever they've
+- [24:43.360] never seen anything like it. A lot of
+- [24:44.960] people were killed. Uh so it's all
+- [24:47.360] unrelated, but by the way, we were the
+- [24:49.440] first ones there to help. We were there
+- [24:50.880] to help Venezuela. It was an earthquake,
+- [24:53.279] I guess you'd call it. It was a pretty
+- [24:55.360] massive earthquake and we were able to
+- [24:58.480] do a lot of good, but they they lost a
+- [25:00.240] lot of people. Venezuela, the people are
+- [25:04.080] so happy that we're there. The jobs,
+- [25:06.400] everything's happening, and we're we're
+- [25:08.080] taking out many, many times the money
+- [25:10.960] that we spent on the war. uh this one uh
+- [25:14.880] Iran is bigger. Uh it's more it's a more
+- [25:18.320] complex situation, but we're probably
+- [25:20.720] doing equally as well if you look at the
+- [25:23.919] damage that's been done. And again, as I
+- [25:25.679] said to the young man that just posed
+- [25:28.240] the question over here, uh if we left
+- [25:32.159] today, it would take them decades to
+- [25:35.279] rebuild. And I don't believe they could
+- [25:36.880] ever rebuild. And honestly, they haven't
+- [25:40.559] seen anything yet. We've been nice.
+- [25:43.919] We've been nice.
+- [25:49.279] >> Haley Wis News. Thank you for the
+- [25:51.200] question. Do you believe that Iran has
+- [25:53.760] moved nuclear centrifuges into Pickax
+- [25:56.480] Mountain? And when you say we're not
+- [25:58.240] done yet, what is left to finish?
+- [26:00.000] >> Well, I think that they they may have.
+- [26:03.039] We don't have it on record. All we do is
+- [26:05.679] read the fake news. You know, we
+- [26:10.080] So, you know, maybe maybe this one they
+- [26:12.240] have, right? But it's okay. It doesn't
+- [26:14.559] mean anything unless they have the
+- [26:15.840] material. You're talking about the
+- [26:17.679] centrifuges. Yeah. It doesn't mean
+- [26:19.440] anything unless they have the material.
+- [26:20.640] They don't have we follow the material.
+- [26:22.000] That's where the action is. And uh we'll
+- [26:25.200] be hitting that area very probably
+- [26:27.279] pretty soon. And there's not not a thing
+- [26:29.440] they can do about it. You normally I
+- [26:31.360] wouldn't say that. If I thought they
+- [26:33.360] could do something about it, I would
+- [26:34.720] never say that. But we'll be hitting
+- [26:36.799] that area pretty soon. Uh and and very
+- [26:40.240] heavily.
+- [26:41.039] >> Mr.
+- [26:44.799] Go ahead.
+- [26:45.120] >> President Trump, two years ago during
+- [26:46.720] the campaign, uh I interviewed you and
+- [26:49.120] you told me on MTV Lebanon that the
+- [26:50.960] peace will happen in Lebanon. And every
+- [26:52.559] word you said during the interview, it's
+- [26:54.880] happening today. Like from the first day
+- [26:56.880] in the administration, you were working
+- [26:58.880] hard for peace. True. Uh I I
+- [27:01.440] >> because I understood Lebanon and I
+- [27:03.440] understood how horribly Lebanon has been
+- [27:06.960] treated as a country. They've been like
+- [27:08.559] a whipping post. What's happened with
+- [27:10.240] Iran and with Hezbollah, but Lebanon's
+- [27:14.240] been treated very incredibly badly. And
+- [27:16.799] maybe I'm a little prejudice in favor of
+- [27:18.799] Lebanon because I have so many Lebanese
+- [27:21.120] friends.
+- [27:22.640] Well, no, but there's so many Lebanese
+- [27:24.320] friends and so I know I understand
+- [27:26.400] Lebanon. Tom Barer is Lebanese the
+- [27:29.120] ambassador.
+- [27:32.880] regarding the army regarding the
+- [27:35.360] Lebanese army. President, the Lebanese
+- [27:37.840] army currently have the funding,
+- [27:39.919] equipment and manpower necessary to
+- [27:42.159] implement the agreement or you are
+- [27:44.480] asking today President Trump for
+- [27:46.080] additional US assistant today to do the
+- [27:48.720] job. Definitely with the support of
+- [27:51.200] President Trump and we spoke of it on
+- [27:52.880] the phone and I told him I need two
+- [27:54.480] things from you political support and
+- [27:56.880] supporting of the laugh which is the
+- [27:58.960] laugh is the most trusted institution in
+- [28:01.279] the country and it has the most powerful
+- [28:03.840] weapon which is the trust of the public
+- [28:06.080] and like any other any armed forces in
+- [28:08.720] the world the Lebanese armed forces is
+- [28:10.559] the backbone of security and stability.
+- [28:13.520] We need to support the laugh. The laugh
+- [28:16.559] maintains the country safe and stable.
+- [28:18.480] Without the laugh, everything will
+- [28:19.840] collapse. We don't want that. I think
+- [28:21.440] President Trump doesn't want that. In
+- [28:23.360] 1975, the first institution to collapse
+- [28:26.080] was the laugh. And as a result, we saw
+- [28:28.640] the emergence of many local militias and
+- [28:30.960] the south was empty allowing the
+- [28:33.360] Palestinian to the south end and launch
+- [28:35.039] attack against Israel. We don't want to
+- [28:36.880] see that back again. All we're asking is
+- [28:39.039] keep supporting the LA. and they know
+- [28:40.960] that the laugh is doing great job
+- [28:43.279] performing its duty to the fullest. I
+- [28:45.360] fully trust the laugh. I fully trust the
+- [28:47.200] leadership of the
+- [28:48.159] >> we will have
+- [28:51.760] they did a great a great step forward
+- [28:54.480] with the recent signing with Israel.
+- [28:56.240] That was a big step.
+- [28:59.520] Are you going to allow direct flights
+- [29:01.120] from America to Lebanon again on
+- [29:02.960] federal? I can see that happening after
+- [29:07.600] >> question
+- [29:09.440] from NBC. So, ambassador, the US
+- [29:11.919] ambassador to Lebanona told me that the
+- [29:14.640] president would not leave Washington
+- [29:16.640] empty-handed. What concrete outcomes
+- [29:19.120] will you bringing back to Lebanon?
+- [29:21.840] You'll find out.
+- [29:25.919] >> Thank you all very much. Uh we're doing
+- [29:28.159] very well with Iran. We're doing
+- [29:30.080] unbelievably with the economy. And we
+- [29:32.640] have investment as you know Toyota is uh
+- [29:35.840] coming in with the biggest plant I
+- [29:38.080] understand anywhere in the world.
+- [29:39.840] They're leaving Mexico. They're coming
+- [29:41.919] into our country. Going to come into
+- [29:44.080] Texas to be specific. Uh we have more
+- [29:47.120] plants under construction now than at
+- [29:48.880] any time by far by many times. And we
+- [29:52.320] have over 19.2 trillion dollars being
+- [29:54.799] spent in America. And they're going to
+- [29:57.120] be opening up in a year, a year and a
+- [29:58.880] half. And there has never been a time
+- [30:01.600] like this in America. Truly, it's the
+- [30:04.080] golden age of America. Thank you very
+- [30:06.080] much, everybody.

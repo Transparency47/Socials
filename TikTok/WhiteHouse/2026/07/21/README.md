@@ -1,7 +1,10 @@
 # TikTok / WhiteHouse / 2026-07-21
 
-- Posts: 2
+- Posts: 3
 
+- [17:04 UTC - Don’t bet against the king 😤](7665028183342845198/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7665028183342845198
+  - Don’t bet against the king 😤
 - [13:10 UTC - FAFO.](7664967777328844045/)
   - Source: https://www.tiktok.com/@WhiteHouse/video/7664967777328844045
   - FAFO.
