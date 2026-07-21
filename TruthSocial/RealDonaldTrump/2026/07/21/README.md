@@ -1,7 +1,31 @@
 # TruthSocial / RealDonaldTrump / 2026-07-21
 
-- Posts: 11
+- Posts: 19
 
+- [19:54 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Afghanistan War: 20 years...](116959718559155454/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116959718559155454
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Afghanistan War: 20 years, 2,000 DEAD. Iraq War: 9 years, 4,600 DEAD. Vietnam War: 19 years and 5 months, 58,220 DE...
+- [19:54 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) After meeting with the Pr...](116959718422116686/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116959718422116686
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) After meeting with the President of Lebanon, Joseph Aoun, who has done a remarkable job working to transform his Co...
+- [19:52 UTC - Truth Social post 116959710637459603](116959710637459603/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116959710637459603
+  - _No text content captured._
+- [19:52 UTC - Truth Social post 116959710016956595](116959710016956595/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116959710016956595
+  - _No text content captured._
+- [19:52 UTC - Truth Social post 116959709239826209](116959709239826209/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116959709239826209
+  - _No text content captured._
+- [19:52 UTC - Truth Social post 116959708649144417](116959708649144417/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116959708649144417
+  - _No text content captured._
+- [19:51 UTC - Afghanistan War: 20 years, 2,000 DEAD. Iraq War: 9 years, 4,600 DEAD. Vietnam War: 19 year...](116959705309751797/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116959705309751797
+  - Afghanistan War: 20 years, 2,000 DEAD. Iraq War: 9 years, 4,600 DEAD. Vietnam War: 19 years and 5 months, 58,220 DEAD. Korean War: 3 years and 1 month, 36,574 DEAD. Venezuela War:...
+- [19:23 UTC - After meeting with the President of Lebanon, Joseph Aoun, who has done a remarkable job wo...](116959597656685206/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116959597656685206
+  - After meeting with the President of Lebanon, Joseph Aoun, who has done a remarkable job working to transform his Country, I am hereby directing my Administration to allow all U.S....
 - [15:05 UTC - Truth Social post 116958583609419396](116958583609419396/)
   - Source: https://truthsocial.com/@realDonaldTrump/116958583609419396
   - _No text content captured._
