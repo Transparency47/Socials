@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=ECHL5H4ebdw: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=ECHL5H4ebdw! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=vUNswx1aNi4: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=vUNswx1aNi4! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -126184,6 +126184,72 @@
       "published": "2026-07-21T12:58:34.937000+00:00",
       "title": "Truth Social post 116958082822194064",
       "url": "https://truthsocial.com/@realDonaldTrump/116958082822194064"
+    },
+    "truthsocial:realdonaldtrump:116958562322324112": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-21T16:24:14.645891+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/21/116958562322324112",
+      "platform": "truthsocial",
+      "post_id": "116958562322324112",
+      "published": "2026-07-21T15:00:31.527000+00:00",
+      "title": "Trump Announces Nearly $10 Billion in Defense Industrial Base Investments in Pennsylvania ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116958562322324112"
+    },
+    "truthsocial:realdonaldtrump:116958564034058314": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-21T16:24:14.238789+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/21/116958564034058314",
+      "platform": "truthsocial",
+      "post_id": "116958564034058314",
+      "published": "2026-07-21T15:00:57.648000+00:00",
+      "title": "Trump Rx Delivers Massive Price Relief on Prescription Drug Costs: [https:// amac.us/newsl...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116958564034058314"
+    },
+    "truthsocial:realdonaldtrump:116958568886511888": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-21T16:24:14.238390+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/21/116958568886511888",
+      "platform": "truthsocial",
+      "post_id": "116958568886511888",
+      "published": "2026-07-21T15:02:11.691000+00:00",
+      "title": "Grassley: Democrats Who Weaponized DOJ Hate Blanche, Which Proves He\u2019s A Good AG Pick: [ht...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116958568886511888"
+    },
+    "truthsocial:realdonaldtrump:116958570470986474": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-21T16:24:14.237944+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/21/116958570470986474",
+      "platform": "truthsocial",
+      "post_id": "116958570470986474",
+      "published": "2026-07-21T15:02:35.863000+00:00",
+      "title": "Why permanent daylight saving time may be better for your health: [https:// nypost.com/hea...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116958570470986474"
+    },
+    "truthsocial:realdonaldtrump:116958572526754317": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-21T16:24:14.237354+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/21/116958572526754317",
+      "platform": "truthsocial",
+      "post_id": "116958572526754317",
+      "published": "2026-07-21T15:03:07.236000+00:00",
+      "title": "Blame immigration chaos on Biden and Harris \u2014 not Trump: [https:// nypost.com/2026/07/16/o...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116958572526754317"
+    },
+    "truthsocial:realdonaldtrump:116958583609419396": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-21T16:24:14.236646+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/21/116958583609419396",
+      "platform": "truthsocial",
+      "post_id": "116958583609419396",
+      "published": "2026-07-21T15:05:56.350000+00:00",
+      "title": "Truth Social post 116958583609419396",
+      "url": "https://truthsocial.com/@realDonaldTrump/116958583609419396"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",

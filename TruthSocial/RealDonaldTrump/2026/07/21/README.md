@@ -1,7 +1,25 @@
 # TruthSocial / RealDonaldTrump / 2026-07-21
 
-- Posts: 5
+- Posts: 11
 
+- [15:05 UTC - Truth Social post 116958583609419396](116958583609419396/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116958583609419396
+  - _No text content captured._
+- [15:03 UTC - Blame immigration chaos on Biden and Harris — not Trump: [https:// nypost.com/2026/07/16/o...](116958572526754317/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116958572526754317
+  - Blame immigration chaos on Biden and Harris — not Trump: [https:// nypost.com/2026/07/16/opinion/ blame-immigration-chaos-on-biden-and-harris-not-trump/](https://nypost.com/2026/07...
+- [15:02 UTC - Why permanent daylight saving time may be better for your health: [https:// nypost.com/hea...](116958570470986474/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116958570470986474
+  - Why permanent daylight saving time may be better for your health: [https:// nypost.com/health/health-benef its-of-daylight-savings-time/](https://nypost.com/health/health-benefits-...
+- [15:02 UTC - Grassley: Democrats Who Weaponized DOJ Hate Blanche, Which Proves He’s A Good AG Pick: [ht...](116958568886511888/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116958568886511888
+  - Grassley: Democrats Who Weaponized DOJ Hate Blanche, Which Proves He’s A Good AG Pick: [https:// thefederalist.com/2026/07/15/g rassley-democrats-who-weaponized-doj-hate-blanche-wh...
+- [15:00 UTC - Trump Rx Delivers Massive Price Relief on Prescription Drug Costs: [https:// amac.us/newsl...](116958564034058314/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116958564034058314
+  - Trump Rx Delivers Massive Price Relief on Prescription Drug Costs: [https:// amac.us/newsline/economy/trump rx-prescription-drug-savings-deliver-lower-costs-for-americans/](https:/...
+- [15:00 UTC - Trump Announces Nearly $10 Billion in Defense Industrial Base Investments in Pennsylvania ...](116958562322324112/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116958562322324112
+  - Trump Announces Nearly $10 Billion in Defense Industrial Base Investments in Pennsylvania at McCormick’s Summit: [https://www. breitbart.com/politics/2026/07 /15/trump-announces-ne...
 - [12:58 UTC - Truth Social post 116958082822194064](116958082822194064/)
   - Source: https://truthsocial.com/@realDonaldTrump/116958082822194064
   - _No text content captured._
