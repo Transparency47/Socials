@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-21
 
-- Posts: 20
+- Posts: 21
 
+- [22:54 UTC - Effective August 1st, 2026, all Generic Drugs being brought into the United States will co...](116960425128744506/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116960425128744506
+  - Effective August 1st, 2026, all Generic Drugs being brought into the United States will continue to have a TARIFF of ZERO PERCENT for a two year period of time, after which the TAR...
 - [20:44 UTC - Thank you to all of the House Republicans who are supporting the first step towards gettin...](116959913931409391/)
   - Source: https://truthsocial.com/@realDonaldTrump/116959913931409391
   - Thank you to all of the House Republicans who are supporting the first step towards getting as much of THE SAVE AMERICA ACT, as possible, in the Budget Bill, and to our Great Speak...

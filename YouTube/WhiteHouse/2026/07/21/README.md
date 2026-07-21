@@ -1,7 +1,10 @@
 # YouTube / WhiteHouse / 2026-07-21
 
-- Posts: 3
+- Posts: 4
 
+- [19:04 UTC - President Trump Participates in a Bilateral Meeting with the President of the Republic of Lebanon](hC1lrkuqBBw/)
+  - Source: https://www.youtube.com/watch?v=hC1lrkuqBBw
+  - [00:03.200] Well, thank you very much. It's a great - [00:05.040] pleasure to be with the president of - [00:07.839] Lebanon. He's highly respected in his - [00:10.240] country a...
 - [17:15 UTC - President Trump Greets the President of the Republic of Lebanon](W0972oS1oJ0/)
   - Source: https://www.youtube.com/watch?v=W0972oS1oJ0
   - [00:00.000] Slow. - [00:28.080] President Trump. President Trump, - [00:30.320] President Trump, are you what are you - [00:32.239] expecting today from the meeting with - [00:34...
