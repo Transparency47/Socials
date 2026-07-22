@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-22
 
-- Posts: 30
+- Posts: 31
 
+- [14:09 UTC - Truth Social post 116964025218558981](116964025218558981/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116964025218558981
+  - _No text content captured._
 - [12:56 UTC - From this point forward, any time the Islamic Republic of Iran shoots at a ship in the Str...](116963738416841583/)
   - Source: https://truthsocial.com/@realDonaldTrump/116963738416841583
   - From this point forward, any time the Islamic Republic of Iran shoots at a ship in the Strait of Hormuz, whether it be by Missile, Rocket, Drone, or any other device or weapon, the...
