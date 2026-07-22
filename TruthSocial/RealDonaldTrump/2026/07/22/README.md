@@ -1,7 +1,34 @@
 # TruthSocial / RealDonaldTrump / 2026-07-22
 
-- Posts: 18
+- Posts: 27
 
+- [10:01 UTC - A Crooked Election System!!! SAVE AMERICA!!! NJ governor forced to admit hundreds of forei...](116963046966861979/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116963046966861979
+  - A Crooked Election System!!! SAVE AMERICA!!! NJ governor forced to admit hundreds of foreigners voted in elections after Dems claimed no problem: [https:// justthenews.com/politics...
+- [10:00 UTC - Truth Social post 116963046690717842](116963046690717842/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116963046690717842
+  - _No text content captured._
+- [10:00 UTC - Truth Social post 116963046230637248](116963046230637248/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116963046230637248
+  - _No text content captured._
+- [10:00 UTC - Truth Social post 116963045698765090](116963045698765090/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116963045698765090
+  - _No text content captured._
+- [10:00 UTC - Truth Social post 116963045151218184](116963045151218184/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116963045151218184
+  - _No text content captured._
+- [10:00 UTC - Truth Social post 116963044621221470](116963044621221470/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116963044621221470
+  - _No text content captured._
+- [10:00 UTC - Truth Social post 116963044012217151](116963044012217151/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116963044012217151
+  - _No text content captured._
+- [10:00 UTC - Truth Social post 116963043473260676](116963043473260676/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116963043473260676
+  - _No text content captured._
+- [10:00 UTC - Truth Social post 116963042922612328](116963042922612328/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116963042922612328
+  - _No text content captured._
 - [09:47 UTC - Congratulations to Congressman Andy Biggs, who will be a GREAT Governor. Must now defeat a...](116962993377590525/)
   - Source: https://truthsocial.com/@realDonaldTrump/116962993377590525
   - Congratulations to Congressman Andy Biggs, who will be a GREAT Governor. Must now defeat a Radical Left Dumocrat, one of the worst governors in the Country, Katie Hobbs, who is wea...
