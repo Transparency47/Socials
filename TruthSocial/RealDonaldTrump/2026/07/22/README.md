@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2026-07-22
+
+- Posts: 15
+
+- [03:47 UTC - Truth Social post 116961577008925127](116961577008925127/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116961577008925127
+  - _No text content captured._
+- [03:46 UTC - Truth Social post 116961574322416527](116961574322416527/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116961574322416527
+  - _No text content captured._
+- [03:46 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116961572058857401](116961572831779086/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116961572831779086
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116961572058857401
+- [03:45 UTC - Truth Social post 116961572058857401](116961572058857401/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116961572058857401
+  - _No text content captured._
+- [03:45 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116961570518477700](116961571415704629/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116961571415704629
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116961570518477700
+- [03:45 UTC - Truth Social post 116961570518477700](116961570518477700/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116961570518477700
+  - _No text content captured._
+- [03:32 UTC - 35,152 is the new number just released by Homeland Security of non-citizens registered to ...](116961518130020934/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116961518130020934
+  - 35,152 is the new number just released by Homeland Security of non-citizens registered to vote in New Jersey. These are just the ones that got caught. The real numbers will prove t...
+- [03:23 UTC - Truth Social post 116961484899190159](116961484899190159/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116961484899190159
+  - _No text content captured._
+- [03:23 UTC - Truth Social post 116961482604750674](116961482604750674/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116961482604750674
+  - _No text content captured._
+- [03:22 UTC - Truth Social post 116961480817837390](116961480817837390/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116961480817837390
+  - _No text content captured._
+- [03:21 UTC - Truth Social post 116961475884596578](116961475884596578/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116961475884596578
+  - _No text content captured._
+- [03:11 UTC - [https:// truthsocial.com/@realDonaldTru mp/116946506480346191](https://truthsocial.com/@r...](116961438077640740/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116961438077640740
+  - [https:// truthsocial.com/@realDonaldTru mp/116946506480346191](https://truthsocial.com/@realDonaldTrump/116946506480346191)
+- [02:59 UTC - Mike Lindell would be a GREAT Governor. He loves Minnesota with all of his heart. Presiden...](116961389455371069/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116961389455371069
+  - Mike Lindell would be a GREAT Governor. He loves Minnesota with all of his heart. President DJT KSTP/SurveyUSA poll: Lindell, Tafoya increase their leads; Craig, Ellison margins sh...
+- [01:58 UTC - Rigged Elections!!!](116961148061262709/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116961148061262709
+  - Rigged Elections!!!
+- [01:28 UTC - These are the real facts. REPORT THEM!](116961030891139357/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116961030891139357
+  - These are the real facts. REPORT THEM!

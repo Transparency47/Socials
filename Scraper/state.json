@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=ECHL5H4ebdw: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=ECHL5H4ebdw! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=VUq9Fz3e4fY: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=VUq9Fz3e4fY! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -126382,6 +126382,171 @@
       "published": "2026-07-21T22:54:15.696000+00:00",
       "title": "Effective August 1st, 2026, all Generic Drugs being brought into the United States will co...",
       "url": "https://truthsocial.com/@realDonaldTrump/116960425128744506"
+    },
+    "truthsocial:realdonaldtrump:116961030891139357": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-22T04:32:32.863957+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/22/116961030891139357",
+      "platform": "truthsocial",
+      "post_id": "116961030891139357",
+      "published": "2026-07-22T01:28:18.901000+00:00",
+      "title": "These are the real facts. REPORT THEM!",
+      "url": "https://truthsocial.com/@realDonaldTrump/116961030891139357"
+    },
+    "truthsocial:realdonaldtrump:116961148061262709": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-22T04:32:32.863699+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/22/116961148061262709",
+      "platform": "truthsocial",
+      "post_id": "116961148061262709",
+      "published": "2026-07-22T01:58:06.772000+00:00",
+      "title": "Rigged Elections!!!",
+      "url": "https://truthsocial.com/@realDonaldTrump/116961148061262709"
+    },
+    "truthsocial:realdonaldtrump:116961389455371069": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-22T04:32:32.863440+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/22/116961389455371069",
+      "platform": "truthsocial",
+      "post_id": "116961389455371069",
+      "published": "2026-07-22T02:59:30.153000+00:00",
+      "title": "Mike Lindell would be a GREAT Governor. He loves Minnesota with all of his heart. Presiden...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116961389455371069"
+    },
+    "truthsocial:realdonaldtrump:116961438077640740": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-22T04:32:32.862909+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/22/116961438077640740",
+      "platform": "truthsocial",
+      "post_id": "116961438077640740",
+      "published": "2026-07-22T03:11:52.072000+00:00",
+      "title": "[https:// truthsocial.com/@realDonaldTru mp/116946506480346191](https://truthsocial.com/@r...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116961438077640740"
+    },
+    "truthsocial:realdonaldtrump:116961475884596578": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-22T04:32:32.862457+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/22/116961475884596578",
+      "platform": "truthsocial",
+      "post_id": "116961475884596578",
+      "published": "2026-07-22T03:21:29.027000+00:00",
+      "title": "Truth Social post 116961475884596578",
+      "url": "https://truthsocial.com/@realDonaldTrump/116961475884596578"
+    },
+    "truthsocial:realdonaldtrump:116961480817837390": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-22T04:32:32.862195+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/22/116961480817837390",
+      "platform": "truthsocial",
+      "post_id": "116961480817837390",
+      "published": "2026-07-22T03:22:44.304000+00:00",
+      "title": "Truth Social post 116961480817837390",
+      "url": "https://truthsocial.com/@realDonaldTrump/116961480817837390"
+    },
+    "truthsocial:realdonaldtrump:116961482604750674": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-22T04:32:32.861956+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/22/116961482604750674",
+      "platform": "truthsocial",
+      "post_id": "116961482604750674",
+      "published": "2026-07-22T03:23:11.571000+00:00",
+      "title": "Truth Social post 116961482604750674",
+      "url": "https://truthsocial.com/@realDonaldTrump/116961482604750674"
+    },
+    "truthsocial:realdonaldtrump:116961484899190159": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-22T04:32:32.861711+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/22/116961484899190159",
+      "platform": "truthsocial",
+      "post_id": "116961484899190159",
+      "published": "2026-07-22T03:23:46.581000+00:00",
+      "title": "Truth Social post 116961484899190159",
+      "url": "https://truthsocial.com/@realDonaldTrump/116961484899190159"
+    },
+    "truthsocial:realdonaldtrump:116961518130020934": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-22T04:32:32.861467+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/22/116961518130020934",
+      "platform": "truthsocial",
+      "post_id": "116961518130020934",
+      "published": "2026-07-22T03:32:13.575000+00:00",
+      "title": "35,152 is the new number just released by Homeland Security of non-citizens registered to ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116961518130020934"
+    },
+    "truthsocial:realdonaldtrump:116961570518477700": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-22T04:32:32.861136+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/22/116961570518477700",
+      "platform": "truthsocial",
+      "post_id": "116961570518477700",
+      "published": "2026-07-22T03:45:33.027000+00:00",
+      "title": "Truth Social post 116961570518477700",
+      "url": "https://truthsocial.com/@realDonaldTrump/116961570518477700"
+    },
+    "truthsocial:realdonaldtrump:116961571415704629": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-22T04:32:32.860887+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/22/116961571415704629",
+      "platform": "truthsocial",
+      "post_id": "116961571415704629",
+      "published": "2026-07-22T03:45:46.746000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116961570518477700",
+      "url": "https://truthsocial.com/@realDonaldTrump/116961571415704629"
+    },
+    "truthsocial:realdonaldtrump:116961572058857401": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-22T04:32:32.860532+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/22/116961572058857401",
+      "platform": "truthsocial",
+      "post_id": "116961572058857401",
+      "published": "2026-07-22T03:45:56.531000+00:00",
+      "title": "Truth Social post 116961572058857401",
+      "url": "https://truthsocial.com/@realDonaldTrump/116961572058857401"
+    },
+    "truthsocial:realdonaldtrump:116961572831779086": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-22T04:32:32.860257+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/22/116961572831779086",
+      "platform": "truthsocial",
+      "post_id": "116961572831779086",
+      "published": "2026-07-22T03:46:08.354000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116961572058857401",
+      "url": "https://truthsocial.com/@realDonaldTrump/116961572831779086"
+    },
+    "truthsocial:realdonaldtrump:116961574322416527": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-22T04:32:32.859776+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/22/116961574322416527",
+      "platform": "truthsocial",
+      "post_id": "116961574322416527",
+      "published": "2026-07-22T03:46:31+00:00",
+      "title": "Truth Social post 116961574322416527",
+      "url": "https://truthsocial.com/@realDonaldTrump/116961574322416527"
+    },
+    "truthsocial:realdonaldtrump:116961577008925127": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-22T04:32:32.859446+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/22/116961577008925127",
+      "platform": "truthsocial",
+      "post_id": "116961577008925127",
+      "published": "2026-07-22T03:47:12.063000+00:00",
+      "title": "Truth Social post 116961577008925127",
+      "url": "https://truthsocial.com/@realDonaldTrump/116961577008925127"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
