@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-07-22
 
-- Posts: 15
+- Posts: 18
 
+- [09:47 UTC - Congratulations to Congressman Andy Biggs, who will be a GREAT Governor. Must now defeat a...](116962993377590525/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116962993377590525
+  - Congratulations to Congressman Andy Biggs, who will be a GREAT Governor. Must now defeat a Radical Left Dumocrat, one of the worst governors in the Country, Katie Hobbs, who is wea...
+- [09:35 UTC - Thank you to Scott Presler for your hard work on Voter Registration. A BIG NIGHT FOR MAGA ...](116962948048564200/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116962948048564200
+  - Thank you to Scott Presler for your hard work on Voter Registration. A BIG NIGHT FOR MAGA IN ARIZONA. ALL WINS!!!
+- [09:22 UTC - Roma Daravi, former White House Deputy Comms Director, was great on FoxNews last night, as...](116962896633563415/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116962896633563415
+  - Roma Daravi, former White House Deputy Comms Director, was great on FoxNews last night, as was Tiffany Brannon. Trace Gallagher is an amazing News Anchor, one of the very best! Get...
 - [03:47 UTC - Truth Social post 116961577008925127](116961577008925127/)
   - Source: https://truthsocial.com/@realDonaldTrump/116961577008925127
   - _No text content captured._

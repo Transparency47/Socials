@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=VUq9Fz3e4fY: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=VUq9Fz3e4fY! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=VUq9Fz3e4fY&ei=Um9gaua-A9nAy_sP277-gAI&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1784730050&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=D0571CE1891097507972759CF7C8852F33097A66.78BDE7FB3EA6B8838751834910FF865EEF6872D1&key=yt8&kind=asr&lang=en&variant=gemini&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=VUq9Fz3e4fY: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=VUq9Fz3e4fY! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=VUq9Fz3e4fY&ei=sJNgaqv0B-Ddy_sPuuDqyQI&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1784739360&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=D087F50D874D84E1875D3521AD718DD613ACFEA6.809A8FDFBD5B4E4030B612ACF6D74EE0E94230FF&key=yt8&kind=asr&lang=en&variant=gemini&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -126547,6 +126547,39 @@
       "published": "2026-07-22T03:47:12.063000+00:00",
       "title": "Truth Social post 116961577008925127",
       "url": "https://truthsocial.com/@realDonaldTrump/116961577008925127"
+    },
+    "truthsocial:realdonaldtrump:116962896633563415": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-22T09:55:47.201759+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/22/116962896633563415",
+      "platform": "truthsocial",
+      "post_id": "116962896633563415",
+      "published": "2026-07-22T09:22:47.866000+00:00",
+      "title": "Roma Daravi, former White House Deputy Comms Director, was great on FoxNews last night, as...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116962896633563415"
+    },
+    "truthsocial:realdonaldtrump:116962948048564200": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-22T09:55:47.201385+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/22/116962948048564200",
+      "platform": "truthsocial",
+      "post_id": "116962948048564200",
+      "published": "2026-07-22T09:35:52.401000+00:00",
+      "title": "Thank you to Scott Presler for your hard work on Voter Registration. A BIG NIGHT FOR MAGA ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116962948048564200"
+    },
+    "truthsocial:realdonaldtrump:116962993377590525": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-22T09:55:47.201061+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/22/116962993377590525",
+      "platform": "truthsocial",
+      "post_id": "116962993377590525",
+      "published": "2026-07-22T09:47:24.067000+00:00",
+      "title": "Congratulations to Congressman Andy Biggs, who will be a GREAT Governor. Must now defeat a...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116962993377590525"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
