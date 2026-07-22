@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-07-22
 
-- Posts: 27
+- Posts: 30
 
+- [12:56 UTC - From this point forward, any time the Islamic Republic of Iran shoots at a ship in the Str...](116963738416841583/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116963738416841583
+  - From this point forward, any time the Islamic Republic of Iran shoots at a ship in the Strait of Hormuz, whether it be by Missile, Rocket, Drone, or any other device or weapon, the...
+- [12:34 UTC - Heading to Dover Air Force Base to HONOR OUR HEROES! President DJT](116963651250041725/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116963651250041725
+  - Heading to Dover Air Force Base to HONOR OUR HEROES! President DJT
+- [12:31 UTC - MAGA CANDIDATES WON EVERYTHING LAST NIGHT IN ARIZONA, A COMPLETE SWEEP!!! I WON ARIZONA 18...](116963640178728533/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116963640178728533
+  - MAGA CANDIDATES WON EVERYTHING LAST NIGHT IN ARIZONA, A COMPLETE SWEEP!!! I WON ARIZONA 18 MONTHS AGO. THE DUMOCRATS ARE DUMBFOUNDED. AFTER DECADES, ARIZONA IS BECOMING A REPUBLICA...
 - [10:01 UTC - A Crooked Election System!!! SAVE AMERICA!!! NJ governor forced to admit hundreds of forei...](116963046966861979/)
   - Source: https://truthsocial.com/@realDonaldTrump/116963046966861979
   - A Crooked Election System!!! SAVE AMERICA!!! NJ governor forced to admit hundreds of foreigners voted in elections after Dems claimed no problem: [https:// justthenews.com/politics...
