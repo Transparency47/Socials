@@ -1,0 +1,1720 @@
+<!-- source: https://www.youtube.com/watch?v=ZgYleK0fJVs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ZgYleK0fJVs -->
+<!-- date_published: 2026-07-22T20:56:25+00:00 -->
+<!-- date_accessed: 2026-07-22T22:56:07.771967+00:00 -->
+
+# Transcript: President Trump Delivers Remarks, Jul. 22, 2026
+
+- [00:04.480] and 47th President of the United States,
+- [00:07.359] Donald J. Trump. And I'm proud to be an
+- [00:10.960] American where at least I know I'm free.
+- [00:15.679] And I won't forget the men who died, who
+- [00:19.439] gave that life to me. And I gladly stand
+- [00:23.600] up next to you and defend her still
+- [00:27.359] today.
+- [00:28.880] Cuz there ain't no doubt I love this
+- [00:31.760] land.
+- [00:34.079] God bless the USA.
+- [00:49.039] From the lakes of Minnesota
+- [00:52.320] to the hills of Tennessee,
+- [00:56.000] across the plains of Texas, from sea to
+- [01:00.160] shining sea,
+- [01:02.480] from Detroit down to Houston and New
+- [01:06.479] York to LA, where there's pride in every
+- [01:11.040] American heart. And it's time we stand
+- [01:14.080] and say,
+- [01:19.439] proud to be an American where it is
+- [01:23.200] stand
+- [01:26.720] forget the men who died who gave that
+- [01:30.240] life to me and I had to stand up next to
+- [01:34.960] you and defend her still today.
+- [01:38.960] Cuz there ain't no doubt I love this
+- [01:41.759] land.
+- [01:44.000] God the USA
+- [02:04.640] to me and I stand
+- [02:09.360] next to you and still day.
+- [02:14.080] But there ain't no doubt I got this
+- [02:20.640] for you.
+- [02:34.560] USA.
+- [02:44.640] >> Well, thank you very much everybody.
+- [02:46.319] It's a special place and I am here to
+- [02:49.680] announce my candacey.
+- [03:01.519] Come on. I'm only
+- [03:04.560] now. Boy, I tell you what a what a
+- [03:06.319] group. We have thousands of people
+- [03:07.680] outside on a weekday. The weather's
+- [03:11.040] nice. But we're in Marietta. We're in
+- [03:14.959] Atlanta right by it. And I just want to
+- [03:17.519] thank everybody. Those are places, you
+- [03:19.840] know, we had a tremendous victory here.
+- [03:22.080] And it was a big, beautiful victory. We
+- [03:24.319] won by a lot. And we have some great
+- [03:26.640] candidates running. They got to win by a
+- [03:28.400] lot otherwise we're going communist. I
+- [03:30.319] don't think anybody wants that. We're
+- [03:31.760] not going to do that. But I'm thrilled
+- [03:34.480] to be back in the great state of Georgia
+- [03:36.640] with thousands of proud, hardworking
+- [03:38.640] American patriots. That's what you are.
+- [03:41.120] And with your help in 2024, we earned
+- [03:43.519] more votes than any candidate in Georgia
+- [03:46.080] history. There's never been anything
+- [03:47.760] like it.
+- [03:51.599] And when I say that, I have to be
+- [03:53.120] careful because look at all the fake
+- [03:54.400] news back there. They will correct me.
+- [03:57.360] They will say, "He said he earned more.
+- [04:00.080] If I didn't earn, if I was two votes
+- [04:02.319] short, they would say, "He's lying. He's
+- [04:05.120] lying. They are sick individuals.
+- [04:07.599] They're the fake news." But I have to be
+- [04:10.000] careful. No, we weren't. We had more
+- [04:11.840] votes than any candidate in the history
+- [04:13.840] of this great state. And I'm very proud.
+- [04:16.400] I love Georgia. I've always loved it.
+- [04:21.040] And every day since I've been fighting
+- [04:23.680] for the people of Georgia like no
+- [04:25.840] president has ever fought before. And
+- [04:27.919] you're doing well, too. We're going to
+- [04:29.440] keep it that way.
+- [04:31.919] And 18 months ago, you were in trouble.
+- [04:34.240] Our country was in trouble. Frankly, it
+- [04:36.639] was a catastrophe what was happening.
+- [04:39.120] Sleepy Joe Biden and the radical left
+- [04:41.680] Democrats. They're Democrats. DUM
+- [04:44.880] Democrats created the worst inflation in
+- [04:48.080] 48 years. Scott Bessant, was it the
+- [04:50.880] worst inflation in 48? Now, if Scott
+- [04:53.600] doesn't have credibility, nobody does.
+- [04:55.600] Okay? He said it's the worst. And it
+- [04:58.080] was. It was actually I think it was
+- [04:59.440] beyond 48 years but 48 years is good
+- [05:01.680] enough.
+- [05:03.360] Wide open borders with millions of
+- [05:05.520] people even from the world's worst
+- [05:07.520] prisons from all over the world. They
+- [05:09.360] were pouring into our country all over
+- [05:12.000] the globe they came prisons and gang
+- [05:14.880] members, drug dealers, child predators
+- [05:17.360] and 11,888
+- [05:21.440] murderers. Many of whom committed more
+- [05:24.000] than one murder. More than 50% committed
+- [05:27.039] more than one murder. We had transgender
+- [05:30.479] for everybody, men and women sports came
+- [05:33.759] ravaging through our cities
+- [05:37.840] and the whole world was laughing at us.
+- [05:40.080] We were a joke all over the world. But
+- [05:41.919] not anymore. They're not laughing.
+- [05:43.520] They're not laughing.
+- [05:46.800] Right, Jackson?
+- [05:49.199] They're not laughing anymore, Jackson.
+- [05:52.400] Huh?
+- [05:54.000] going to be your next governor right
+- [05:55.520] here.
+- [06:00.160] >> Two years ago,
+- [06:02.479] our country was dead. And now we're the
+- [06:05.199] hottest country anywhere in the world.
+- [06:06.880] Respected by everybody all over the
+- [06:08.639] world. The hottest.
+- [06:12.240] And we're respected like I say we
+- [06:15.440] respected maybe like never before. When
+- [06:17.919] I took office, we inherited the worst
+- [06:19.919] border in US history. It was an open
+- [06:22.800] wound. It was an open civ. We quickly
+- [06:26.479] turned it into the most secure border in
+- [06:28.639] the history of our country within two
+- [06:30.560] months.
+- [06:34.400] And numbers were just released
+- [06:37.280] by the Democrats that in the past 14
+- [06:39.840] months a historic record of zero illegal
+- [06:42.800] aliens have been admitted into the
+- [06:44.800] United States.
+- [06:50.880] And now our crime numbers are among the
+- [06:52.880] lowest they've ever been. It's
+- [06:54.720] plummeting downward. Nobody's ever seen
+- [06:57.199] anything like it. Nationwide crime has
+- [06:59.360] been the lowest numbers that we've had
+- [07:01.039] in many, many decades. Last year, we
+- [07:03.680] achieved the largest drop in the murder
+- [07:06.319] rate ever recorded to the lowest level
+- [07:08.800] in 125 years. That's since 1900. That's
+- [07:12.639] before my father was born. my father
+- [07:17.919] before my father was born. Think of it
+- [07:20.080] from the year 1900 lowest murder rate we
+- [07:23.360] and that's despite the fact that we had
+- [07:25.680] millions of people poured into our
+- [07:27.360] country who were in many cases very very
+- [07:30.240] dangerous people. We cut the flow of
+- [07:32.880] fentinol across our border by 67%.
+- [07:44.160] and drugs coming in by ocean, sea, by
+- [07:47.440] water, uh, was cut 97%.
+- [07:51.280] We're trying to figure out who the 3%
+- [07:53.120] are because they are among the bravest
+- [07:54.720] people anywhere in the world. You've
+- [07:56.479] seen that
+- [07:58.960] they are the bravest people in history.
+- [08:00.800] I believe
+- [08:02.639] we're making the largest ever investment
+- [08:04.800] in the United States armed forces. And
+- [08:07.440] we've got the strongest and most
+- [08:08.960] powerful military anywhere in the world
+- [08:10.879] by far. There's nobody close.
+- [08:16.560] And I built it during my first term. I
+- [08:18.800] built our military. And as you know,
+- [08:21.360] they stupidly gave a lot of it away. But
+- [08:24.479] actually, it was a lot, but it was small
+- [08:26.639] compared to what we built. But they gave
+- [08:29.039] a lot of it away to the Taliban, to
+- [08:31.680] Afghanistan. They gave it away. They
+- [08:33.440] just take it. We're leaving. Let's leave
+- [08:35.839] brand new machines behind. Let's leave
+- [08:38.479] airplanes behind. I said to him, "Well,
+- [08:40.880] what did you just fly it out and we'll
+- [08:42.800] take it back or we could even fly it
+- [08:44.480] back to the United States if you'd
+- [08:46.080] like." Sir, I think it's stupid to leave
+- [08:48.160] it.
+- [08:49.920] Brand new planes. It was so sad. I saw
+- [08:52.000] what was happening. What a what a
+- [08:55.120] disgusting thing took place. But we then
+- [08:58.480] uh as you know we won Venezuela which is
+- [09:01.600] now working with us to produce millions
+- [09:04.240] and millions of barrels of oil. We're
+- [09:06.880] getting along great with them one day
+- [09:10.560] and we've already paid for that
+- [09:12.480] operation many many times over. We're
+- [09:14.959] taking tremendous amounts of oil and
+- [09:16.800] they're taking tremendous amounts of
+- [09:18.320] oil. It's a partnership in a sense.
+- [09:20.480] They're doing a great job. We're working
+- [09:22.160] together and uh millions of barrels of
+- [09:25.680] oil is going to Houston and Louisiana
+- [09:29.839] coming to you indirectly after it's
+- [09:31.600] refined. They're refining it there. But
+- [09:34.399] millions and millions of barrels of oil
+- [09:36.800] and also Venezuela is doing better than
+- [09:39.519] they've ever done before, too. The big
+- [09:41.120] oil companies are going in and they're
+- [09:43.839] signing up. We have Chris Wright working
+- [09:46.160] on it. Doug Bergam working on it. Scott
+- [09:49.040] is working on them. And it's been
+- [09:51.040] incredible actually what uh it's got
+- [09:53.200] serious oil. In fact, if you combine us
+- [09:56.000] and Venezuela, we have about 62% of the
+- [09:58.640] world's oil market. So, we don't need
+- [10:02.560] straits. We don't need anything.
+- [10:05.519] We don't need the harmon. But we do it
+- [10:07.600] because we have to do it because we
+- [10:09.040] cannot let Iran have a nuclear weapon.
+- [10:11.440] It's very interesting.
+- [10:19.120] So, we're likewise winning in the
+- [10:22.959] Islamic Republic of Iran, and we're
+- [10:25.519] ensuring that they will never ever be
+- [10:28.320] able to do to us what they've done to so
+- [10:30.959] many. You know, they've killed 52,000
+- [10:33.680] plus protesters. People that were
+- [10:36.480] protesting have been killed. 52,000 over
+- [10:39.600] the last four months. Nobody wants to
+- [10:41.200] talk about the fake news back there.
+- [10:42.800] Never mentions that.
+- [10:44.800] And I just left Dover Air Force Base,
+- [10:47.120] which is an incredible place, but
+- [10:49.360] oftentimes very sad because that's when
+- [10:52.160] they bring the bodies of our great
+- [10:55.120] heroes, our great patriots, warriors.
+- [10:58.079] They bring them back to Dover. And I've
+- [11:01.760] been there many times before. This was
+- [11:03.839] in particular something very sad.
+- [11:06.640] I attended the dignified transfer
+- [11:08.959] ceremony for four great US service
+- [11:11.760] members killed in the conflict with Iran
+- [11:15.360] as they returned to American soil at
+- [11:19.279] Dover. And one of the families happened
+- [11:22.000] to be traveling to Georgia. Beautiful
+- [11:24.160] family, beautiful wife and husband and
+- [11:28.320] uh brother-in-law.
+- [11:30.399] And I said, "I'm going to Georgia, too.
+- [11:33.200] Where are you going?" just well after
+- [11:35.120] this sir they lost their beautiful son
+- [11:38.079] we're going to Georgia said so if you
+- [11:39.839] want I'll give you a ride on Air Force
+- [11:41.680] One and they said wow
+- [11:45.360] wow
+- [11:55.120] so today
+- [11:57.120] I then said they're on Air Force One and
+- [11:59.279] it's quite nice I must say
+- [12:02.000] and they said wow this is something.
+- [12:04.240] Thank you so much. But they're
+- [12:05.440] heartbroken, you know. They're
+- [12:06.480] heartbroken, but they couldn't believe
+- [12:08.399] it. And they live very close to here.
+- [12:09.920] They live minutes away. And uh we're
+- [12:14.079] here today and I said to them
+- [12:15.920] celebrating the memory of their
+- [12:17.760] beautiful This was a beautiful son. You
+- [12:20.240] know, I read uh when I go to do I read
+- [12:23.680] charts on all of the young people and
+- [12:27.360] some are unbelievable. somewhere a
+- [12:29.200] little bit, you know, they got a little
+- [12:30.320] bit of a little couple of little bad
+- [12:32.720] things put in. This is a son who was
+- [12:34.480] like a flawless, perfect person,
+- [12:37.600] beautiful, beautiful son, handsome in
+- [12:41.040] every way, brilliant, respected by
+- [12:44.079] everybody. This his sheet read so
+- [12:46.639] beautifully. And I told them that their
+- [12:49.120] beloved son and it's uh his name was
+- [12:52.880] Lieutenant
+- [12:54.399] Tyler Fihan and he was a a person that
+- [12:58.480] was going all the way. He was going to
+- [13:00.000] be a general. He would have been a
+- [13:01.600] general very quickly. He was heading in
+- [13:03.839] that path. But I just want to thank
+- [13:05.360] Tyler's mother Sherry, his father
+- [13:08.000] Steven, and his uncle David. Great
+- [13:10.160] people. But I got to know him a little
+- [13:11.440] bit on the plane and standing there
+- [13:13.760] watching this site which is oh it's very
+- [13:17.600] very tough to very tough to watch to be
+- [13:19.680] honest with you. Very tough. I think
+- [13:20.880] it's the toughest thing I do of anything
+- [13:22.399] I do. I do all this stuff but I think
+- [13:24.160] it's the toughest thing I do. But to
+- [13:26.480] Sherry and Stephen and David we will
+- [13:28.399] carry Tyler's memory in our hearts
+- [13:30.639] forever. And I just want to thank you.
+- [13:32.079] It's an honor to have you here today.
+- [13:34.959] Please.
+- [13:59.920] Woohoo.
+- [14:21.279] Thank you very much. You see the way
+- [14:23.519] everybody feels. Your neighborhood. This
+- [14:25.279] is your neighborhood. Can you believe
+- [14:26.560] it? You see the way they feel.
+- [14:32.480] Thank you. Thank you, Sher.
+- [14:36.000] He's looking down right here. He's so
+- [14:37.760] proud right now. So, together, we're
+- [14:41.120] making our country safer and stronger
+- [14:43.199] and far more successful than it's ever
+- [14:45.360] been before. And that's happening before
+- [14:46.880] your very eyes. That's why I call it the
+- [14:49.360] golden age. This is the golden age of
+- [14:51.120] America. We're building more plants than
+- [14:53.600] at any time in the history of our
+- [14:55.120] country. And not just AI and all of the
+- [14:58.079] different things you read about things
+- [14:59.760] like auto plants, you know, the
+- [15:01.199] oldfashioned way. Uh Toyota just
+- [15:04.560] announced they're leaving Mexico and
+- [15:07.040] they're coming in. They're going to be
+- [15:08.079] building the largest plant anywhere in
+- [15:09.760] the world. They're all coming back.
+- [15:13.440] They're all leaving Canada. They're
+- [15:14.959] leaving Mexico. They're coming in from
+- [15:16.800] Germany and Japan and South Korea.
+- [15:18.720] They're coming in from all over. And uh
+- [15:21.760] people that have been doing this, people
+- [15:23.360] like Scott, others that have been doing
+- [15:25.839] this for a long time, they've never seen
+- [15:27.360] anything like it. I don't think you've
+- [15:28.639] ever seen anything like it. McGee, have
+- [15:30.399] you? You haven't seen anything. He's
+- [15:32.639] doing such a great job. In four long
+- [15:35.279] years of the sleepy Joe Biden
+- [15:37.279] administration, they got less than $1
+- [15:39.839] trillion of new investment in our
+- [15:41.839] country. In four years, much less than
+- [15:43.680] one trillion in less than two years.
+- [15:47.199] Much less than two years, actually. In
+- [15:49.040] fact, at the end of the first year, but
+- [15:50.720] less than two years, in my
+- [15:52.800] administration, we've secured more than
+- [15:56.079] 19.2 trillion dollars in new investment
+- [15:58.560] from all over the world.
+- [16:05.519] So, think of that. So, in one year, they
+- [16:08.480] did much less than1 trillion dollars of
+- [16:10.800] investment. We were losing this country,
+- [16:13.279] I'll tell you. and the welfare. You see
+- [16:15.920] all the theft that's going on, guys
+- [16:17.519] stealing a hundred million dollars. Some
+- [16:19.759] guy from the street steals a hundred
+- [16:23.279] million dollars. It's horrible. The
+- [16:26.079] welfare was going through the roof. The
+- [16:27.680] costs were going through the roof. It
+- [16:29.680] was a disaster taking place. But think
+- [16:32.000] of it. So they did less than1 trillion
+- [16:35.199] in one full year. In four years they did
+- [16:38.399] less. Think of this. In four years they
+- [16:41.360] did less than $1 trillion. We did 19.2
+- [16:46.079] in 15 months. Think of that.
+- [16:49.440] Think
+- [16:49.680] >> I mean
+- [16:56.240] the pharmaceutical company, we're
+- [16:58.240] bringing our food. We learned that
+- [16:59.839] through co we're bringing the
+- [17:01.040] pharmaceuticals back. But the big
+- [17:03.519] pharmaceutical company UCB is investing
+- [17:06.799] $2 billion to build its first ever
+- [17:08.880] American manufacturing plant right here
+- [17:11.120] in Gwynette, Georgia.
+- [17:13.199] Winnette,
+- [17:18.559] look at the front row Joe's. I love
+- [17:20.480] these people.
+- [17:22.400] >> I love these people.
+- [17:28.720] I think they're about 283. I don't know
+- [17:31.360] what the hell they do. I think they make
+- [17:32.799] a lot of money, too. I'm hearing they're
+- [17:34.400] very rich. They follow us. It's a rock
+- [17:37.280] concert, right? You have a good time,
+- [17:38.799] right?
+- [17:39.760] >> Thank you. They've been with me right
+- [17:41.600] from the beginning. It's How many have
+- [17:44.080] you done so far, do you think?
+- [17:47.440] >> Four, five, six, close to a thousand. It
+- [17:50.960] might be. You think he's kidding? It
+- [17:53.039] might be. Well, we love you. Thank you
+- [17:55.200] very much. We love you guys. Thank you.
+- [18:01.679] We have groups. We have a group from I
+- [18:03.440] don't know if they're here, but we have
+- [18:05.120] a group from North Carolina. Women,
+- [18:07.039] beautiful women. They follow us and
+- [18:09.120] they're at 218. I think 219. They come
+- [18:13.760] and I always say, "What the hell are
+- [18:15.919] your husbands saying about this? This is
+- [18:17.679] crazy. They're these beautiful women. I
+- [18:20.559] think they're sort of a wealthy family.
+- [18:22.240] I don't know what the hell's going on
+- [18:23.679] with them." But, you know, like the
+- [18:26.080] front row shows, it's We have a lot of
+- [18:27.840] those groups. They They're just great.
+- [18:30.000] They've been with us right from the
+- [18:31.280] beginning. And you know why they're with
+- [18:32.480] us? Because they love our country.
+- [18:33.760] That's why they're with us. It's really
+- [18:35.120] why they're with us.
+- [18:37.919] So, Japan is investing $600 million and
+- [18:44.799] we're cutting edge diamond processing
+- [18:46.960] facility as you probably read this
+- [18:49.280] morning in your state. 600 million.
+- [18:53.120] Yamaha Motors is building its brand new
+- [18:55.280] US headquarters in Kennesaw.
+- [19:03.280] And more money is being invested in the
+- [19:06.160] United States right now than at any time
+- [19:09.520] in the history of our country. And
+- [19:11.679] Americans are working today, more so
+- [19:14.559] than ever before. We have more jobs
+- [19:16.640] today than we've ever had. And it's not
+- [19:19.280] even close. More people are working now
+- [19:22.080] than at any time in the history of our
+- [19:24.160] country.
+- [19:34.160] And the stock market has set and that's
+- [19:36.320] with this skirmish we have going on. I
+- [19:38.720] call it a skirmish.
+- [19:40.720] This is with this skirmish we have with
+- [19:42.640] the Islamic Republic of Iran. And I call
+- [19:46.720] it that because let me tell you, they're
+- [19:49.039] getting hit so hard and they want to
+- [19:51.360] make a deal. But I say they're not ready
+- [19:54.400] to make a deal
+- [19:56.960] because every time they make a deal,
+- [19:58.480] they want to change it and everything.
+- [20:00.320] They're not ready. They'll be ready very
+- [20:02.000] soon.
+- [20:04.080] And this is despite this. It's going on.
+- [20:06.160] The stock market has hit 73 all-time
+- [20:09.679] highs since the election. Think of that.
+- [20:13.679] And the typical Americans 401k
+- [20:17.120] is up by $34,000, setting records day
+- [20:20.480] after day. It's up by
+- [20:22.880] numbers that have never been seen
+- [20:24.400] before. So your 401ks, they always say,
+- [20:27.039] "Oh, the stock sock stock market is very
+- [20:29.600] important." But I have people coming up
+- [20:32.000] to me that have 401ks. They said, "You
+- [20:34.320] know, I was a disaster. My family
+- [20:36.640] wouldn't talk to me. They thought I was
+- [20:38.080] a total loser." And now I'm like, uh,
+- [20:41.679] the one guy said, "I feel like Warren
+- [20:43.200] Buffett."
+- [20:45.440] No, the markets are right through the
+- [20:47.520] roof. And uh, it's a beautiful thing to
+- [20:50.240] watch. Frankly, it's beautiful. But
+- [20:52.000] what's brought families together. I
+- [20:54.640] mean, I I told the story about a
+- [20:56.320] policeman in New York City. He said, "My
+- [20:59.120] wife was really down on me because the
+- [21:01.120] 401k was a disaster. It wasn't moving.
+- [21:03.520] And you get elected and it's they think
+- [21:05.919] I'm she thinks I'm the most brilliant
+- [21:07.679] financial mind in the world. Now, she
+- [21:10.159] loves me much more than she did."
+- [21:13.600] She's close, but you should never love
+- [21:15.520] for that reason. Remember that, please.
+- [21:18.480] And while the stock market is
+- [21:20.159] skyrocketing way up, inflation is way
+- [21:22.960] down. We're coming way down.
+- [21:25.840] And last week,
+- [21:28.559] it was announced just last week that
+- [21:30.960] inflation dropped by the largest amount
+- [21:33.039] in more than six years because we're
+- [21:35.280] doing it right. We're running the
+- [21:36.880] country properly.
+- [21:39.520] And they tried to blame high prices on
+- [21:42.640] me. So think of it. When I inherited
+- [21:45.360] this thing on January 20th, we had the
+- [21:49.600] highest inflation in many many years, 48
+- [21:54.159] years they say. I say maybe ever. This
+- [21:57.440] is what I inherited. And when I had
+- [22:00.480] nothing, I had nothing to do with it. I
+- [22:02.159] I walk into office, I have a press
+- [22:03.919] conference first or second day, and
+- [22:05.840] they're screaming at me, what are you
+- [22:07.280] going to do about high prices?
+- [22:09.679] Right? What are you going to do? I said,
+- [22:11.120] I just got here. What What are we
+- [22:12.559] talking about? Tell me eggs. Eggs have
+- [22:15.200] gone up four times. Four times? I said,
+- [22:17.919] I just got here. Give me a break.
+- [22:21.919] They did. They hit me with the eggs. And
+- [22:23.840] you remember that,
+- [22:26.000] Kelly? You remember I got hit with the
+- [22:27.840] eggs.
+- [22:30.000] First day, first press conference. Nice
+- [22:32.559] friendly press. You know, they treat me
+- [22:34.080] so nicely.
+- [22:36.000] What are you going to do about the
+- [22:37.760] prices? And they said, they used the
+- [22:40.480] word, first time I heard it, it was a
+- [22:42.159] word, you know, made up by the
+- [22:43.440] Democrats, affordability.
+- [22:46.320] They said, "Affordability."
+- [22:48.720] I said, "I've been here one day. Don't
+- [22:51.360] worry, I'll take care of it." And we're
+- [22:52.799] taking care of it. You know, we're
+- [22:54.240] taking good care of it. They had the
+- [22:57.120] highest prices.
+- [23:00.400] They had the highest prices. In fact,
+- [23:02.480] with the eggs, you know, we have an
+- [23:03.919] Easter egg hunt like a few months after
+- [23:06.159] this, and they said, "Don't order eggs,
+- [23:08.080] sir, because they're so expensive. Use
+- [23:10.880] plastic eggs." They wanted me to give
+- [23:12.400] the kids. I said, "Nope, we're going to
+- [23:13.840] get it done." We did a great job. Our
+- [23:16.559] Secretary of Agriculture did a great
+- [23:18.559] job. And we got the price now of eggs is
+- [23:20.640] lower than it was when we started,
+- [23:22.320] right?
+- [23:25.360] And many other things, too. And oil will
+- [23:28.000] be coming. It's going to be tumbling
+- [23:29.679] down. It was three weeks ago. They
+- [23:31.679] thought we had a deal. I said, "I don't
+- [23:33.280] think we have a deal with these guys.
+- [23:34.480] They break every deal they make." But I
+- [23:36.240] said, you know, but people thought the
+- [23:37.760] geniuses on Wall Street, they came down,
+- [23:39.600] really down and goes back up a little
+- [23:42.320] bit, but it's going to come down maybe
+- [23:45.039] lower than when we even started, but
+- [23:46.960] just give me a little time. I always
+- [23:48.480] say, give me a little I said to the
+- [23:49.600] farmers, give me a little time and look
+- [23:50.960] how we're doing with the farmers, what's
+- [23:53.280] going on with the farms and everything.
+- [23:55.440] This country is rocking and rolling.
+- [24:01.440] So every day we're fighting to put more
+- [24:03.440] money back in the pockets of the
+- [24:05.520] hardworking American families. And
+- [24:08.320] that's why with the help of our
+- [24:10.400] incredible Republican majorities in
+- [24:12.720] Congress, we've done so much. I proudly
+- [24:14.720] signed the great big beautiful bill
+- [24:17.200] delivering the largest tax cuts in
+- [24:19.279] American history.
+- [24:24.799] Largest in American history.
+- [24:27.760] And we did big ones first. You know, we
+- [24:29.679] had the be best economy in history in my
+- [24:32.240] first term. A lot of people don't
+- [24:34.080] because we had a COVID period. Went all
+- [24:35.840] over the world and we did a great job
+- [24:37.919] where they got no credit for it. We did
+- [24:39.600] Operation Warp Speed and I'll tell you,
+- [24:42.080] we did a great job, but we got very
+- [24:43.520] little credit for it. We should have
+- [24:44.640] been given big credit, but we got credit
+- [24:46.240] for everything else. And we had the best
+- [24:48.799] economy, but this this economy is ready
+- [24:51.039] to blow everything away ever of any
+- [24:53.200] country. There's never been anything
+- [24:54.400] like what's happening in the United
+- [24:56.400] States of America right now.
+- [25:02.960] So, I just want you to remember that if
+- [25:04.720] you're paying a little bit more, a lot
+- [25:06.880] of it's come down now. We got it coming
+- [25:08.960] down very rapidly. Actually, look at the
+- [25:11.520] number just released. But, uh, it it
+- [25:15.039] really would, you know, we inherited
+- [25:16.559] something from Biden and we're giving it
+- [25:19.039] back to you thousands and thousands of
+- [25:21.039] dollars each family. We gave it to you.
+- [25:23.279] also remember uh forgetting about prices
+- [25:26.159] and I don't want to forget about it and
+- [25:27.679] I would never leave a sentence like that
+- [25:29.200] because they'll say he said forget about
+- [25:30.960] prices.
+- [25:32.559] I said despite anything you see we gave
+- [25:36.159] you no tax on tips, no tax on overtime,
+- [25:38.880] no tax on social security for our great
+- [25:41.200] seniors.
+- [25:47.120] We gave you something that nobody ever
+- [25:49.279] thought of. This was my idea. I said,
+- [25:51.279] uh, give people a deduction if they buy
+- [25:53.600] a car only that's made in America. Give
+- [25:55.840] them a deduction. They go out, borrow
+- [25:57.360] money, they're out allowed to get a
+- [25:59.440] deduction.
+- [26:01.520] But this past filing season, 130,000
+- [26:04.960] tipped workers right here in Georgia
+- [26:06.720] saved an average of more than $7,000 on
+- [26:09.840] their taxes. And that's because of no
+- [26:12.799] tax on tips.
+- [26:18.480] You know, we're building a tremendous
+- [26:20.000] military facility at the White House.
+- [26:21.760] It's a ballroom, but it's also a big
+- [26:23.600] military facility, a drone port on top,
+- [26:26.320] and tremendous things underneath. And
+- [26:29.039] they've been working hard. A lot of
+- [26:31.200] overtime. They work till 11,000, 11:00
+- [26:33.919] in the evening, almost every evening,
+- [26:35.840] 11, 11:30, they get there at 6 o'clock
+- [26:38.559] in the morning. They're really working.
+- [26:39.919] And the other day, I went over to them
+- [26:41.679] and I said, "Gather together." together
+- [26:43.760] and I had, you know, hundreds of
+- [26:45.039] workers. Very big thing. It is
+- [26:47.679] beautiful. It's going to be incredible.
+- [26:49.360] It's an incredible project. It's a
+- [26:51.600] contribution to the United States of
+- [26:53.440] America by very wealthy people, very
+- [26:56.559] wealthy companies that cost this
+- [26:59.679] country. But what happened is I said to
+- [27:01.760] all the workers, it was a Sunday and
+- [27:03.360] they were working on a Sunday. Maybe
+- [27:04.880] they shouldn't. Maybe they should be in
+- [27:06.240] church. I don't know. I'll get them in
+- [27:07.520] trouble. But they were working on
+- [27:09.520] Sunday. And I said, "Remember this. No
+- [27:13.200] tax on overtime. All the overtime
+- [27:15.200] they're making. And they gave me a big
+- [27:17.520] cheer. No tax on overtime.
+- [27:23.840] As an example, 700,000 Georgia workers
+- [27:26.720] saved an average of over $3,000 thanks
+- [27:29.520] to no tax on overtime. And 500,000
+- [27:33.039] Georgia seniors paid zero dollars on
+- [27:35.919] their Social Security benefits thanks to
+- [27:38.080] no tax on Social Security.
+- [27:44.720] But perhaps most consequential of all is
+- [27:47.279] the provision that the great big
+- [27:49.120] beautiful bill that we're celebrating
+- [27:51.200] today. It's something that's beautiful.
+- [27:53.440] It's beautiful because it takes care of
+- [27:54.799] our youth. It's called the Trump
+- [27:56.000] Accounts. And it's hot as a pistol.
+- [28:00.720] It's hot as a pistol. And under this
+- [28:03.600] groundbreaking new policy, every
+- [28:05.279] American child gets a tax-free
+- [28:07.520] investment savings account that can grow
+- [28:10.240] over the course of their childhood and
+- [28:12.159] be used for them when they reach 18 or
+- [28:14.720] 21. Their parents, grandparents,
+- [28:17.840] employers, and loved ones can contribute
+- [28:20.159] up to $5,000 a year. And with the modest
+- [28:23.760] contribution, these accounts will reach
+- [28:26.480] hundreds of thousands of dollars for
+- [28:28.399] these young people. By the time they get
+- [28:30.640] to, let's say, 18, let's say 21, but by
+- [28:34.240] the time they're just young adults, they
+- [28:36.960] could be worth hundreds of thousands of
+- [28:38.960] dollars. Most likely will be. And for
+- [28:41.440] decades, Washington politicians gave our
+- [28:43.840] children absolutely nothing but debt.
+- [28:46.559] But the Trump accounts we're finally
+- [28:49.039] seeing and ensuring that every young
+- [28:51.039] American gets a great start in life and
+- [28:53.679] a really fair shot at the American
+- [28:55.760] dream, which is what we all want. They
+- [28:57.520] all aspire to that.
+- [29:06.480] And under the system, every newborn
+- [29:08.399] child gets $1,000 deposited in their
+- [29:12.480] Trump account at birth. Think of that.
+- [29:14.320] from the United States government. Think
+- [29:17.520] of that. The government
+- [29:20.240] is finally giving money back to our
+- [29:22.320] children.
+- [29:25.039] You think that was easy to get from the
+- [29:26.799] Democrats. Not easy. Actually, they
+- [29:28.480] didn't vote for it. They didn't I don't
+- [29:29.919] think we got one vote. We got it a
+- [29:31.840] unanimous Republican vote. We didn't get
+- [29:33.840] any Democrat votes. I don't think. But
+- [29:36.399] they they have a hard time justifying
+- [29:38.480] all of the things that they've done. But
+- [29:40.960] the government gives them a thousand
+- [29:42.720] dollars at birth and from there it just
+- [29:45.520] uh goes up and up and up and lots of
+- [29:48.240] people like the employers can put money
+- [29:50.000] into their children's accounts of the
+- [29:52.480] employees. It's a beautiful thing and
+- [29:54.159] I'm seeing it and again over 7 million
+- [29:56.720] and it really just started I would say
+- [29:58.960] Scott a few weeks ago because it was all
+- [30:02.240] all of the very you know complex legal
+- [30:06.000] governmental things were worked out
+- [30:07.840] about 34 weeks ago and we have over 7
+- [30:10.559] million people already children already
+- [30:13.039] so
+- [30:14.559] that's great
+- [30:17.200] and
+- [30:18.880] I want to just tell you that generous
+- [30:20.799] individuals like Michael and Susan in
+- [30:23.200] Dell, Brad Gersonner, and so many others
+- [30:26.480] have donated billions of dollars to fund
+- [30:29.360] Trump accounts for millions of children.
+- [30:31.360] Some people are going to take and take
+- [30:33.840] the children from states, the entire
+- [30:36.720] state, like Gersonner is looking at the
+- [30:38.960] state of Indiana where he contributes
+- [30:41.919] the money for these are wealthy people.
+- [30:44.240] They've made a lot of money. They're
+- [30:45.440] putting it back. But Michael and Susan,
+- [30:47.600] they're two special, incredible people,
+- [30:49.440] as an example, donated 6 billion, $250
+- [30:53.760] million into the accounts for youth.
+- [30:56.320] They gave him four youth.
+- [30:59.360] Michael Dell, Susan Dell,
+- [31:03.120] 6 billion,
+- [31:05.360] 250 million. I have a friend, he gave 50
+- [31:08.960] million. I said, "That's peanuts. That's
+- [31:10.559] not even close to the 250 million that
+- [31:13.600] Michael Dell gave." I said, "What are
+- [31:15.120] you doing? You can do better than that.
+- [31:17.360] But people are loving it. And you know
+- [31:19.600] what I say? Go out and buy a Dell
+- [31:21.840] computer. Okay? Because as far as I'm
+- [31:23.679] concerned,
+- [31:25.200] that's great stuff.
+- [31:28.240] And the Trump Accounts app for those
+- [31:30.159] that want is now the number one app in
+- [31:33.840] all of America. Isn't that nice for our
+- [31:35.679] youth? People are doing it. It just
+- [31:37.919] caught on. In the past 18 days, nearly
+- [31:41.039] $1.5 billion have been deposited into
+- [31:43.760] the Trump accounts. Think of that. The
+- [31:46.159] money is pouring in. And it's again,
+- [31:47.840] it's for children and all sorts of
+- [31:50.240] advantages and tax advantages for the
+- [31:52.559] people that do it and make this
+- [31:54.799] investment in our future because it's
+- [31:56.559] really an investment in our future. And
+- [31:58.799] all you have to do is go to
+- [32:01.039] trumpaccounts.gov,
+- [32:03.360] trumpaccounts.gov, and sign your child
+- [32:05.919] up for a free investment account today.
+- [32:08.399] and the child gets a,000 bucks from the
+- [32:11.279] government.
+- [32:16.799] You think that was easy to do? That
+- [32:18.559] wasn't easy to do. Tell tell the
+- [32:21.120] Democrats you're giving everybody
+- [32:22.559] $1,000.
+- [32:24.559] But we're pleased to be joined by some
+- [32:26.720] of those incredible Georgia families
+- [32:28.480] benefiting from the Trump accounts,
+- [32:30.240] including Cole and Allison Loen, and
+- [32:33.279] their three-year-old beautiful child,
+- [32:36.159] Ray, their two-year-old, Rex, and
+- [32:38.480] three-month-old daughter, Ren. And Cole
+- [32:41.679] and Allison met at Kennesaw State
+- [32:44.480] University, where he played football,
+- [32:46.399] and he was a cheerleader and a respected
+- [32:48.880] guy, good student. Now, Cole is a
+- [32:52.240] project manager helping build data
+- [32:54.159] centers. And just this past April, they
+- [32:57.120] became the first home buyers. Cole and
+- [32:59.760] Allison bought their first home. So, I
+- [33:01.760] just wanted to come up here for a
+- [33:03.279] second. Cole and Allison, come up. Say a
+- [33:05.360] few words. Wherever you may be, where
+- [33:07.840] are you? Come on up. Come on. Don't
+- [33:11.279] worry about Secret Service.
+- [33:17.760] We've had people come up. One of them
+- [33:19.919] almost got beat up and all they did was
+- [33:22.399] I said, "Come on up." And they
+- [33:25.279] go, "Oh, beautiful." Wow,
+- [33:29.120] that's so nice.
+- [33:33.440] You can't fall
+- [33:36.559] like sleepy Joe, can't you?
+- [33:41.919] >> Come on, say something.
+- [33:54.799] Thank you, Mr. President, and the White
+- [33:56.799] House staff for allowing my family to be
+- [33:58.640] a part of this special event. It is
+- [34:00.559] truly an honor. Thank you, Mr.
+- [34:02.480] President, and your administration for
+- [34:04.320] the hard work and commitment that the
+- [34:05.840] Trump account uh that made the Trump
+- [34:07.600] account possible. As a father, it's
+- [34:10.000] encouraging to know that our children's
+- [34:11.839] future can begin with an investment from
+- [34:13.839] day one. To every eligible new parent, I
+- [34:16.720] encourage you to take advantage of this
+- [34:18.159] opportunity by opening a Trump account
+- [34:19.919] for your child and continuing to invest
+- [34:21.839] in it each and every year. Mr.
+- [34:23.919] President, thank you for your continued
+- [34:25.679] commitment to investing in American
+- [34:27.280] families. And on behalf of my wife and
+- [34:29.119] me, thank you for providing our children
+- [34:30.879] with a greater opportunity to pursue and
+- [34:33.040] achieve their American dream. Thank you
+- [34:34.879] and God bless America.
+- [34:45.839] USA
+- [34:53.200] USA USA ush
+- [35:00.720] thank you very much go that's beautiful
+- [35:03.200] also with us are Dean and Gabrielle
+- [35:06.079] Fungoing and their four children Elise
+- [35:09.920] Jude Isaiah and Talia
+- [35:12.560] who also have been very proudly members
+- [35:16.160] of the Trump accounts. And Dean and
+- [35:18.480] Gabrielle are both entrepreneurs who
+- [35:20.640] believe in teaching their children the
+- [35:22.480] importance of self-reliance. And it's
+- [35:24.960] happening. You know, people are watching
+- [35:26.240] the market now. They're watching how are
+- [35:28.480] the socks doing, how's it going, and
+- [35:30.320] they're only going up, it looks like,
+- [35:32.000] and we're going to keep it that way. So
+- [35:34.079] Dean and Gabrielle, come on up for a
+- [35:36.000] second, please.
+- [35:42.000] Wow.
+- [35:44.400] Wow. Beautiful.
+- [36:02.640] >> Well, Mr. President, thank you for this
+- [36:04.960] honor. My American story began when my
+- [36:08.320] parents brought our family from Cerninam
+- [36:11.119] to this city in 1990. We attended local
+- [36:14.720] schools and college right here in
+- [36:16.560] Georgia. And in 2008, my wife and I lost
+- [36:20.320] our jobs just before learning we were
+- [36:23.119] expecting our first child.
+- [36:26.640] A friend taught me the appliance repair
+- [36:28.640] and service trade, and it changed our
+- [36:30.960] lives. Together, we built a company
+- [36:34.000] serving over 55,000 homes across the
+- [36:36.960] city. And then she fired me and made
+- [36:39.520] herself CEO.
+- [36:43.520] Later, I founded a technology startup
+- [36:46.400] and that patented technology along with
+- [36:48.160] our team protects millions and millions
+- [36:50.079] of square feet of commercial real estate
+- [36:51.839] from water damage. Standing with me
+- [36:54.079] today are my wife and our four beautiful
+- [36:57.200] children. We open Trump accounts for
+- [36:59.440] each of them. And because investing in
+- [37:01.599] the next generation strengthens the
+- [37:03.280] fabric of America. Thank you. Thank you,
+- [37:05.839] Mr. President. And God bless America.
+- [37:07.839] And God bless you.
+- [37:16.320] >> Are you ready?
+- [37:26.800] >> She made up for
+- [37:31.839] Thank you, sir. I appreciate you. Thank
+- [37:33.520] you,
+- [37:38.079] >> beautiful people.
+- [37:40.640] Well, thank you all. Appreciate it. But
+- [37:42.880] while our administration is lifting up
+- [37:46.079] the next generation with the power of
+- [37:48.320] freedom and American capitalism proven
+- [37:51.920] all over the world, when it's done
+- [37:53.440] right, it's not always done right, but
+- [37:55.920] when it's done right, there's nothing
+- [37:57.280] like it. The radical left is actively
+- [37:59.520] trying to destroy our children's future
+- [38:02.400] with the disaster known as communism.
+- [38:06.880] It's communism.
+- [38:10.079] This isn't social democrat. These are
+- [38:12.560] communists
+- [38:14.320] by another name. Right?
+- [38:16.320] >> As I said in my recent address at Mount
+- [38:19.599] Rushmore recently, I don't know if
+- [38:21.440] anybody saw it such a beautiful place.
+- [38:27.599] You know, the the communists want to
+- [38:29.440] take it down. They try taking Mount
+- [38:31.200] Rushmore down. They want to blow it up.
+- [38:33.680] They want to take it down. They
+- [38:34.880] shouldn't be up there. These people are
+- [38:36.960] crazy. But communism is, in my opinion,
+- [38:41.839] communism is the single greatest threat
+- [38:44.560] to our country and its history,
+- [38:46.320] including even World War I and World War
+- [38:49.440] II, Pearl Harbor, 9/11. I think it's the
+- [38:51.920] greatest threat that I've ever seen to
+- [38:53.440] our country. And these people are stone
+- [38:55.040] cold crazy
+- [38:59.280] and it is the enemy of the free people
+- [39:01.839] everywhere and everywhere in the world.
+- [39:03.520] You see it happening and every time it
+- [39:05.599] starts to happen the areas where it's
+- [39:08.240] at, whether it's blue states, you see
+- [39:10.079] the blue states are all going bad.
+- [39:12.079] They're all going bad because communism
+- [39:14.000] is a loser. The concept, the policy,
+- [39:16.160] it's a loser and it always has been and
+- [39:18.480] it always will be.
+- [39:27.839] And you know they want to give everyone
+- [39:29.760] everything away. Uh you want free rent,
+- [39:32.160] you want free house, you want what they
+- [39:33.760] don't say is in a year from now there'll
+- [39:36.079] be absolute squalor, turmoil and death.
+- [39:39.440] And that's the way it's happened all the
+- [39:41.359] way. It goes back thousands of years by
+- [39:44.320] different names, but that's the way it
+- [39:46.400] happens all the time. It's squalor. It's
+- [39:49.119] poverty. It's death. its destruction.
+- [39:52.800] And that's why we declare again today
+- [39:54.640] that the United States of America will
+- [39:56.800] never be a communist country.
+- [40:18.560] USA.
+- [40:27.440] >> Thank you.
+- [40:29.200] USA.
+- [40:32.720] >> You know, remember during the State of
+- [40:34.240] the Union, I said that
+- [40:36.960] this country will never be a socialist
+- [40:39.280] country. Remember? And I was right. They
+- [40:41.920] skipped socialism. They went right to
+- [40:43.599] communism.
+- [40:46.160] Georgia is a state that believes in
+- [40:48.160] common sense and yet your terrible
+- [40:50.480] senator John Oaf, he's terrible
+- [40:55.119] and the Democrats
+- [40:57.200] in Congress are voting with the
+- [40:59.520] communists every single time. They're
+- [41:01.119] afraid of the communists. You look at it
+- [41:02.800] now. I was I fought us off before as you
+- [41:06.319] know and we won. We had a great success
+- [41:08.480] against this guy. He reminds me of Pinky
+- [41:12.319] Herman. Do you ever see Pinky Herman?
+- [41:15.920] John Oaf and the congressional Democrats
+- [41:19.359] voted against securing our border. They
+- [41:21.760] voted against our massive tax cuts that
+- [41:24.720] you have. They voted against the Trump
+- [41:26.480] accounts for your children. They want to
+- [41:28.880] raise your taxes by a lot, not lower
+- [41:31.440] them. We lowered your taxes. We gave you
+- [41:33.119] the greatest tax cut in the history of
+- [41:34.800] our country twice now. And
+- [41:40.800] and they want to raise your taxes
+- [41:42.480] substantially. You know, it's I've been
+- [41:43.920] watching politics. I've been involved in
+- [41:45.599] politics in the other side, you know,
+- [41:47.280] for a long time. I've always found it
+- [41:49.200] interesting, fascinating, important, but
+- [41:51.760] I've never seen people say ever, it's
+- [41:53.760] always politicians, I've watched great
+- [41:55.680] politicians, we will lower your taxes.
+- [41:58.400] They always say, "We will lower," even
+- [41:59.920] if they didn't mean it, they'd say, "We
+- [42:02.160] will lower your taxes." These people
+- [42:04.560] say, "We're going to raise your taxes."
+- [42:07.200] I've never heard it before. It's a new
+- [42:08.880] phenomena. It's a phenomena.
+- [42:14.319] They voted against no tax on tips. They
+- [42:18.160] voted against no tax on overtime. They
+- [42:21.280] voted against no tax on social security
+- [42:24.079] for the seniors. They voted against
+- [42:26.560] voter ID. Can you believe that?
+- [42:31.440] Well, you saw what happened. They c they
+- [42:33.200] caught thousands of votes in New Jersey
+- [42:35.520] where illegal aliens were allowed to
+- [42:38.160] vote. Thousands and thousands of votes.
+- [42:41.119] They voted in favor of the transgender
+- [42:44.560] mutilization of your children and in
+- [42:46.960] favor of
+- [42:49.440] in favor of men playing in women's
+- [42:51.760] sports. Isn't that lovely?
+- [42:55.119] They voted against lower energy prices,
+- [42:57.680] lower car prices, and bigger paychecks
+- [43:00.160] for everyone. They voted against every
+- [43:02.160] one of these things. John Osaf and the
+- [43:05.760] Democrat communists want to let the
+- [43:08.560] Marxists into power, bankrupt your
+- [43:10.640] families, and leave you totally
+- [43:13.200] undefended with wide open borders. But
+- [43:16.160] we will not let that happen to our
+- [43:18.640] country. We're not going to let it
+- [43:19.920] happen.
+- [43:21.920] Right?
+- [43:28.880] So, it's a very appropriate thing
+- [43:30.960] because I watch this man run and he's
+- [43:32.880] really phenomenal actually. Uh because I
+- [43:36.480] liked the other side, too. I was a big
+- [43:38.720] fan of the other side, too. Two good
+- [43:41.280] men, frankly. But I watched him run and
+- [43:43.119] it was amazing what he was able to do.
+- [43:45.920] Very, very successful guy. And he
+- [43:47.760] decided he wanted to be governor because
+- [43:50.640] he thought he could do some really
+- [43:53.040] incredible things for this state. more
+- [43:55.200] so than have been done. And I'm very
+- [43:58.079] pleased to be joined today by a true
+- [44:00.160] champion for the people. He just won,
+- [44:02.640] Georgia business leader Rick Jackson,
+- [44:08.160] >> who I'm told has a big announcement to
+- [44:10.000] make. I don't know what this is. Come on
+- [44:11.440] up here, Rick.
+- [44:23.520] Good job.
+- [44:28.720] >> Well, thank you. I uh Mr. President,
+- [44:30.560] what you're doing on the Trump accounts
+- [44:32.160] is for foster children will, you know,
+- [44:34.560] change uh lives. I know because I said
+- [44:37.440] earlier that uh it changed my life when
+- [44:39.920] I got a $100 Christmas gift in an
+- [44:42.800] orphanage. That's why here in Georgia,
+- [44:44.880] we should not stop with $1,000. I want
+- [44:47.680] to announce as uh when I become
+- [44:49.760] governor, I'm going to push the state of
+- [44:51.440] Georgia to match the federal
+- [44:53.920] contribution with another,000.
+- [45:09.200] And I I believe our legislature will
+- [45:11.280] approve that. If they don't, I will
+- [45:12.880] personally donate it myself.
+- [45:21.760] M Mr. President, you're you're fighting
+- [45:23.520] for Georgians every day uh for the state
+- [45:25.839] and what you're doing to lower actually
+- [45:28.240] lower cost. Uh the media does not report
+- [45:30.640] this, but uh every day, President Trump
+- [45:33.520] is bringing unbelievable amount of
+- [45:36.079] business solutions to government. Let me
+- [45:37.839] let me give you an example. Not long
+- [45:39.359] ago, I was meeting with Susie Wilds uh
+- [45:41.599] who in my opinion is the best chief of
+- [45:43.760] staff in the modern history. Uh but we
+- [45:47.920] were talking about America's antibiotics
+- [45:50.560] uh supply chain and I told her we bought
+- [45:53.200] this last American plant in the United
+- [45:55.359] States in 21 because I didn't want China
+- [45:57.839] to leverage it on our president for
+- [45:59.839] trade. I told Susie something that every
+- [46:02.160] family should know. We we produce one
+- [46:04.480] dose of moxicylin for seven cents. uh by
+- [46:07.599] the time it goes through all the
+- [46:08.880] middlemen, you pay a dollar. Susie
+- [46:11.920] looked at me and said, "Well, have you
+- [46:13.839] heard about Trump RX?" And I said, uh,
+- [46:16.720] she said, "We're announcing it tomorrow
+- [46:18.800] to sell directly to the manu from the
+- [46:21.520] manufacturer to the consumer." That's a
+- [46:23.920] business solution that really brings
+- [46:26.079] down cost.
+- [46:32.079] when we bought this manufacturer of
+- [46:33.760] antibiotics, we wanted to change the
+- [46:35.359] name to US Antibiotics. Uh, and which I
+- [46:38.720] thought was a good name. So,
+- [46:41.680] it took the Biden administration seven
+- [46:44.079] months to approve our bottle logo where
+- [46:47.280] it had been for the entire 35 years.
+- [46:50.160] Then last summer, we want to bring out
+- [46:52.800] for our kids a moxicylin extended
+- [46:55.280] release. Under the Trump administration,
+- [46:59.200] we applied to have a new drug that
+- [47:01.440] hadn't been here in 25 years. Under his
+- [47:03.359] administration, it was approved in 60
+- [47:06.560] days. 60 days.
+- [47:16.319] So, Mr. President, thanks for what
+- [47:17.920] you're doing. I wish the fake news would
+- [47:20.160] report all these great business things
+- [47:21.760] that you're doing, but that's what I'm
+- [47:23.520] going to be in doing in Georgia. I'm
+- [47:25.119] going to bring business solutions to
+- [47:26.960] solve real problems. The other side
+- [47:29.119] talks about affordability as if that's a
+- [47:31.680] solution. Uh affordability is not a
+- [47:34.240] political problem. Affordability is a
+- [47:36.560] business problem. It requires business
+- [47:39.040] solutions just like this man's been
+- [47:41.280] doing all his life.
+- [47:51.119] My opponent wants to cut down businesses
+- [47:53.599] and cancel them just because I visited a
+- [47:56.640] restaurant. Well, that's just wrong. We
+- [47:58.640] are not going to do that. And I'm going
+- [48:00.560] to make sure that Georgia is the best
+- [48:02.160] place to do business and reduce
+- [48:04.160] affordability to the lowest it's ever
+- [48:06.160] been. And I'm going to be this man's
+- [48:08.160] favorite governor.
+- [48:28.640] Wow. He's going to be a great governor.
+- [48:31.040] He will be great. Thank you very much,
+- [48:32.720] Rick.
+- [48:34.160] We also have some true warriors with us,
+- [48:36.640] including state senator Brian
+- [48:38.800] Strickland, who is running for your the
+- [48:42.079] job of attorney general. That's an
+- [48:43.920] important one. Well, get out and vote
+- [48:46.960] and uh he's going to be fantastic. You
+- [48:48.800] have my complete and total endorsement
+- [48:50.720] as you know. Okay.
+- [48:58.000] And state senator Greg Doulswall. and
+- [49:00.960] that he is he is a fantastic guy who's
+- [49:05.280] as you know running for lieutenant
+- [49:07.680] governor along with Rick. That's a
+- [49:09.839] pretty good Where are you? There you
+- [49:11.200] are. Where are you? Oh, what a man he
+- [49:14.640] is. You have my complete endorsement.
+- [49:16.400] You know that. You had it before, but
+- [49:17.920] you have it now. Okay.
+- [49:21.920] Great luck. You won't need it. Yeah,
+- [49:24.720] everybody needs luck, but you're not
+- [49:26.720] going to need that much. Very talented
+- [49:28.640] people need luck, too, but they don't
+- [49:30.160] need it that much. And state
+- [49:32.400] representative Tim Fleming, who is
+- [49:34.880] running for Georgia Secretary of State.
+- [49:37.839] And they all have my complete and turtle
+- [49:40.160] endorsement. They're incredible people.
+- [49:42.240] Thank you very much. Thank you.
+- [49:44.000] Congratulations. I heard you had a a
+- [49:46.000] great win. We also have State
+- [49:48.640] Representative Houston Gaines with us
+- [49:50.960] who's a fantastic
+- [49:53.680] person and he's running for Congress.
+- [49:56.960] and uh you already have my endorsement
+- [50:00.240] and you already won your primary in
+- [50:01.920] record numbers and now you have to go
+- [50:03.680] and beat the Democrat. Good luck. We'll
+- [50:07.440] be helping you. Okay. Good luck.
+- [50:11.440] I want to thank as well, he was here. I
+- [50:13.200] didn't know he was going to be here.
+- [50:14.319] Treasury Secretary, I think he's going
+- [50:16.240] to go down as the best ever. Scott
+- [50:17.839] Bessant.
+- [50:31.359] That's good, Scott. Don't make him too
+- [50:33.599] popular. I won't like him anymore.
+- [50:36.880] That's very good. Secretary of
+- [50:39.680] Education, a woman who's absolutely
+- [50:41.920] incredible. She's moving education back
+- [50:44.480] to the States, Linda McMahon. And she's
+- [50:47.920] phenomenal.
+- [50:54.400] She's getting it back to the state so
+- [50:56.160] the parents can run the education. And I
+- [50:59.200] met your school board people. They were
+- [51:01.200] really great people. But you know, they
+- [51:03.119] want to work with the parents and that's
+- [51:04.480] what we're doing. And Linda, you are
+- [51:05.839] doing some great job. She's moving it
+- [51:07.680] back. Not easy. Not easy. That's years
+- [51:11.920] and years of turmoil that went trying to
+- [51:15.119] do. She just gets it done. This woman is
+- [51:17.359] incredible. Thank you very much. I
+- [51:18.880] appreciate it. another great person and
+- [51:21.520] great administrator. Uh a woman who's
+- [51:25.280] really smart. Uh everybody loves her,
+- [51:28.079] everybody respects her. And she runs a
+- [51:30.319] thing called small business. But small
+- [51:32.000] business when you add it all up is
+- [51:33.520] probably bigger than any bank in the
+- [51:34.960] world. Right. Kelly Laughler. And you're
+- [51:37.280] here with Jeff. Jeff, stand up.
+- [51:47.200] Thank you. Great job, K. Treasurer of
+- [51:50.960] the United States, a man who was a
+- [51:54.480] senator here. And he was so he was so
+- [51:57.520] ahead of everybody. He was so great. I
+- [51:59.680] said, "You want to be treasurer?" And he
+- [52:01.680] said, "I'd like to be treasurer. That'd
+- [52:03.280] be good. He's a great man. He's a person
+- [52:05.520] that loves Georgia like a lot. And it
+- [52:08.720] was not easy for him to take the other
+- [52:10.160] job, but he gets here. I'm sure he gets
+- [52:11.599] here plenty. But he loves Georgia."
+- [52:13.280] Brandon Beach. Brandon
+- [52:20.160] Cobb County School Superintendent Chris
+- [52:23.119] Ragsdale with a beautiful family.
+- [52:28.400] With a beautiful family
+- [52:33.839] and we have a man named Ralph Reed. Has
+- [52:36.400] any Have you heard of Ralph Reed? Ralph
+- [52:38.880] Reed. He is a man that
+- [52:43.119] with his group, a great religious
+- [52:45.280] leader, maybe the greatest religious
+- [52:47.119] leader, but with his group, is it 10
+- [52:49.359] million doorbells you hit? And this was
+- [52:51.440] certified stuff. 10 million doorbells.
+- [52:54.079] He pressed 10, not personally, but he
+- [52:56.000] pressed a lot of them himself. And they
+- [52:58.079] wanted to make sure we had a big victory
+- [52:59.920] a couple of It's almost a couple of
+- [53:02.079] years ago, 18 months. And uh I just want
+- [53:05.040] to thank Ralph Reed. Thank you very
+- [53:07.040] much, Ralph. Thank you. Great job. Great
+- [53:11.599] leader
+- [53:13.200] and one of the best lawyers in the
+- [53:14.880] country. A friend of mine. He's really
+- [53:16.559] incredible. And he's really based out of
+- [53:19.280] Georgia. He spends a lot of his time in
+- [53:21.200] Atlanta. David Shown. Where's David?
+- [53:23.280] There is David. Hi, David.
+- [53:25.839] He's a great lawyer. You got a problem.
+- [53:27.920] Go to David.
+- [53:29.920] Thank you, David. And Alvida King. So,
+- [53:32.720] Alvida was with me from day one. Where's
+- [53:36.480] Alvida?
+- [53:40.720] She was with me.
+- [53:43.520] She was with me from day one when it was
+- [53:45.760] not at all fashionable.
+- [53:48.000] She was taking more grief, Alva. But she
+- [53:50.559] knew what she was doing. And now she's
+- [53:52.240] like the queen of the world, right? Look
+- [53:54.000] at her. Thank you, darling. We
+- [53:56.160] appreciated it. You always like those
+- [53:59.040] people when it wasn't fashionable. Like
+- [54:00.960] Front Row Joe's. It wasn't fashionable
+- [54:02.960] like the ladies from North Carolina
+- [54:05.440] where which maybe it wasn't fashionable.
+- [54:07.839] Well, they had a good time at least. But
+- [54:10.160] these are great these are great people.
+- [54:11.760] Thank you all. Thank you all. Great
+- [54:14.000] great group. And you guys get yourselves
+- [54:16.160] elected, please.
+- [54:18.400] I also want to thank a man who had to
+- [54:20.640] stay back in Washington to vote for
+- [54:23.920] making America great again. Maybe the
+- [54:26.240] most important man in this room right
+- [54:28.400] now is not here. His name is Mike
+- [54:32.160] Collins and he's going to beat
+- [54:35.440] Pee-Wee Herman.
+- [54:41.839] And
+- [54:43.599] the reason he's not here is me. He
+- [54:46.880] wanted to be here. He wanted to be They
+- [54:49.119] wanted to change. I said, "Don't
+- [54:50.480] change." Mike's not here. And it is my
+- [54:53.839] fault because we have a very big vote
+- [54:56.240] coming up on the military, farming, and
+- [54:58.800] other important things in a little
+- [55:00.240] while. It's going to be a little while.
+- [55:02.160] And I got to have Mike in Congress
+- [55:04.160] because he's like maybe the most, but
+- [55:07.119] certainly one of the most highly
+- [55:08.800] respected congressman, Republican or
+- [55:11.280] Democrat in Washington. Mike Collins is
+- [55:14.000] an amazingly respected man. He's got the
+- [55:16.480] look. He's got the whole deal.
+- [55:20.960] And I said, "Mike,
+- [55:23.040] I'm sort of here because of you." I
+- [55:24.640] said, "Mike, if you're here, I'm going
+- [55:26.160] to be extremely upset with you because
+- [55:28.400] he has to vote." And you know, it's
+- [55:30.319] razor thin. We lose all the Democrat
+- [55:32.960] votes on all these things. Think of it.
+- [55:34.400] Tax cuts. Biggest tax cuts in history.
+- [55:36.319] They vote again. They vote against
+- [55:37.599] everything because you know why? They
+- [55:39.520] have Trump derangement syndrome. That's
+- [55:41.440] why.
+- [55:45.280] But I hope you're going to vote for
+- [55:46.640] Mike. And you've got to vote for him
+- [55:48.240] because he's running against uh I call
+- [55:50.480] him Peewee Herman. He's Pee-Wee Herman
+- [55:53.359] lookalike. You know, I don't know,
+- [55:55.520] people don't know this, but I beat him
+- [55:57.200] once before as a congressional
+- [55:58.799] candidate. Anybody know that he ran for
+- [56:01.200] Congress
+- [56:02.799] number of years ago? I got involved in
+- [56:05.680] the race at the request of a friend of
+- [56:07.440] mine from Georgia because they didn't
+- [56:10.000] like him and he was easily winning. He
+- [56:12.240] was winning by 25 points and there were
+- [56:14.720] five people in the race and he was way
+- [56:16.960] up. He was above 50. If you get above
+- [56:18.960] 50, you get it. And I backed a person,
+- [56:22.559] Karen, who you probably remember. Didn't
+- [56:25.359] know her at all, but I thought anybody
+- [56:27.520] would be better than this guy. And he
+- [56:30.720] went from 70 to, believe it or not,
+- [56:34.160] 49.9.
+- [56:36.240] And that meant he was now in a runoff.
+- [56:38.000] So he thought he had it made. and he was
+- [56:41.280] in a runoff and I got involved a little
+- [56:44.079] bit. I came here twice. I did a couple
+- [56:46.240] of rallies and she ended up winning the
+- [56:48.720] race. He lost. But I have to hand it to
+- [56:51.680] him because instead of being a
+- [56:53.040] congressman, he later on became a
+- [56:54.559] senator. If he was a congressman, he
+- [56:56.079] probably wouldn't have run. Who knows?
+- [56:57.520] Got to give him a little credit for
+- [56:58.799] that. But he was easy to beat. He wasn't
+- [57:01.920] I can't believe that he's a senator and
+- [57:05.040] he's not respected at all in Washington.
+- [57:07.280] You don't even hear his name mentioned.
+- [57:08.720] You don't hear his name mentioned. I
+- [57:10.880] mean, I hear all the names. I hear all
+- [57:12.480] the bad ones and the good ones. I hear
+- [57:14.160] them all, but you don't hear his name
+- [57:15.920] mentioned. He's not even a factor. But
+- [57:18.240] you have a guy that is the most
+- [57:19.920] respected, just about one of the most
+- [57:21.599] respected people in Mike Collins. And I
+- [57:24.160] hope you're able to go out and really
+- [57:26.880] cast your vote for him. He will bring so
+- [57:28.559] much. They call it pork. We call it
+- [57:30.640] money. But it'll bring a lot of action
+- [57:33.280] back to your state. He's a great guy and
+- [57:36.000] he loves your state and he's worked
+- [57:37.680] hard. He's got the whole package. Mike
+- [57:41.280] Collins. Vote for Mike.
+- [57:45.119] And he's hard at work. He's hard at work
+- [57:48.079] right now in Washington. And last but
+- [57:50.240] not least, we have the CEO of So, I like
+- [57:53.760] baseball. I like baseball, but this
+- [57:57.040] guy's done such a great job. You know,
+- [57:59.280] the Mets have the highest salary in
+- [58:02.079] baseball and they lose all the time on
+- [58:03.680] Friday.
+- [58:05.280] And I say, "Maybe we could steal this
+- [58:07.520] guy." But the team, the way the Atlanta
+- [58:11.200] Braves has been managed for years, huh?
+- [58:15.520] For years and years.
+- [58:18.400] And he's the CEO of the Atlanta Braves,
+- [58:21.040] Mike Plant. He's been, you know, you
+- [58:23.119] don't realize how good he is. You know,
+- [58:24.880] when you have one of these guys,
+- [58:29.920] there are teams like that, you know,
+- [58:31.359] where they never go down. Then you have
+- [58:32.880] other teams. We're rebuilding. They've
+- [58:35.200] been rebuilding for years. I don't want
+- [58:36.640] to mention teams because I know all the
+- [58:38.000] owners are all friends of mine. I get
+- [58:39.280] myself in trouble. But they're always
+- [58:41.680] rebuilding. We're rebuilding.
+- [58:43.920] This guy never rebuilds. He just stays
+- [58:45.760] at the top. He's amazing. And then he
+- [58:48.000] loses the best player. He loses a great
+- [58:50.160] first baseman. I would say great first
+- [58:51.920] baseman. And they keep going along and
+- [58:54.400] they get things for the first baseman
+- [58:56.880] and and he was really good. Dodgers got
+- [58:59.760] him. But I watched the Braves for years
+- [59:02.400] and they've done such a great job. So
+- [59:04.240] along with one of the best managers in
+- [59:06.799] baseball, a Braves legend, Brian
+- [59:09.440] Snitker.
+- [59:11.200] Brian Snitker, who was recently inducted
+- [59:14.880] into the Baseball
+- [59:17.119] Hall of Fame. Brian, both of you come
+- [59:19.440] up. Would you both come up? Come on up
+- [59:21.359] here. They deserve a little credit.
+- [59:25.280] They deserve credit. I mean, I've
+- [59:28.400] suffered. I've suffered with teams for
+- [59:31.520] the years. I've suffered.
+- [59:35.359] Oh, listen.
+- [59:40.000] Thank you.
+- [59:41.119] >> They say you're not allowed to do that.
+- [59:42.880] Do it.
+- [59:49.119] >> All right. Thank you, Mr. President.
+- [59:51.599] >> Thank you, Mr. President. Welcome to
+- [59:53.280] Marietta. And as you can see, Braves
+- [59:55.760] country is a real thing. And you got a
+- [59:58.319] room full of brave country right here.
+- [01:00:02.960] Mike and I presented President Trump
+- [01:00:05.599] with u one of our Fourth of July 250th
+- [01:00:09.040] anniversary jerseys that the team wore
+- [01:00:11.760] over that weekend. And I just want to
+- [01:00:14.079] tell President Trump that we're going to
+- [01:00:16.319] be back in Washington about a year from
+- [01:00:18.480] now. We're going to give him another
+- [01:00:20.240] World Championship jersey. So, thank
+- [01:00:22.799] you.
+- [01:00:28.720] >> Well said, Snit. Mr. President, I just
+- [01:00:31.119] want to say when you're done throwing
+- [01:00:32.480] four seam sa fast balls for the United
+- [01:00:35.040] States of America, come back and do it
+- [01:00:36.559] for the Atlanta Braves. Thank you.
+- [01:00:44.559] >> That's a great team. Those two are a
+- [01:00:46.319] great team. No, it's true. you watch you
+- [01:00:48.960] suffer with these teams for years and
+- [01:00:51.040] years and these guys every year they
+- [01:00:53.040] have a great team. So that's called
+- [01:00:55.440] talent. Some people have it, some people
+- [01:00:57.839] don't. Most people don't.
+- [01:01:00.799] But under the Trump administration,
+- [01:01:02.960] George is prospering again and America's
+- [01:01:05.280] winning again because we finally have a
+- [01:01:07.839] president who puts America first. We put
+- [01:01:10.319] America first.
+- [01:01:15.839] And under my I'm so proud of it. Under
+- [01:01:18.480] my most favored
+- [01:01:20.720] nation, if you look at our policy on
+- [01:01:22.880] drugs, we have a most favored nation
+- [01:01:25.440] policy. Meaning, of all the nations in
+- [01:01:28.079] the world, we have to get the most
+- [01:01:29.760] favored price. And it wasn't easy. And
+- [01:01:31.680] I'm not going to bore you by saying I
+- [01:01:33.119] had to get other nations to approve it.
+- [01:01:35.520] And I did threaten them with tariffs if
+- [01:01:37.359] they didn't approve it. And I threatened
+- [01:01:39.760] the drug companies. I threatened
+- [01:01:41.200] everybody to get this done. And no other
+- [01:01:43.839] president even tried because they said
+- [01:01:45.760] it was impossible to do. But we're
+- [01:01:47.680] delivering the largest prescription drug
+- [01:01:50.000] price cuts in history by a difference of
+- [01:01:52.880] 400, 500, and 600%
+- [01:01:56.640] reduction.
+- [01:02:00.240] So for decades, Americans paid the
+- [01:02:03.200] highest price for prescription drugs
+- [01:02:05.839] anywhere in the world. We were the
+- [01:02:07.119] highest price anywhere in the world and
+- [01:02:09.760] now we're paying the lowest price
+- [01:02:11.760] anywhere in the world. And that has a
+- [01:02:13.760] huge impact on your
+- [01:02:16.720] health care costs on really on
+- [01:02:18.720] everything. I'm very proud of it.
+- [01:02:20.640] Everybody said it couldn't be done.
+- [01:02:21.920] Other no other president even tried it
+- [01:02:24.240] because you had to get the drug
+- [01:02:25.359] companies which is tough but then you
+- [01:02:26.799] had to get the other nations to approve
+- [01:02:28.319] it which is even tougher. So all you
+- [01:02:30.880] have to do now is go to trumprx.gov and
+- [01:02:33.359] you're going to get drugs for prices
+- [01:02:34.640] that you never believed. I mean prices
+- [01:02:36.960] were there 80% 70% 60% 90% in one case I
+- [01:02:42.240] saw lower. So go there and just get your
+- [01:02:45.359] drugs and at a minimum price them out
+- [01:02:47.599] and go to your store and see if they can
+- [01:02:49.440] match it. But I don't think anybody's
+- [01:02:50.960] going to match them. It's been amazing.
+- [01:02:52.960] Think of it. We went from the highest
+- [01:02:54.559] price one year ago the highest price
+- [01:02:57.440] drugs anywhere in the world like the fat
+- [01:03:00.000] drug it cost. Think of it.
+- [01:03:05.599] Think of it.
+- [01:03:08.240] It cost
+- [01:03:10.640] $1,400
+- [01:03:12.160] in New York and in London it was $87.
+- [01:03:16.000] Okay, I told you I have a friend of
+- [01:03:17.359] mine. He's fat as You never saw a guy
+- [01:03:19.119] like this. He's a very smart guy. He's a
+- [01:03:23.119] Scott knows him very well. He's a great
+- [01:03:24.799] businessman, but highly neurotic.
+- [01:03:27.599] Always eating. Eating. He does two
+- [01:03:30.160] things. He eats and he makes deals
+- [01:03:33.680] and the eating he's not good at other
+- [01:03:35.760] than quantity but the making the making
+- [01:03:39.280] deals he's very good but he called me up
+- [01:03:40.799] because you know I buy this fat drug
+- [01:03:44.559] and now he calls me Mr. He used to call
+- [01:03:46.480] me Donnie. Donnie, I buy this fat drug
+- [01:03:50.480] and in New York I pay $1,400 and in
+- [01:03:53.680] London I just paid $87. I said, "You're
+- [01:03:56.400] so rich. How do you even know?" He said,
+- [01:03:57.680] "I don't know. My people told me that."
+- [01:04:00.720] And so he said, "I went out and I had it
+- [01:04:03.440] checked and it was from the same exact
+- [01:04:05.599] company, the same plant. It was actually
+- [01:04:07.440] made in the United States, the same
+- [01:04:09.119] everything." He said, "What the hell
+- [01:04:11.599] kind of a deal? I'm paying like almost
+- [01:04:14.000] 10 times as much. I said, "That's the
+- [01:04:16.480] system. It's a" But it really awoken me
+- [01:04:18.720] and I said, "I got to do something about
+- [01:04:20.799] because he's right. A pill that will
+- [01:04:22.720] sell for $10 in London or in Munich, $10
+- [01:04:27.920] is selling for $100 or $120 for a pill
+- [01:04:31.839] in New York City or in Chicago, Los
+- [01:04:34.319] Angeles or any other place." And I said,
+- [01:04:36.640] "We got to do it. It's unfair." And I
+- [01:04:38.319] called up the drug companies and they
+- [01:04:40.319] fought me. And then they said, "You're
+- [01:04:41.599] right." You know, they had all sorts of
+- [01:04:43.200] excuses. Well, we have to do research. I
+- [01:04:45.280] said, "Well, you're doing research for
+- [01:04:46.400] other countries, too, right?" So, they
+- [01:04:48.640] finally gave in under very, very tough
+- [01:04:52.960] time for them. And then they said, and
+- [01:04:55.680] they gave in because they never thought
+- [01:04:56.960] I'd get the countries to do it. And I
+- [01:04:59.039] called up France. I started with Emanuel
+- [01:05:01.200] Mcronone. I said, "Emmanuel,
+- [01:05:04.160] you must raise your drug price." Oh,
+- [01:05:07.680] Donald, why would I do that? because
+- [01:05:09.920] we're paying too high and you're paying
+- [01:05:12.400] too low and we're going to meet
+- [01:05:14.480] somewhere in the middle. No, no, no,
+- [01:05:16.480] Donald. I will not do that. Yes, you
+- [01:05:17.920] will. No, I won't, Donald. I will not do
+- [01:05:19.599] that, Donald. He said, yes, you will.
+- [01:05:23.200] And then finally, he said, no. I said,
+- [01:05:24.960] here's what I'm going to do. I'm going
+- [01:05:26.000] to put a 200% tariff on every bottle of
+- [01:05:28.640] wine and champagne coming out of France.
+- [01:05:34.799] And he said, Scott was there and he
+- [01:05:36.720] said, "Duno Dun, it would be my honor to
+- [01:05:39.760] do that." And we got France. So we got
+- [01:05:42.559] all of them the same way. It's too
+- [01:05:44.480] complicated.
+- [01:05:46.000] But we got it. And now we have favored
+- [01:05:47.760] nations. And we pay the lowest prices
+- [01:05:49.680] anywhere in the world from the highest
+- [01:05:51.280] prices. And that alone should win us the
+- [01:05:53.599] midterms. But it's not going to be that
+- [01:05:56.000] easy with the cheating and everything
+- [01:05:58.400] else that goes on. So make it too big to
+- [01:06:00.400] rig. Remember my statement? too big to
+- [01:06:02.079] rig. Make it too big to rig and watch
+- [01:06:04.240] those machines.
+- [01:06:07.520] Every day we're liberating our
+- [01:06:09.280] communities from the scourge of migrant
+- [01:06:11.839] crime in nearby Clayton County, Georgia.
+- [01:06:14.400] Federal law enforcement recently charged
+- [01:06:16.400] an illegal alien murder from Mexico who
+- [01:06:19.359] shot a man in the torso and then shot
+- [01:06:21.680] another twice in the heart and the head.
+- [01:06:25.119] In Boa County, ICE arrested an illegal
+- [01:06:28.559] alien who sexually assaulted an
+- [01:06:30.720] 11-year-old girl and held her
+- [01:06:32.559] 10-year-old sister at knife point for
+- [01:06:35.440] one week. John Oaf and the Democrat
+- [01:06:39.280] communities. They voted to defund ICE
+- [01:06:42.720] and leave Georgia families at the mercy
+- [01:06:45.119] of the monstrous criminals that we're
+- [01:06:47.359] getting out of here. We're getting them
+- [01:06:48.559] out at record speed.
+- [01:06:55.680] And by the way, we always stand with the
+- [01:06:58.160] heroes, the patriots of ICE and Border
+- [01:07:01.039] Patrol. Always.
+- [01:07:04.880] They take they take such abuse
+- [01:07:09.599] and they do their job.
+- [01:07:17.839] And our strong borders are really it's a
+- [01:07:21.119] policy of helping to bring down the cost
+- [01:07:23.200] of living. It really is. It's uh under
+- [01:07:25.119] Biden over 60% of the increase in
+- [01:07:27.440] housing rental. The rental cost demand
+- [01:07:30.240] came from the flood of illegal aliens
+- [01:07:33.359] coming into our country. The government
+- [01:07:35.039] would pay thousands of dollars a month
+- [01:07:37.280] for apartments for illegal aliens. But
+- [01:07:39.200] for our warriors, for our ex-servicemen,
+- [01:07:42.960] for people that served in our military
+- [01:07:44.640] for 20 years and 25 years, and then they
+- [01:07:48.000] couldn't get into an apartment. They
+- [01:07:49.359] were living in the street. They didn't
+- [01:07:50.640] do anything. But they took care of
+- [01:07:52.400] illegal aliens, paying thousands of
+- [01:07:54.799] dollars a month in some of the most
+- [01:07:56.400] luxurious hotels in the country. It's
+- [01:08:00.079] crazy what they were doing. It's crazy.
+- [01:08:03.200] But thanks to our policies, the cost of
+- [01:08:05.599] rent is now down by more than 10% in a
+- [01:08:08.319] short period. And the Atlanta area
+- [01:08:11.119] compared to the peak of the border
+- [01:08:13.440] invasion, the border invasion, I mean,
+- [01:08:15.200] these people were occupying all the
+- [01:08:16.719] apartments and the government was
+- [01:08:18.159] paying. And they were never going to be
+- [01:08:20.400] great. They were never going to remember
+- [01:08:22.480] the word I made up, the caravans. They
+- [01:08:24.400] came in thousands and thousands came by
+- [01:08:26.560] caravan. and many murders were in these
+- [01:08:28.960] caravans. To stop the massive theft of
+- [01:08:32.400] taxpayer dollars, including by the
+- [01:08:34.319] millions and millions,
+- [01:08:36.719] we have launched the war on fraud led by
+- [01:08:40.880] Vice President J. D. Vance. He's doing a
+- [01:08:43.120] great job.
+- [01:08:48.080] We ended Medicaid for illegal immigrants
+- [01:08:51.040] and we redirected $50 billion to make
+- [01:08:53.839] the largest investment in rural health
+- [01:08:56.319] in the history of our country. You're
+- [01:08:57.839] getting hospitals built in areas just
+- [01:09:00.560] like this that the Democrats would never
+- [01:09:03.199] do. Number one, they said that's Trump
+- [01:09:05.600] country. We're not going to do anything.
+- [01:09:06.960] They wouldn't spend because we did. We
+- [01:09:09.040] got tremendous votes in your whole
+- [01:09:10.560] state. We got tremendous We won in a
+- [01:09:12.719] landslide in just 18 months. We've
+- [01:09:15.359] turned this country around like nobody's
+- [01:09:18.719] ever seen before. Our b think of it. Our
+- [01:09:21.600] border is secure. Jobs are up. Inflation
+- [01:09:24.319] is way down. Factories are opening.
+- [01:09:27.120] Invest in investment is pouring into our
+- [01:09:30.319] country. I told you $19.2 trillion. Our
+- [01:09:34.640] military is more powerful than it has
+- [01:09:37.520] ever been before by far. You see that?
+- [01:09:41.520] Venezuela, Iran,
+- [01:09:45.759] America is back. It's stronger than ever
+- [01:09:48.319] before. And I'm telling you, it's only
+- [01:09:50.000] going one way. It's going up. As long as
+- [01:09:51.920] we keep our current thinking, our
+- [01:09:54.159] current system, it's going up. If you go
+- [01:09:56.080] the other way, nothing ever succeeds. I
+- [01:09:59.120] made the statement once with communism,
+- [01:10:02.800] everything turns to Okay? It's
+- [01:10:06.400] true.
+- [01:10:08.560] Terrible thing.
+- [01:10:14.159] It's true. My wife hates it when I do
+- [01:10:16.400] that. She said, "You were doing it so
+- [01:10:18.880] nicely and then you had to use a foul
+- [01:10:20.560] word." You know, Franklin Graeme wrote
+- [01:10:22.800] me a letter. President Trump, I love
+- [01:10:24.960] your speeches. I think they're great.
+- [01:10:26.560] But sir, if you wouldn't use foul
+- [01:10:29.440] language, the speeches would even be
+- [01:10:32.080] better. And I wrote him back. I said,
+- [01:10:33.440] "Actually, frankly, they wouldn't." you
+- [01:10:35.280] know, because there's like no word that
+- [01:10:37.920] can replace that word with respect to
+- [01:10:40.560] the subject matter that we're talking
+- [01:10:42.239] about, right? But that's all right. But
+- [01:10:44.560] I try hard. I try hard to keep them
+- [01:10:47.920] clean.
+- [01:10:49.440] But it's true. With communism,
+- [01:10:51.360] everything turns.
+- [01:10:53.520] With the help of our Republican
+- [01:10:56.000] majorities in Congress, we will crush
+- [01:10:57.920] violent crime, impose harsh new
+- [01:10:59.840] penalties for dangerous repeat
+- [01:11:01.920] offenders, crack down on Marxist proxy.
+- [01:11:04.719] Oh, these prosecutors are so bad.
+- [01:11:07.040] They're so evil what they do. And the
+- [01:11:09.840] rogue judges, you don't have a chance in
+- [01:11:11.920] front of these people. If Obama puts in
+- [01:11:14.480] a judge, I don't care how good your case
+- [01:11:16.719] is, you barely have a chance of victory.
+- [01:11:19.840] And nobody suffers it like I do. I get
+- [01:11:23.199] an Obama judge. First thing, who
+- [01:11:25.520] appointed the judge? Barack Hussein
+- [01:11:27.440] Obama. Oh, that's a problem.
+- [01:11:30.480] And we will end no cash bail. The real
+- [01:11:33.840] bad stuff. These guys, they they get
+- [01:11:36.080] out, they kill somebody, they're let
+- [01:11:37.679] out, they kill somebody the same
+- [01:11:39.360] afternoon.
+- [01:11:41.120] We will pass the great health care plan.
+- [01:11:43.360] It's called our great health care plan.
+- [01:11:45.760] That's the name of it. to stop all
+- [01:11:47.360] payments to big insurance companies and
+- [01:11:49.840] give the money directly to the people so
+- [01:11:52.960] they can buy their own health care which
+- [01:11:55.199] will be much better and you will save a
+- [01:11:57.840] lot of money
+- [01:12:03.360] >> because as you see Obamacare is a total
+- [01:12:06.000] disaster. It's been a disaster. It's
+- [01:12:08.800] gone up through the roof. It's a total
+- [01:12:10.560] disaster. We want to spend the money. We
+- [01:12:13.679] want to give you the money directly. Buy
+- [01:12:15.760] your own healthcare. What's happening is
+- [01:12:18.400] these insurance companies taking
+- [01:12:20.159] billions and billions of dollars and
+- [01:12:22.480] they don't give a damn about you and you
+- [01:12:25.040] go out and you get crummy health care at
+- [01:12:27.600] a price that's unaffordable. So we want
+- [01:12:29.920] to give you the money and you spend the
+- [01:12:32.239] money and you go around and negotiate,
+- [01:12:34.400] you're going to have money left over, so
+- [01:12:36.239] much better, and you're going to have
+- [01:12:37.280] much better healthcare.
+- [01:12:42.159] And finally, we have to pass the Save
+- [01:12:44.400] America Act to defend American
+- [01:12:47.120] elections.
+- [01:12:59.520] And I have to say,
+- [01:13:01.920] Mike Johnson and Congress have done a
+- [01:13:04.000] great job, but we're having a hard time
+- [01:13:06.159] in the Senate. the Senate. What they're
+- [01:13:08.159] doing is just it's just not right.
+- [01:13:11.840] Congress is going to pass it again. They
+- [01:13:14.080] passed it three times. They're going to
+- [01:13:15.520] pass it again. It's like the Senate is a
+- [01:13:18.719] place that you send things when you want
+- [01:13:20.400] them to die.
+- [01:13:22.800] We can't do this. And we're not going to
+- [01:13:24.239] take this any longer. We're not going to
+- [01:13:25.920] take it. You know, I'm trying to be
+- [01:13:27.199] nice. Trying to be really nice. You saw
+- [01:13:29.679] we had a big victory last night in
+- [01:13:32.239] Arizona. I've had victories everywhere.
+- [01:13:35.360] But but we're not going to we're not
+- [01:13:38.560] going to be able to take it much longer
+- [01:13:40.800] when they can't get past voter ID, proof
+- [01:13:44.159] of citizenship, no mailin ballots
+- [01:13:46.880] because they're crooked as hell.
+- [01:13:49.600] So right now, Congress is working to get
+- [01:13:51.760] as much of our plan as possible into the
+- [01:13:54.480] budget bill to identify and really uh
+- [01:13:57.600] terminate. Look, what would they should
+- [01:13:59.600] do? Very simple. A lot of you don't know
+- [01:14:01.280] about filibuster. They should terminate
+- [01:14:03.040] the filibuster and approve everything
+- [01:14:05.440] because the Democrats are going to do
+- [01:14:07.679] it. The Democrats are going to terminate
+- [01:14:10.800] the filibuster as soon as they have a
+- [01:14:13.600] chance and then they're going to approve
+- [01:14:15.440] Puerto Rico and DC as a state. They got
+- [01:14:17.760] four more senators. They're going to end
+- [01:14:20.000] up with 12 more congressmen. They're
+- [01:14:22.000] going to get at like 40 electoral votes.
+- [01:14:26.080] if they are allowed to do that. By that
+- [01:14:29.040] time, I'll be sitting home and I'm not a
+- [01:14:32.080] big crier. I don't think you want to see
+- [01:14:33.920] me cry. You know, there are some people
+- [01:14:36.719] they do very well when they cry, but you
+- [01:14:39.679] don't want to see me cry, but I may be
+- [01:14:41.440] crying when I I'll be sitting home and
+- [01:14:43.679] I'll say I told them they got to really
+- [01:14:46.400] terminate the filibuster, get everything
+- [01:14:48.239] approved right away because you're going
+- [01:14:50.159] to have a stoppage.
+- [01:14:52.080] You're going to have a stoppage in
+- [01:14:53.520] September. The Democrats won't approve
+- [01:14:55.280] everything. They become deranged like
+- [01:14:57.520] deranged Jack Smith. Remember that
+- [01:14:59.280] deranged sick puppy. They're deranged
+- [01:15:02.080] and they won't approve. You'll have a
+- [01:15:03.679] you're going to have a shutdown in
+- [01:15:04.960] September and in two years later you
+- [01:15:07.679] have the debt sealing bill. They would
+- [01:15:09.199] love it. I call it the 1929.
+- [01:15:11.600] You know what 1929 means? That was not a
+- [01:15:13.840] good year. And there's no reason for it.
+- [01:15:16.239] They should terminate the filibuster.
+- [01:15:18.480] Everybody call John Thun at the Senate.
+- [01:15:21.760] he's the leader of the Republican party
+- [01:15:23.520] and tell him to get this stuff approved.
+- [01:15:31.280] So, we're fighting so that all voters
+- [01:15:33.280] must show voter ID. We're fighting so
+- [01:15:36.080] that all voters must provide proof of
+- [01:15:39.199] citizenship. Okay?
+- [01:15:42.719] And also the no mail-in ballots. Very
+- [01:15:45.120] important. And we're doing exceptions
+- [01:15:46.640] for illness, disability, military
+- [01:15:49.120] deployment, travel. If you're away and
+- [01:15:51.760] you have problems, we'll be very easy on
+- [01:15:54.320] that. Look, if you're away, if you're in
+- [01:15:56.000] the military, you want to vote, we want
+- [01:15:57.679] you to vote. But we'll also enshrine in
+- [01:16:01.360] permanent law no men in women's sports
+- [01:16:05.440] and no transgender surgery for your
+- [01:16:09.600] children.
+- [01:16:16.480] So ladies and gentlemen of Georgia, the
+- [01:16:19.440] golden age of America is upon us. We are
+- [01:16:22.000] in the golden age. This is the greatest
+- [01:16:24.640] we'll ever be. And together with your
+- [01:16:27.520] help and the patriots all across this
+- [01:16:30.560] magnificent land. We love our country.
+- [01:16:33.280] We will make America powerful again.
+- [01:16:36.640] We will make America wealthy again. We
+- [01:16:40.239] will make America healthy again. We will
+- [01:16:44.000] make America strong again. We will make
+- [01:16:48.080] America proud again. We will make
+- [01:16:51.600] America safe again. And we will make
+- [01:16:55.679] America great again. Thank you very
+- [01:16:58.800] much. Thank you, Georgia. Thank you.
+- [01:17:09.920] Heat.
+- [01:17:21.440] Heat.

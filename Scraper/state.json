@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=ZgYleK0fJVs: NoTranscriptFound: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=ZgYleK0fJVs! This is most likely caused by:\n\nNo transcripts were found for any of the requested language codes: ['en', 'en-US']\n\nFor this video (ZgYleK0fJVs) transcripts are available in the following languages:\n\n(MANUALLY CREATED)\n - und (\"root\")\n\n(GENERATED)\nNone\n\n(TRANSLATION LANGUAGES)\nNone\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=Ky4y-Pg1DkY: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=Ky4y-Pg1DkY! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -178379,6 +178379,17 @@
       "published": "2025-10-18T15:09:09+00:00",
       "title": "President Trump Gaggles with the Press Upon Arrival in Palm Beach, FL, Oct. 17, 2025",
       "url": "https://www.youtube.com/watch?v=ZdHBPV16nlo"
+    },
+    "youtube:whitehouse:ZgYleK0fJVs": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-22T22:56:07.771967+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/22/ZgYleK0fJVs",
+      "platform": "youtube",
+      "post_id": "ZgYleK0fJVs",
+      "published": "2026-07-22T20:56:25+00:00",
+      "title": "President Trump Delivers Remarks, Jul. 22, 2026",
+      "url": "https://www.youtube.com/watch?v=ZgYleK0fJVs"
     },
     "youtube:whitehouse:Zh3hOaioCWc": {
       "account": "WhiteHouse",
