@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-23
 
-- Posts: 5
+- Posts: 6
 
+- [22:04 UTC - Please let this statement serve to represent, until further notice, that from this point f...](116971555718513784/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116971555718513784
+  - Please let this statement serve to represent, until further notice, that from this point forth, any and all damages done to Ships, Cargo, or anything related thereto, will be paid...
 - [12:16 UTC - A year ago the United States of America attacked, very powerfully, the Houthis, for their ...](116969243226176328/)
   - Source: https://truthsocial.com/@realDonaldTrump/116969243226176328
   - A year ago the United States of America attacked, very powerfully, the Houthis, for their interference with commerce and trade, by shooting at ships. Since that time, and during ou...
