@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-23
 
-- Posts: 3
+- Posts: 4
 
+- [11:52 UTC - The Civil Nuclear Deal (There will be no enrichment of material!) being made between the U...](116969149016233329/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116969149016233329
+  - The Civil Nuclear Deal (There will be no enrichment of material!) being made between the United States Department of Energy and Saudi Arabia, which pertains only to non-military us...
 - [09:31 UTC - Justice at last??? House panel accuses Jack Smith of lying to Congress, urges DOJ to prose...](116968591311441725/)
   - Source: https://truthsocial.com/@realDonaldTrump/116968591311441725
   - Justice at last??? House panel accuses Jack Smith of lying to Congress, urges DOJ to prosecute: [https:// justthenews.com/government/con gress/jim-jordan-sends-jack-smith-criminal-...
