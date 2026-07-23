@@ -1,0 +1,661 @@
+<!-- source: https://www.youtube.com/watch?v=JowcZBLIFAY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: JowcZBLIFAY -->
+<!-- date_published: 2026-07-23T21:04:54+00:00 -->
+<!-- date_accessed: 2026-07-23T23:29:43.661524+00:00 -->
+
+# Transcript: President Trump Hosts the Los Angeles Dodgers, 2025 World Series Champions
+
+- [00:03.929] [music]
+- [00:09.170] [music]
+- [00:12.960] Ladies and gentlemen, the president of
+- [00:14.880] the United States, Donald J. Trump,
+- [00:17.520] accompanied by the Los Angeles Dodgers
+- [00:19.520] owner and chairman, Mark Walter, and
+- [00:21.600] manager, Dave Roberts.
+- [00:26.855] [music] Heat. Heat.
+- [00:34.715] [music]
+- [00:41.920] >> [music]
+- [00:49.360] >> Heat. Heat.
+- [00:53.055] [music]
+- [00:58.079] Congratulations.
+- [01:01.570] [music]
+- [01:08.775] [music]
+- [01:13.360] [music]
+- [01:24.640] >> That was a great great year and a great
+- [01:27.759] It was a hell of a
+- [01:33.200] good pulled it out. Great going. Great.
+- [01:37.200] Nice to be with you.
+- [01:39.520] Well, thank you very much everybody.
+- [01:41.040] It's an honor to be here and welcome to
+- [01:44.400] this is really the new Rose Garden. How
+- [01:46.320] beautiful it is with a white stone that
+- [01:48.799] matches the White House. Uh this used to
+- [01:52.479] be grass and it was always wet. You
+- [01:55.360] know, uh, the White House is built on a
+- [01:57.040] wetland, and when you're built on a
+- [01:59.439] wetland, the grass is wet all the time.
+- [02:02.000] If it didn't rain for 5 days, it was
+- [02:04.640] very wet. And we had a lot of very upset
+- [02:07.840] women. They'd stand in there with the
+- [02:09.599] high heels and they just go down like
+- [02:11.840] quicksand.
+- [02:13.360] And that took place for about 150 years.
+- [02:16.720] And I decided to do something about it.
+- [02:19.040] And this has become an incredible place
+- [02:21.840] for dining and for news conferences and
+- [02:24.319] for events like this. And this is a very
+- [02:27.760] special event because it's the Dodgers
+- [02:30.160] and they're the world champions. And uh
+- [02:33.926] [applause]
+- [02:35.200] and Mark, this is the this is the first
+- [02:37.840] time we've ever used the new uh rose
+- [02:41.040] garden. You see the right up there? The
+- [02:42.800] rose garden. I put that up. Looks very
+- [02:44.879] nice. This is not You think Biden would
+- [02:47.440] do that? I don't think so. I don't think
+- [02:49.680] Biden would do it. And we uh created the
+- [02:53.200] presidential walk of fame. That wall for
+- [02:57.120] 150 years had absolutely nothing on it.
+- [02:59.840] And it always used to amaze me. I said,
+- [03:01.599] "What are we going to put on that wall?"
+- [03:03.680] Now, I could put some of the great
+- [03:05.200] Dodgers on the wall,
+- [03:06.640] >> but I figured maybe it's more
+- [03:08.239] appropriate that we put the presidents.
+- [03:10.560] >> So, it's it's been quite something. And
+- [03:12.560] we've have we did from Washington to
+- [03:15.280] Trump, and people love it. and they uh
+- [03:18.159] read they study the plaques and
+- [03:20.319] generally speaking I was very nice to
+- [03:22.080] the people up there. A couple of them
+- [03:24.239] probably not as nice as I could have
+- [03:25.840] been. But I just want to say that we're
+- [03:28.640] delighted to host the 2025 World Series
+- [03:31.599] champions, the Los Angeles Dodgers.
+- [03:35.497] [cheering and applause]
+- [03:36.159] Amazing.
+- [03:40.560] And uh for the first time in the proud
+- [03:42.799] history of this famous franchise, you
+- [03:44.879] are repeat champions. I didn't know that
+- [03:47.680] you that's the first time, huh? Well,
+- [03:50.000] great ownership, great management, and
+- [03:52.959] uh so I'm thrilled to say welcome back
+- [03:55.040] to the White House and maybe I'll see
+- [03:57.680] you again next year. I hope.
+- [03:59.680] >> But uh it's a really it's truly a great
+- [04:03.519] when you talk about a brand, it's one of
+- [04:05.200] the great brands anywhere in the world.
+- [04:06.799] No matter where you go, the Dodgers is
+- [04:09.120] one of the great brands and certainly
+- [04:10.560] it's been enhanced as long as these two
+- [04:13.040] gentlemen were up here and were with us.
+- [04:15.680] I want to thank Dodge's owner and my
+- [04:18.239] friend chairman Mark Walter for being
+- [04:20.799] here. Thank you, Mark. [applause]
+- [04:25.759] Along with President Stan Casten and
+- [04:28.320] manager Dave Roberts. That's a hell of a
+- [04:31.280] manager. What a manager. [applause]
+- [04:35.600] And I also here we have some of our you
+- [04:38.560] they're fans. They're big celebrities
+- [04:41.040] for the most part themselves, but
+- [04:42.560] they're fans. Secretary of Agriculture
+- [04:44.320] Brook Rollins
+- [04:46.238] [applause] that And by the way, uh
+- [04:48.720] prices are going down very
+- [04:50.160] substantially. Thank you, Brooke. We got
+- [04:52.560] them down. We inherited the highest
+- [04:54.160] prices in history and we got them we're
+- [04:55.840] getting them down very quickly. Thank
+- [04:58.080] you, Brooke. Secretary of Health and
+- [04:59.919] Human Services. He wasn't supposed to be
+- [05:02.160] here, but he's a big Dodger fan. Robert
+- [05:03.919] F. Kennedy Jr., Thank you, Bobby, and
+- [05:06.560] his incredible wife. Thank you. Are you
+- [05:08.960] a giant? Are you a big fan of the
+- [05:10.479] Dodgers? I didn't know that. Uh,
+- [05:13.199] Secretary of Homeland Security, Mark
+- [05:15.520] Wayne Mullen. Mark Wayne, thank you.
+- [05:18.160] Look at the hat.
+- [05:20.080] Don't put that hat on in Oklahoma,
+- [05:22.080] please. Mark, they won't be too happy.
+- [05:25.759] Acting director of the national
+- [05:27.840] intelligence, Bill Py. Bill, thank you.
+- [05:30.400] Good job you're doing. US Ambassador to
+- [05:33.840] the Republic of Korea, Michelle Steel.
+- [05:37.919] Thank you very much.
+- [05:40.720] Thank you. And many representatives and
+- [05:44.160] some of our wonderful senators and
+- [05:46.160] congressman. I want to thank you all for
+- [05:47.759] being here. Uh also Vince Fong and Young
+- [05:51.680] Kim. Thank you very much. Thank you both
+- [05:54.400] very much. A lot of politicians. I'm not
+- [05:57.360] going to introduce the politicians.
+- [05:58.800] We'll be here all day. The 2025
+- [06:02.560] Dodger season was one for the record
+- [06:04.880] books. In 150 years of Major League
+- [06:06.960] Baseball, no player has ever earned more
+- [06:09.840] than one unanimous
+- [06:11.759] league MVP except for an international
+- [06:14.800] legend named Shoi Otani. Show Otani.
+- [06:19.904] [applause]
+- [06:22.160] That's him. [cheering]
+- [06:24.400] >> Oh, he's amazing. He's amazing.
+- [06:26.720] Everybody loves him.
+- [06:29.440] Last year, Shi did what was previously
+- [06:31.919] unthinkable. Nobody thought it was
+- [06:33.520] possible. He collected his third
+- [06:35.759] straight unanimous league MVP with a
+- [06:38.720] franchise record, 55 home runs. And if
+- [06:42.240] you would have told me you can be the
+- [06:43.600] best pitcher and the best hitter at the
+- [06:45.199] same time, you know, Babe Ruth was
+- [06:46.720] pretty close to that. They drafted Babe
+- [06:49.520] Ruth. He was 19 years old. I know
+- [06:51.759] something about baseball. Babe was 19
+- [06:54.800] years old. They consider it the worst
+- [06:56.319] trait in the history of sports. I would
+- [06:59.440] say Babe will always take that. He was
+- [07:01.280] 19 and they got a 36 year old third
+- [07:04.080] baseman and $100,000. So I would rate
+- [07:07.039] that pretty bad. They drafted him as a
+- [07:08.880] pitcher, but he did something very
+- [07:11.360] unusual. He led the league in home runs
+- [07:13.199] as a pitcher. That one you have to do.
+- [07:15.520] He's pretty close to doing it. I think I
+- [07:17.759] think you're pretty close to doing it.
+- [07:19.520] But Babe did something that nobody And
+- [07:21.520] so they made that trade and that goes
+- [07:23.599] down as the worst trade in the history
+- [07:25.919] of baseball. And uh but the babe was the
+- [07:29.599] babe, right? Uh you know the second
+- [07:31.759] worst trade in history just out of
+- [07:33.360] curiosity. Kareem Abdul Jabbar for the
+- [07:35.840] entire Los Angeles Lakers team. Okay.
+- [07:39.120] They traded the whole team to Milwaukee.
+- [07:41.599] And they won plenty of championships
+- [07:43.599] with Kareem. But this group started
+- [07:46.880] their title defense with nine pitchers
+- [07:49.039] injured before the first fast ball was
+- [07:52.000] ever thrown. They played their opening
+- [07:54.400] game in Tokyo and traveled more than
+- [07:57.039] 2,000 miles. It's more than any team has
+- [07:59.599] ever traveled. In fact, from the first
+- [08:02.160] pitch to the final out, they endured and
+- [08:04.800] triumphed through the longest season of
+- [08:06.960] any team in the history of Major League
+- [08:08.800] Baseball. 229
+- [08:11.360] days. I didn't know that. Did you know
+- [08:12.879] that? That's a pretty crazy fact. I
+- [08:15.199] mean, it's not the kind of fact you
+- [08:17.039] think about. What is it going to be a
+- [08:18.319] half a day longer or something? I don't
+- [08:19.919] know. That's a different kind of a fact,
+- [08:21.759] Mark, than I ever heard of, but that's
+- [08:23.919] what they give me to read. So, what can
+- [08:25.440] I tell you? 220. The longest season
+- [08:28.720] ever. I don't know what the hell that
+- [08:29.919] means. [laughter] In the postseason, the
+- [08:32.560] Dodgers exploded with nine wins in their
+- [08:35.839] first 10 games. Unbeatable. In the
+- [08:39.279] National League Championship Series
+- [08:41.599] against the Brewers, the brilliant
+- [08:43.039] Dodgers pitching rotation of Blake
+- [08:45.680] Snell, Tyler Glass, now Shohi, and of
+- [08:50.720] course, Yoshi Yamamoto combined for a
+- [08:54.480] record setting of just
+- [08:57.600] 63. In other words, [applause] if you
+- [09:00.320] get one run, you're in good shape.
+- [09:02.640] That's amazing pitching.
+- [09:05.279] And by the way, I just asked Dave, I
+- [09:07.680] said, How are you doing this year? You
+- [09:09.760] know, I've been a little busy with Iran
+- [09:11.279] and some other things. So, if I know too
+- [09:13.600] much, you wouldn't be happy. I wouldn't
+- [09:14.959] be doing a good job. If I know too much,
+- [09:16.800] but I said, "How you doing?" He said,
+- [09:18.000] "We have the best record of baseball."
+- [09:19.680] Right. So far, right.
+- [09:21.120] >> Yes, sir.
+- [09:21.680] >> That's good. [applause]
+- [09:23.279] Might see you back next year. I hope.
+- [09:25.920] So, not starting rotation and think no
+- [09:29.200] starting rotation has ever done anything
+- [09:31.920] better or anything even comparable to
+- [09:34.000] the championship series in the history
+- [09:36.480] of the sport with some great pitches,
+- [09:38.399] some of the greatest pitchers ever. In
+- [09:41.200] game two of the same series, superstar
+- [09:43.839] Maxy hit his 14th postseason home run.
+- [09:46.560] Where's Max?
+- [09:49.506] [applause]
+- [09:54.091] >> [applause]
+- [09:55.200] >> guy's a winner. They're all winners. His
+- [09:58.640] 14th postseason home. That's a lot of
+- [10:00.399] home runs in the postseason.
+- [10:02.880] Uh breaking the alltime Dodger record.
+- [10:06.240] Who has Who's second? Who did you break
+- [10:08.000] there, Max? Who was second? Pretty good
+- [10:09.760] player, right?
+- [10:10.640] >> I'm not sure.
+- [10:11.200] >> I'll let you know later. [laughter]
+- [10:12.959] I'll let you
+- [10:13.680] >> He's not done yet.
+- [10:14.480] >> I'll figure it out. He's going to Yeah,
+- [10:15.920] he's got a long way to go, too. Then the
+- [10:18.880] decisive game four show pitched a
+- [10:21.279] six-inninging shutout, struck out 10
+- [10:23.920] batters and on the other side of the
+- [10:26.000] plate hit an unbelievable three home
+- [10:28.720] runs. In fact, I was watching the game
+- [10:30.320] and before the announcer said it, he
+- [10:32.640] said that might be the greatest game
+- [10:34.000] ever played. The guy shot pitched six
+- [10:37.200] unbelievable innings and got three home
+- [10:38.959] runs, won the game. His herculean effort
+- [10:42.640] sealed the National League pennant and
+- [10:44.720] lifted the Dodgers to the World Series
+- [10:46.640] championship. think of it. You have a
+- [10:48.480] man on the team who pitched perfectly
+- [10:50.640] and hit three home runs, I think, in a
+- [10:53.120] single. And I said to myself, that's the
+- [10:56.560] greatest game ever played by one person
+- [10:58.399] because you did the pitching and the
+- [10:59.839] hitting. And he's not finished yet also,
+- [11:02.480] right? He's not finished. He's got a lot
+- [11:04.160] of them left. That World Series against
+- [11:06.399] the Toronto Blue Jays proved to be among
+- [11:08.640] the most thrilling championships in the
+- [11:10.800] history of the sport. I watched it
+- [11:13.120] because I was having a little a little
+- [11:15.680] bet with the prime minister of Canada.
+- [11:20.160] I had a little bet. I was not feeling so
+- [11:22.480] good for a little while. It wasn't
+- [11:24.320] wasn't looking so good. Neither were
+- [11:25.920] you. [laughter]
+- [11:27.279] >> After splitting the first two games,
+- [11:29.600] game went game three went to extra
+- [11:32.800] innings, forcing this pitching rotation
+- [11:35.360] to grind through some incredibly tough
+- [11:37.279] spots. in the top of the 12th. It went a
+- [11:39.760] long time. Legend Clayton Kershaw.
+- [11:43.200] Where's Clayton? I want to say
+- [11:44.788] [applause and cheering]
+- [11:49.373] [applause] a guy you all winner.
+- [11:51.040] >> He's a winner. You talk about a winner.
+- [11:53.360] Fantastic. Look at that guy.
+- [11:56.880] I watched him beat a lot of our teams
+- [11:58.560] that were supposed to do well. They
+- [12:00.079] didn't do too well against him. And he's
+- [12:02.240] still pitching well, I bet. Right. Well,
+- [12:04.320] he's spending time with the family now,
+- [12:05.680] sir.
+- [12:06.000] >> Well, it's called Yeah, but it is called
+- [12:08.079] ultimately talent, right? Yes. Would you
+- [12:09.920] say talent is the whole ball game? You
+- [12:12.320] could pitch right now. If if they needed
+- [12:14.560] you, you'd be out there, right? No, sir.
+- [12:16.320] >> No, [laughter]
+- [12:20.800] he's smart.
+- [12:23.279] Anyway, Clayton took the mound for his
+- [12:26.240] last time in Dodger Blue. And with the
+- [12:28.480] final pitch of his epic career, and it
+- [12:30.639] was an epic career, he got uh this team
+- [12:33.920] out of a bases loaded jam. That was uh
+- [12:37.920] really something. They picked the right
+- [12:39.519] person. The rest of the bullpen did not
+- [12:41.920] allow a single run, including the very
+- [12:44.079] last addition to the roster. Reliever
+- [12:46.560] Will Klein. Where's Will Klein? Clayton.
+- [12:48.800] Where is Will Klein? Hi, [cheering]
+- [12:50.399] Will. [applause]
+- [12:53.680] That big guy, too. Congratulations.
+- [12:56.959] >> Were you nervous?
+- [12:58.320] >> He was a little nervous.
+- [13:00.160] >> That's great. Thank you, Will. He
+- [13:02.639] pitched four scoreless innings. That's
+- [13:04.320] right. And sent the game to the record
+- [13:06.720] tying 18th inning at almost 3:00 a.m. on
+- [13:10.720] the East Coast. And I actually stayed
+- [13:12.160] up. I was watching it. I was watching
+- [13:15.120] that game. I said, "Will this game ever
+- [13:17.279] end?" It was a long one, but it was
+- [13:19.760] amazing actually. I thought it was a
+- [13:21.760] game that you were going to lose about
+- [13:24.079] four or five times and you ended up
+- [13:25.600] winning. Luck is okay, too, right?
+- [13:27.120] >> Luck is okay.
+- [13:27.839] >> Yeah, it's okay. Well, but with talent,
+- [13:29.760] you get a lot of luck.
+- [13:31.440] >> In the bottom of the 18th with a chance
+- [13:33.440] to end the game, who else would you want
+- [13:36.480] at the plate other than Freddy Freeman?
+- [13:38.880] I love Freddy Freeman. [applause]
+- [13:41.379] [cheering]
+- [13:45.309] >> [applause]
+- [13:48.079] >> I spoke, you know, I was with the
+- [13:49.360] Atlanta Braves yesterday. I said, "Great
+- [13:51.040] going losing Freddy." [laughter]
+- [13:54.000] It's true. I was in Atlanta. I made a
+- [13:55.680] speech and your your general manager and
+- [13:58.880] president of the team, two great people,
+- [14:00.720] by the way, and they do love you. Uh I
+- [14:03.279] wouldn't say they're thrilled, but uh I
+- [14:05.920] talked about I said, "What about Freddy?
+- [14:07.600] Could you have kept him?" And I don't
+- [14:09.680] know the answer to that, but all I know
+- [14:11.040] is you've been
+- [14:12.079] >> just as good here as you have been.
+- [14:13.680] Usually it doesn't work out that way.
+- [14:15.199] You know, you go and it's not quite the
+- [14:18.399] same. We could name a lot of players.
+- [14:20.240] You got I think you may be even better.
+- [14:22.720] Is he doing pretty well? Show. Is he
+- [14:24.399] doing a pretty good job, right, Freddy?
+- [14:26.574] [laughter] He's pretty good. Freddy's
+- [14:28.399] good. Well, they are not happy. Let me
+- [14:30.560] just tell you that. They were very nice
+- [14:32.160] people, but they weren't thrilled that
+- [14:33.680] my bringing your name up on a 3-2 count.
+- [14:37.040] Freddy squared off with a fast ball over
+- [14:39.600] the middle, blasted it 406 ft to center
+- [14:43.040] field, raised his arms high and walked
+- [14:46.560] off a World Series game for the second
+- [14:49.760] year in a row. That was the second year.
+- [14:51.519] That was something. Then World Series
+- [14:54.480] MVP Yoshi Yamamoto. Oh boy, did he pitch
+- [14:58.560] well. Pitched an incredible game six,
+- [15:01.120] sending the Dodgers to an unforgettable
+- [15:03.040] game seven. Where's Yoshi?
+- [15:04.565] [applause and cheering]
+- [15:05.760] Think
+- [15:09.440] about a picture. Tell me
+- [15:12.425] [laughter]
+- [15:15.040] very smart. You are something. That's
+- [15:17.600] great.
+- [15:19.279] You are something. You're both
+- [15:20.639] something. But it's an unforgettable
+- [15:23.120] game. Seven was about to take place
+- [15:25.040] multiple times. This team was one play
+- [15:27.519] away from losing it all. And I knew
+- [15:30.000] that. I mean, you had like four
+- [15:32.000] incidents that you came out on the
+- [15:34.880] right, including the catcher. Where's
+- [15:36.240] the catcher?
+- [15:38.000] >> He's hurt.
+- [15:39.440] >> His foot went back on that plate. You
+- [15:42.320] think I'm playing games? This isn't
+- [15:44.720] >> Most of them would have tried to bluff
+- [15:46.240] it, but he didn't want to do that. He
+- [15:48.079] went back by about a quarter of a second
+- [15:49.759] he got there. If he didn't go back, most
+- [15:52.079] players wouldn't do that.
+- [15:53.519] >> A lot of reasons. A lot of reasons. You
+- [15:55.519] guys are very We're lucky to have them
+- [15:57.600] here, right? But he did a great job
+- [16:00.240] doing that. That play was amazing. And
+- [16:02.079] you had many amazing plays in that game.
+- [16:04.959] And the last two and last three games
+- [16:06.880] down four to three in the top of the
+- [16:09.199] ninth inning. Miguel Rojos slugged his
+- [16:12.720] first home run in over 40 days to tie it
+- [16:15.600] up. I expected he was going to do that.
+- [16:17.440] You know why? I heard he's a winner. I
+- [16:20.079] heard he's a winner. Where is Miguel?
+- [16:22.399] >> Where are you?
+- [16:23.040] >> He's a winner. [applause]
+- [16:28.160] Thank you. [applause]
+- [16:30.720] >> So, did you expect that to happen?
+- [16:33.120] Absolutely. Just say [laughter] you
+- [16:35.600] thought he was gonna That was great.
+- [16:37.680] That was amazing. Actually, in the
+- [16:40.000] bottom of the same inning, he threw out
+- [16:42.480] a Blue Jay. Oh, that's right. You did
+- [16:44.639] that great throw, too. Boy, that was a
+- [16:46.720] hell of a You giving him a little
+- [16:48.399] increase, please?
+- [16:49.519] >> That's his department.
+- [16:50.560] >> All right. So, they That was pretty
+- [16:52.639] good. That was a rather good game for
+- [16:54.560] you, wasn't it? Huh? Was he the MVP of
+- [16:57.519] that game or close? Maybe not.
+- [16:59.600] >> No, I think it was Yamamoto.
+- [17:00.959] >> I don't know. Yeah, that's right. You
+- [17:02.720] had a lot of them.
+- [17:04.000] >> But they were two incredible players.
+- [17:05.520] Good. You still Would you give it to
+- [17:06.959] him? Huh? Got to go with them.
+- [17:09.360] >> They got to go. Great job. But, uh,
+- [17:12.240] sprinting home by a fraction of a
+- [17:14.079] second. That was the one I guess I'm
+- [17:15.520] talking about with a catcher with the
+- [17:16.799] foot, right?
+- [17:17.520] >> Yes.
+- [17:17.839] >> It was unbelievable. His foot was off
+- [17:19.280] the plate, but instead of just sort of
+- [17:22.319] bluffing it like I would do in baseball,
+- [17:24.160] I'd bluff it, you know, like pretending
+- [17:26.160] it was own, he he went and then he went
+- [17:29.600] back and touched the plate. And if he
+- [17:32.000] didn't, that was the end of that game,
+- [17:33.760] right?
+- [17:34.720] >> Unbelievable. Congratulate him. Then
+- [17:37.679] Andy
+- [17:39.600] PZ,
+- [17:41.120] I wanted to get that one right.
+- [17:42.559] >> You got it right.
+- [17:43.360] >> I wanted to get that one right.
+- [17:45.042] [applause]
+- [17:51.760] I had to get that right because the Y is
+- [17:54.559] an H.
+- [17:55.600] >> Yes.
+- [17:56.000] >> And it was easy once they told me that.
+- [17:58.480] I can't get you wrong. I'd be in big
+- [18:00.160] trouble. But Andy came off the bench for
+- [18:04.240] one single play in the outfield. The
+- [18:06.000] Blue Jays drove a deep fly ball over his
+- [18:08.640] head. So he turned and he sprinted over
+- [18:11.600] 120 feet, colliding with his teammate
+- [18:13.679] and making one of the most memorable
+- [18:16.000] catches in the history of the World
+- [18:17.600] Series. It was crazy that catch. That
+- [18:20.160] was unbelievable. And he was put in for
+- [18:23.039] defensive purposes. Was that a good
+- [18:24.960] move? Do you think you have a good
+- [18:26.000] manager? Maybe you did that for
+- [18:27.679] defensive because that was a hell of a
+- [18:30.000] catch.
+- [18:31.679] >> And then two extra innings later, the
+- [18:34.080] Dodd I mean this was truly a great World
+- [18:36.160] Series, right?
+- [18:38.000] >> Yeah. I mean, I watched I was watching
+- [18:40.240] it and I had a reason, but I was
+- [18:42.799] watching it and I thought it was
+- [18:44.240] incredible. Actually, two extra innings
+- [18:46.400] later, the Dodgers scored the go-ahad
+- [18:48.400] run and Yoshi closed out the game on
+- [18:51.200] zero days rest, becoming the first
+- [18:53.440] pitcher in over two decades to win three
+- [18:56.160] games in a single World Series. And he
+- [18:59.360] hit real well, too. This team proudly
+- [19:02.160] brought home the championship for the
+- [19:04.400] USA. And if they managed to repeat this
+- [19:07.120] year, they would become the first team
+- [19:08.720] to win three in a row since the days of
+- [19:11.200] the legendary baseball dynasty, the 1990
+- [19:14.240] New York Yankees. And I was there for a
+- [19:15.919] lot of those games with George
+- [19:17.760] Steinbrand. He was a friend of mine. And
+- [19:19.919] he was a guy. He liked winning.
+- [19:21.840] >> He would do anything to win. He would do
+- [19:23.679] anything to win, I tell you. But you're
+- [19:27.520] doing the same thing. It's amazing,
+- [19:29.039] Mark. Once again, congratulations
+- [19:31.039] everyone on this historic trip, this
+- [19:33.280] great journey that you're on. And uh you
+- [19:35.760] know, I know so many people in baseball,
+- [19:37.280] I know the owners, they work so hard.
+- [19:39.520] They spend so much money on talent and
+- [19:41.919] everything else. And I see you here
+- [19:44.480] again and know probably again and again
+- [19:46.640] and again. And it's a a real talent
+- [19:49.200] between you and Dave and the people that
+- [19:51.200] do all the selecting and these
+- [19:52.640] unbelievable athletes behind me. I have
+- [19:54.400] great respect. Really great respect. So
+- [19:56.799] Mark, if you'd say a few words and then
+- [19:58.400] Dave and I want to thank everybody for
+- [20:00.240] being here. This is really a special
+- [20:01.679] team. It's special uh winners. They're
+- [20:04.160] champions and just unbelievable and I
+- [20:06.640] wouldn't be surprised to see him back
+- [20:08.320] again. Thank you very much.
+- [20:09.919] >> Thank you. Thank [applause] you.
+- [20:19.919] >> Thank you, Mr. President. It's truly an
+- [20:21.840] honor for us to be back at the White
+- [20:23.200] House again. We are so proud of our 2025
+- [20:26.640] championship team and our back-to-back
+- [20:28.799] titles. This is such an exceptional
+- [20:31.360] group of people.
+- [20:32.559] >> Oh, I think start with this.
+- [20:35.200] >> Okay. Yeah.
+- [20:38.400] >> To c Okay, it's backto-back titles and
+- [20:41.679] we're once again here to celebrate with
+- [20:43.120] this great tradition of celebrating a
+- [20:44.640] championship with the president of the
+- [20:45.840] United States.
+- [20:46.640] >> Thank you very much. We're grateful to
+- [20:48.720] be here following another incredible
+- [20:50.640] season with what many believe was the
+- [20:52.559] greatest World Series ever played.
+- [20:54.799] Winning back-to-back championships is an
+- [20:56.640] extraordinary accomplishment, and it
+- [20:58.480] reflects the talent, determination, and
+- [21:01.360] character of everyone in the
+- [21:02.880] organization.
+- [21:04.640] Thank you for welcoming us today, Mr.
+- [21:06.320] President. We're proud of that team and
+- [21:08.320] what has achieved, and we hope to be
+- [21:10.000] back here again next year.
+- [21:11.039] >> Good. Thank you. [applause]
+- [21:17.280] Thank you, Mark. Uh, thank you, Mr.
+- [21:19.039] President. And, um, I had a script, but
+- [21:22.320] I just want to say that, uh, we're very
+- [21:24.080] grateful to be here. And you said the
+- [21:26.000] term uh winners many times and uh this
+- [21:29.760] group of men u and some men that aren't
+- [21:32.799] here that were part of the 25 World
+- [21:34.799] Series championship um were big parts of
+- [21:37.760] this. The support staff, the coaches,
+- [21:39.440] front office ownership, uh men of
+- [21:41.919] character, people of character, and um
+- [21:44.640] we did something that hasn't been done
+- [21:46.080] in over 30 years going backto back World
+- [21:48.400] Series champions. And uh we are going
+- [21:50.720] for a three. We're in the middle of this
+- [21:52.320] season right now, the grind. So, thank
+- [21:54.240] you. Um, the only thing I'll have to say
+- [21:57.919] is I hope when you watch our guys play,
+- [22:00.799] uh, you can be proud and say these guys
+- [22:02.960] do things the right way. Their names are
+- [22:04.880] everywhere on social media, in the news,
+- [22:07.440] but when it comes to, um, winning 11
+- [22:09.919] games in October or 13 last year, these
+- [22:12.799] guys all come together unselfishly. And
+- [22:15.600] you never know what moment is going to
+- [22:17.760] present itself, but we have all these
+- [22:20.320] guys here that are ready uh, when called
+- [22:22.400] upon. So, we're very fortunate to have
+- [22:24.480] these guys and hopefully we got more
+- [22:26.080] Dodger fans. So, thank you very much,
+- [22:27.760] Mr. President. [applause]
+- [22:30.640] >> Great job, Dave.
+- [22:32.559] >> Thank you. Wow. Oh, that looks good.
+- [22:37.039] >> We'd like to present this to you as a
+- [22:40.159] Oh, wow.
+- [22:41.520] >> Oh. Oh, you have to be kidding, huh?
+- [22:46.799] >> Wow.
+- [22:48.880] Do I have to report this? [laughter]
+- [22:52.080] I don't want to report this. That's
+- [22:54.480] beautiful. Thank you very much.
+- [22:55.520] >> Got your name on it. That's right.
+- [22:58.400] That's really [applause]
+- [23:01.039] That's
+- [23:04.559] Thank you, fellas. You know what that
+- [23:05.840] looks like. Thank you very much. And
+- [23:08.320] >> you know what? I'll put it right
+- [23:11.919] >> and a and a World Series jersey.
+- [23:15.679] >> Thank you very much.
+- [23:17.280] >> Thank you. [applause]
+- [23:22.240] And
+- [23:23.760] I I just want to say something I don't
+- [23:25.679] do often, but so right behind me is the
+- [23:28.080] Oval Office. And as I said, this is the
+- [23:29.840] first time we've ever done this here in
+- [23:31.360] the Rose Garden because now it's
+- [23:33.440] equipped to do it. And I hope you like
+- [23:35.200] those cushions because they are 4 in as
+- [23:37.360] opposed to one inch. It's supposed to be
+- [23:39.401] [laughter] one inch like this, like a
+- [23:41.280] little pad. And I said, "Get me the
+- [23:43.360] 4inch ones." They don't make them. Now
+- [23:45.120] they're going to make them after they
+- [23:46.320] see this on television. They'll probably
+- [23:48.880] uh they'll make a fortune with them, but
+- [23:51.360] they are pretty cool. But uh I just want
+- [23:53.679] to say that we're steps away from the
+- [23:56.480] most powerful office in the world, the
+- [23:58.080] Oval Office, where everything begins and
+- [24:00.720] ends and begins. It's all the it there's
+- [24:03.200] nothing like it. Most important people
+- [24:05.360] in the world go in here. We had King
+- [24:07.280] Charles here three weeks ago. We have
+- [24:09.280] President Xi coming in another three
+- [24:11.120] weeks. He's going to be coming here in
+- [24:12.640] September. But people walk into the Oval
+- [24:15.600] Office and no matter who they are, they
+- [24:18.640] just sort of feel sort of different and
+- [24:22.720] it's a great place to negotiate because
+- [24:25.279] everyone's all discombobulated when they
+- [24:27.440] walk in and this is a great time for me
+- [24:28.880] to negotiate with them. So, we do that
+- [24:31.279] as often as possible. But, uh, I did it
+- [24:34.000] with the Dodgers the last time and I'm
+- [24:35.679] going to do it with the Dodgers this
+- [24:36.880] time because we have a special beautiful
+- [24:39.200] coin that everybody loves and everybody
+- [24:41.200] wants. And, uh, if the Dodgers would
+- [24:43.760] like, we're going to walk. And this time
+- [24:45.039] it's much closer because last time we
+- [24:46.720] had to walk all the way from the other
+- [24:48.159] side of the building. There's the
+- [24:49.360] ballroom and the military facility.
+- [24:51.919] Here's the helellipad we're building.
+- [24:53.360] We're building a beautiful helipad after
+- [24:56.640] many years. The hel, you know,
+- [24:58.240] helicopters are landing on the grass.
+- [25:00.720] And the new helicopters didn't do well
+- [25:02.799] on grass. So, we're putting up a
+- [25:05.039] beautiful helipad and have a lot of
+- [25:07.360] things going. We're bringing this
+- [25:09.120] building to a level that it was not at
+- [25:11.120] even when it was first built in 1792, if
+- [25:14.159] you can believe it. So, we're doing
+- [25:15.679] little things. As as a real estate
+- [25:17.200] person, I love doing it. To me, it's an
+- [25:18.880] honor. It's a great honor to do it. But,
+- [25:21.039] so what we're going to do is we're going
+- [25:22.320] to take this unbelievable team to the
+- [25:24.080] Oval Office and we're going to present
+- [25:26.559] them with some great things. And I just
+- [25:28.799] want to thank everybody very much. This
+- [25:30.400] is a special moment and I think
+- [25:32.320] especially because it's the Dodgers and
+- [25:34.559] it's Dave and Mark and people that are
+- [25:37.200] unbelievable in their own right,
+- [25:39.120] unbelievable talents and leaders. Thank
+- [25:40.960] you very much and a job well done. Thank
+- [25:43.200] you. [applause]
+- [25:45.919] Thank you. So, let's go. Come on.
+- [25:51.057] [music]

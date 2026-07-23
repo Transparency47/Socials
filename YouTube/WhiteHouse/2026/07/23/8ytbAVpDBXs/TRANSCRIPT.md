@@ -1,0 +1,633 @@
+<!-- source: https://www.youtube.com/watch?v=8ytbAVpDBXs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 8ytbAVpDBXs -->
+<!-- date_published: 2026-07-23T15:48:17+00:00 -->
+<!-- date_accessed: 2026-07-23T23:29:46.693810+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Jul. 23, 2026
+
+- [00:03.280] Good afternoon, everyone.
+- [00:04.520] >> Good afternoon.
+- [00:05.360] >> Good to see you here today. Good
+- [00:06.640] morning, Gabe. We'll begin today with a
+- [00:08.840] few scheduling announcements. Later this
+- [00:10.920] afternoon, President Trump will welcome
+- [00:12.800] the Los Angeles Dodgers back to the
+- [00:14.720] White House to celebrate their second
+- [00:16.960] consecutive World Series Championship.
+- [00:20.040] Tomorrow night, the President will
+- [00:21.520] attend the White House Correspondents
+- [00:23.360] Association dinner round two,
+- [00:25.440] celebrating free speech and the First
+- [00:27.280] Amendment alongside all of you, members
+- [00:29.560] of the media. The President looks
+- [00:31.480] forward to finishing what he started
+- [00:33.280] before a despicable assassination
+- [00:35.280] attempt derailed the original event back
+- [00:37.160] in April, as we all know, and I
+- [00:38.960] encourage everyone watching tomorrow
+- [00:40.720] night to tune in for what promises to be
+- [00:43.120] a very entertaining and memorable
+- [00:45.360] evening. Looking ahead to next week, on
+- [00:47.920] Monday, President Trump will travel to
+- [00:50.160] Michigan to deliver remarks on the
+- [00:52.200] economy. On Tuesday afternoon, the
+- [00:54.840] President will deliver a tribute
+- [00:56.320] honoring the life and legacy of his dear
+- [00:58.720] friend, Senator Lindsey Graham, at the
+- [01:00.880] National Cathedral. And next Friday, the
+- [01:03.360] President will host the 13th cabinet
+- [01:05.680] meeting of this term of this term at
+- [01:08.240] Camp David, which will be a lot of fun
+- [01:10.480] and something different for the cabinet
+- [01:11.960] to experience together.
+- [01:13.760] Turning now to the economy, a little
+- [01:15.800] more than a year after President Trump
+- [01:17.640] signed the Working Families Tax Cuts
+- [01:19.560] into law, this historic legislation
+- [01:22.040] continues to deliver on its promise,
+- [01:24.920] unleashing a genuine boom for American
+- [01:27.600] workers, families, and small businesses.
+- [01:30.440] The numbers speak for themselves. This
+- [01:32.600] was the biggest tax refund season in
+- [01:34.720] American history, with the average
+- [01:36.640] refund exceeding $3,400,
+- [01:40.000] an 11% increase over the last year.
+- [01:43.720] American families and workers claimed
+- [01:45.920] $82 billion in direct tax relief, and
+- [01:48.840] 97% of filers received a tax cut. More
+- [01:52.720] than 29 million workers claimed no tax
+- [01:55.400] on overtime. More than 35 million
+- [01:58.000] seniors claimed no tax on Social
+- [02:00.120] Security, and nearly 8 million workers
+- [02:02.840] claimed no tax on tips. Thanks to the
+- [02:05.520] other pro-growth pro-growth provisions
+- [02:07.920] in the working families tax cuts, like
+- [02:09.960] making the 20% small business tax
+- [02:12.080] deduction permanent and delivering 100%
+- [02:14.640] expensing for new factories, equipment,
+- [02:16.520] and research, the Trump administration
+- [02:18.720] is setting up American manufacturers and
+- [02:20.800] workers to thrive like never before.
+- [02:24.200] Just this week, the National Association
+- [02:26.320] of Manufacturers, which is the largest
+- [02:28.320] manufacturing association in the
+- [02:30.080] country, released a detailed report
+- [02:32.480] showing exactly how these tax cuts are
+- [02:34.959] driving investment, job creation,
+- [02:36.880] innovation, and long-term growth in all
+- [02:39.360] 50 states. In fact, I'd like to take a
+- [02:41.840] moment to highlight just a few of the
+- [02:43.920] real American businesses that this law
+- [02:46.520] is helping. Pivot Manufacturing in
+- [02:48.959] Arizona made the largest equipment
+- [02:51.040] purchase in company history after the
+- [02:53.320] Trump tax cuts gave them the long-term
+- [02:55.440] certainty to invest with confidence.
+- [02:57.840] Winton Machine Company in Georgia is on
+- [03:00.320] pace for the best year in its history.
+- [03:03.239] Ketchie Inc. in North Carolina was able
+- [03:05.480] to purchase new machinery and expand its
+- [03:07.560] workforce by 25% and Jurgens in Ohio
+- [03:11.480] expanded its brand new facility to
+- [03:13.680] increase production, and they're also
+- [03:15.360] paying their workers even more thanks to
+- [03:17.840] the no tax on overtime provision. These
+- [03:20.480] are not just great statistics. These are
+- [03:22.400] American businesses with the confidence
+- [03:24.519] to grow, hire, and invest right here at
+- [03:27.080] home rather than offshoring their jobs.
+- [03:30.239] And a business opening or expanding in
+- [03:32.080] this country means more opportunity and
+- [03:34.239] higher wages for American workers. It
+- [03:36.720] means a chance for the American dream
+- [03:38.519] for young families, and it means
+- [03:40.040] restoring the belief that we can make
+- [03:42.519] and build things right here at home.
+- [03:45.480] This is what President Trump promised,
+- [03:47.080] and it's exactly what he is delivering
+- [03:48.760] with the help of Republicans in
+- [03:50.239] Congress.
+- [03:51.400] Democrats throw around the affordability
+- [03:53.960] a lot, but when they had the chance to
+- [03:55.800] vote for the largest middle-class tax
+- [03:57.960] cuts in history, they refused. If
+- [04:00.600] Democrats got their way, it would have
+- [04:02.400] meant the largest tax increase in
+- [04:04.400] history, $4 trillion.
+- [04:06.880] 90% of Americans would have seen their
+- [04:08.880] taxes go up, and it would have been a
+- [04:10.720] complete disaster for our economy.
+- [04:13.280] That's the Democrats' solution to,
+- [04:15.120] quote, affordability. It is raising your
+- [04:17.440] taxes. So, I hope the press will cover
+- [04:19.760] more of the massive success stories
+- [04:21.560] resulting from the working families tax
+- [04:23.400] cuts, and point out that every single
+- [04:25.680] Democrat on Capitol Hill voted against
+- [04:28.280] every single common-sense provision that
+- [04:30.560] put more money back into the pockets of
+- [04:32.800] the American people.
+- [04:34.400] Finally, on the energy front, after this
+- [04:36.400] briefing, President Trump will
+- [04:37.720] participate in a historic ratepayer
+- [04:40.400] protection pledge pledge event at the
+- [04:42.440] EPA headquarters down the street. The
+- [04:44.760] President will expand the ratepayer
+- [04:46.560] protection pledge to governors, state
+- [04:48.600] legislatures, developers, and power
+- [04:50.680] providers to ensure that everyone
+- [04:52.600] involved in building and powering data
+- [04:55.080] centers pays their own way, instead of
+- [04:57.320] passing those costs on to hardworking
+- [04:59.240] families. The President will be joined
+- [05:01.400] by Energy Secretary Chris Wright, EPA
+- [05:03.840] Administrator Lee Zeldin, and several
+- [05:05.680] governors who have already signed on to
+- [05:07.560] this pledge. And it has already proven
+- [05:09.600] to be remarkably successful. Nearly 200
+- [05:12.760] additional stakeholders have signed on
+- [05:14.520] since it was first announced announced,
+- [05:16.360] including utilities, data center
+- [05:18.200] developers, public power authorities,
+- [05:20.600] co-ops, and state governors. As a
+- [05:22.840] result, the pledge now covers 80% of all
+- [05:25.919] the power delivered to American homes
+- [05:28.120] and businesses. President Trump's bold
+- [05:30.400] leadership is turning data centers from
+- [05:32.360] a source of concern into engines of
+- [05:34.760] growth and opportunity for communities
+- [05:37.160] across this country, all while cementing
+- [05:39.800] America's dominance over China in the
+- [05:42.080] global AI race. The President is
+- [05:44.440] ensuring the American people are never
+- [05:46.560] left footing the bill so private
+- [05:48.640] companies can benefit. Instead,
+- [05:50.680] President Trump is leveraging the data
+- [05:52.520] center boom to deliver real, tangible
+- [05:55.120] benefits for working families and small
+- [05:57.240] businesses.
+- [05:58.520] So we have a busy day here. Rest
+- [05:59.800] assured, I'll take some questions and
+- [06:01.360] here in our new media seat we have Cam
+- [06:03.160] from Town Hall. Cam, thank you for being
+- [06:04.840] here. Why don't you kick us off today?
+- [06:06.520] >> Thank you. Two quick questions. One on
+- [06:08.600] Congress. First off, Speaker Mike
+- [06:10.640] Johnson passed a continuing resolution
+- [06:12.760] earlier this week. John Thune said he
+- [06:14.920] wants to have a work with Democrats find
+- [06:17.480] a way to fund the government. What is
+- [06:19.280] the White House's stance on the best way
+- [06:21.000] to keep the government funded?
+- [06:22.880] >> Well, the White House's stance is that
+- [06:24.160] the government needs to be funded. This
+- [06:26.000] president and Republicans on Capitol
+- [06:27.800] Hill from both chambers, as you just
+- [06:29.400] mentioned, the House and the Senate
+- [06:31.360] Republicans want to keep the government
+- [06:33.480] open. We want to work together to find
+- [06:35.200] ways to do that and the White House will
+- [06:36.680] continuing will continue to have
+- [06:38.200] discussions with Senate leadership on
+- [06:40.400] the best path forward. I don't want to
+- [06:41.800] get ahead of those conversations, but
+- [06:44.000] the most important thing for the
+- [06:45.160] American people to know is that this
+- [06:46.640] president and this White House wants the
+- [06:48.480] government to remain open, unlike the
+- [06:50.720] Democrats in this town who have been
+- [06:52.520] acting as obstructionists. We've seen
+- [06:54.400] time and time again, they have chosen to
+- [06:56.680] block this administration, to block
+- [06:58.760] Republicans in Congress from keeping our
+- [07:00.400] government open, which does not help
+- [07:02.360] anyone and it especially hurts the
+- [07:04.280] American people who depend on our
+- [07:06.160] government remaining open so they can
+- [07:07.840] access the critical services that our
+- [07:09.760] government provides to so many Americans
+- [07:11.280] across the country. So these
+- [07:12.640] conversations are continuing, but I
+- [07:14.080] think I just made the president's
+- [07:15.520] position quite clear.
+- [07:16.520] >> Thank you. And then on the Saudi Saudi
+- [07:19.160] Arabian nuclear deal, what steps is the
+- [07:21.560] US taking to get Saudi Arabia to sign
+- [07:24.840] the Abraham Accords?
+- [07:26.120] >> Sure. Well, the president himself has
+- [07:28.880] spoken on this many times. His Truth
+- [07:31.120] Social post this morning, and I will
+- [07:32.960] read it for those at home who missed it.
+- [07:34.720] The civil nuclear deal, there will be no
+- [07:36.680] enrichment of material, an important
+- [07:38.720] point being made between the Department
+- [07:40.760] of Energy and Saudi Arabia, which
+- [07:42.600] pertains only to non-military use,
+- [07:45.640] uh will be approved, but is totally
+- [07:47.840] subject to Saudi Arabia joining the very
+- [07:50.400] respected and successful Abraham
+- [07:52.880] Accords. The United States is not
+- [07:54.680] opposed to civil nuclear facilities, as
+- [07:57.000] we all know. Um look, this is a
+- [07:59.760] condition that the president has spoken
+- [08:01.800] about many times with our Gulf and Arab
+- [08:04.880] allies. He wants to see these countries
+- [08:07.360] sign the Abraham Accord. It was one of
+- [08:08.920] the most historic accomplishments of his
+- [08:11.000] first term, and it continues to be a
+- [08:12.840] long-term goal of his to expand those
+- [08:14.720] accords to ultimately come to a place
+- [08:16.520] where the Middle East can be a peaceful
+- [08:18.520] and stable region. And yes, this deal
+- [08:21.520] with Saudi Arabia, the energy deal, is
+- [08:23.360] contingent on this condition as far as
+- [08:25.440] the president is concerned. So, we'll
+- [08:27.160] continue to talk with our Saudi
+- [08:28.480] counterparts to get the deal finalized
+- [08:30.080] and hopefully see them joining the
+- [08:32.039] Abraham Accords very soon. Thank you.
+- [08:34.560] Gabe.
+- [08:35.320] >> Caroline, thank you. With regards to the
+- [08:36.719] Saudi nuclear deal, why was that
+- [08:38.200] condition not mentioned yesterday when
+- [08:40.640] the energy secretary announced it?
+- [08:42.680] >> Well, look, the president is always the
+- [08:44.400] final deal maker, as you know, and this
+- [08:46.080] is something that he has mentioned on
+- [08:47.839] numerous occasions. Going back, I can
+- [08:49.560] provide you with those statements, and
+- [08:52.000] he has said, "If they don't join the
+- [08:54.000] Abraham Accords, the deal is off." So,
+- [08:56.560] we'll continue to have those
+- [08:57.480] conversations with our Saudi
+- [08:58.680] counterparts moving forward.
+- [09:00.080] >> deal is dead if Saudi Arabia doesn't
+- [09:02.040] join. And have you any indication that
+- [09:04.200] Saudi Arabia
+- [09:05.480] is even considering this?
+- [09:06.880] >> Again, we've spoke The president has
+- [09:08.680] spoken directly with the Saudis about
+- [09:10.440] this in numerous conversations in the
+- [09:11.800] past, and the administration will
+- [09:13.400] continue to engage in those
+- [09:14.440] conversations. Alexandra.
+- [09:16.200] >> be exempt from international inspections
+- [09:18.400] as part of this deal if it moves
+- [09:19.640] forward?
+- [09:20.040] >> I don't want to comment on the specifics
+- [09:21.720] of the deal, as we're still, again, as I
+- [09:23.520] just said, talking especially about this
+- [09:25.560] very important condition that the
+- [09:26.760] president raised this morning.
+- [09:28.160] Alexandra.
+- [09:28.800] >> It's good to see you out of your brace.
+- [09:30.040] >> Me too.
+- [09:31.280] >> So, Treasury Secretary Blinken voiced
+- [09:33.360] concern this week on China potentially
+- [09:35.280] distilling or stealing AI technology
+- [09:38.160] from the United States, kind of
+- [09:39.200] manipulating it as their own.
+- [09:41.600] Anthropic said that the largest
+- [09:43.400] distilling attack happened last month.
+- [09:46.240] Do you think this will come up when the
+- [09:47.280] president meets with President Xi in
+- [09:48.840] September?
+- [09:49.720] >> Well, I have had the honor of being part
+- [09:52.440] of some of the meetings and discussions
+- [09:53.880] between President Trump and President
+- [09:55.560] Xi, and I can tell you there is always a
+- [09:57.720] wide range of topics that come up.
+- [10:00.240] I would imagine this would be something
+- [10:02.120] that's of high importance to the
+- [10:03.280] president and of this administration to
+- [10:05.240] obviously ensure that America remains
+- [10:07.360] dominant in the AI race, and we're
+- [10:09.680] obviously tracking the particular
+- [10:11.160] situation that you mentioned.
+- [10:12.440] >> one more if you don't mind. This week
+- [10:13.720] we've seen some major players in
+- [10:15.120] Democrat politics
+- [10:16.760] voicing or alerting really in how much
+- [10:19.040] influence socialism, communism has had
+- [10:22.560] now on kind of mainstream Democrat
+- [10:24.520] politics. Is there any chance that the
+- [10:26.320] president would be interested or is
+- [10:27.800] considering working with left-of-center
+- [10:30.160] Democrats to push back on this?
+- [10:31.920] >> Well, unfortunately, we don't seem to
+- [10:33.480] have too many of those left in the
+- [10:34.840] Democrat Party. We have literal
+- [10:36.600] self-proclaimed communists who are
+- [10:39.200] winning elections and who are claiming
+- [10:41.680] to be the new leadership of the Democrat
+- [10:43.760] Party. I think the vast majority of
+- [10:45.400] Americans understand the dangers of
+- [10:48.080] communism. Just look at countries all
+- [10:50.000] over this world as an example.
+- [10:52.200] Cuba right now is a country that is
+- [10:54.640] about to be a failed state because of
+- [10:56.720] the communist policies of the past
+- [10:58.280] several decades. Communism should never
+- [11:01.080] be allowed to to lead this country, and
+- [11:03.560] the president obviously is is
+- [11:06.280] strictly opposed to it and all the
+- [11:07.600] dangers that it reaps. We've seen it
+- [11:09.960] happen across the world. Meredith.
+- [11:12.440] >> Just to continue on the Saudi nuclear
+- [11:14.640] deal.
+- [11:15.760] Do the [clears throat] Saudis agree with
+- [11:17.000] this interpretation since it wasn't part
+- [11:19.120] of the initial agreement, and has the
+- [11:20.800] president talked to MBS
+- [11:22.920] since this new condition was
+- [11:25.240] >> As you know, the president just put out
+- [11:27.080] the statement a few hours ago. I don't
+- [11:28.800] believe he's had a call uh, with MBS in
+- [11:31.120] the hours since. However, this is
+- [11:33.560] something that he has raised in previous
+- [11:35.120] conversations and has also said many
+- [11:37.040] times in the past. John, in the back, go
+- [11:38.880] ahead.
+- [11:39.320] >> Thanks a lot, Carolyn. In regards to
+- [11:40.920] this deal, in the past the Saudi
+- [11:42.640] government has said they will not
+- [11:44.720] consider entering into the Abraham
+- [11:46.720] Accords unless and until there's a
+- [11:49.760] Palestinian state. What makes you think
+- [11:52.400] that they're going to change their minds
+- [11:54.320] on their position regarding that?
+- [11:56.120] >> Again, I won't get ahead of the
+- [11:57.400] president's conversations, but this is
+- [11:59.120] something that he feels very strongly
+- [12:00.760] about and has spoken about it in the
+- [12:02.120] past and will continue to uphold.
+- [12:04.400] >> Let me ask you one other question, just
+- [12:06.440] playing devil's advocate. Why does Saudi
+- [12:08.440] Arabia get a civilian nuclear deal, but
+- [12:12.120] Iran doesn't get a civilian nuclear
+- [12:14.200] deal?
+- [12:14.800] >> Well, again, this agreement is still
+- [12:16.320] being worked out. It will eventually,
+- [12:18.520] hopefully, be be finalized with the
+- [12:20.280] condition that the president spoke about
+- [12:22.320] this morning. But, this agreement in
+- [12:24.160] particular, as it's been discussed thus
+- [12:25.880] far, does give priority access for
+- [12:27.840] American companies in the Saudi nuclear
+- [12:29.720] energy program, which will ultimately
+- [12:31.960] American industry, workers, and supply
+- [12:33.760] chain. So, the deal that has been
+- [12:35.320] discussed thus far and will continue to
+- [12:37.360] be discussed absolutely puts America
+- [12:39.280] first and that's obviously very
+- [12:40.520] important to this president. Ed.
+- [12:42.400] >> Yeah, thanks. John, so Friday the
+- [12:44.960] section 122, the 10% global tariff, goes
+- [12:47.680] away. Is the president going to ask
+- [12:48.880] Congress for an extension or what's
+- [12:50.560] next?
+- [12:51.360] >> Well, I know the USTR,
+- [12:54.080] our great Jameson Greer, trade
+- [12:55.720] representative, will be having an
+- [12:57.800] announcement on that very soon, later
+- [13:00.000] today. I don't want to get ahead of him,
+- [13:01.480] so I would just tell you to stay tuned
+- [13:02.839] for more details.
+- [13:03.760] >> Okay, and then one more on the
+- [13:05.400] president's going to have some big
+- [13:06.680] utility companies
+- [13:08.360] at this event later on today.
+- [13:10.760] We're now a year and a half, so to
+- [13:12.680] speak, into his
+- [13:14.040] energy pro-energy
+- [13:15.520] policies. Is he going to pressure those
+- [13:17.520] executives to lower energy prices, not
+- [13:19.760] just maintain the prices?
+- [13:21.360] >> Well, look, as I mentioned earlier, the
+- [13:23.200] ratepayer protection pledge at is was
+- [13:25.440] idea uh drawn up by this president and
+- [13:27.960] his team, um to ensure that data centers
+- [13:30.520] in communities where those communities
+- [13:32.040] want data centers, um that these big
+- [13:34.200] CEOs and energy companies are picking up
+- [13:36.520] the tab for the energy costs in these
+- [13:38.280] communities. So, the American taxpayer
+- [13:40.280] not being fronted with those bills, uh
+- [13:42.080] and the pledge today is being expanded
+- [13:43.920] to acknowledge all elements involved in
+- [13:46.480] building and operating data center. The
+- [13:48.440] governors who appoint the state
+- [13:49.760] regulators who set the power prices, the
+- [13:51.840] utilities and the co-ops that sell the
+- [13:54.000] power, and in addition to the tech
+- [13:55.760] companies that have already signed the
+- [13:57.040] pledge, um so you'll continue to hear
+- [13:58.840] more about that from the president in a
+- [14:00.240] few hours at 2:30 when he goes over to
+- [14:02.200] the EPA. Sophia.
+- [14:04.720] >> Have you spoken to the president about
+- [14:06.560] what he wants to do about Chinese AI
+- [14:09.000] models if they are found to have stolen
+- [14:11.160] American
+- [14:12.480] uh IP? Does he want to sanction them, or
+- [14:14.960] what actions can be taken without
+- [14:16.520] undermining broader US-China trade talks
+- [14:18.960] or cutting off American startups that
+- [14:21.200] are increasingly reliant on them?
+- [14:23.080] >> Sure. Well, I won't get ahead of the
+- [14:25.080] president on any potential actions, but
+- [14:27.160] obviously these conversations are taking
+- [14:28.840] place, and again, they're of the utmost
+- [14:30.440] importance not just for our national
+- [14:32.160] security, but to ensure America remains
+- [14:34.200] dominant in this space. Steven.
+- [14:36.320] >> Thank you, Caroline. I have two
+- [14:37.400] questions. Uh has President Trump spoken
+- [14:40.120] with uh FIFA President Gianni Infantino
+- [14:42.839] about his interest in nominating him for
+- [14:44.880] UN Secretary General? Can you explain
+- [14:46.600] his interest there? And secondly, just a
+- [14:48.440] minor point of clarification on the
+- [14:50.400] Saudi nuclear deal, um did Prime
+- [14:52.480] Minister Netanyahu request this
+- [14:54.480] provision?
+- [14:55.520] >> Not to my knowledge, no. Again, as I
+- [14:57.040] told you, this was a an idea the
+- [14:58.760] president has long had. Uh it was the
+- [15:01.000] president and his team in the first term
+- [15:02.720] that uh began and signed the Abraham
+- [15:05.920] Accords with several countries in the
+- [15:07.880] region between those countries and
+- [15:09.440] Israel, um and the president obviously
+- [15:11.400] wants to expand on that historic
+- [15:13.000] accomplishment from his first term. To
+- [15:14.880] your first question about Gianni
+- [15:16.680] Infantino, um I don't know if he and the
+- [15:19.280] president have discussed that. I haven't
+- [15:20.640] been present for all their
+- [15:21.680] conversations. I know they speak quite
+- [15:23.520] frequently and the president has a lot
+- [15:25.400] of respect for Gianni and what he has
+- [15:27.000] done with FIFA. As we all just saw, the
+- [15:29.200] World's Cup was a tremendous success
+- [15:31.160] here at home. It It not only was hugely
+- [15:34.560] beneficial to our businesses and our
+- [15:36.880] local economies across the country, but
+- [15:38.960] I think it showed that America is the
+- [15:40.480] greatest country on Earth and the
+- [15:41.800] president is grateful to Gianni for all
+- [15:44.080] of the efforts that he had to make that
+- [15:46.760] that dream a reality here in the United
+- [15:48.840] States. Danny?
+- [15:50.120] >> Thanks, Karoline. Is President Trump or
+- [15:52.840] the administration, do they have any
+- [15:54.400] plans to intervene in the extradition
+- [15:56.800] process for the Tate brothers?
+- [15:58.680] >> No, we've already answered that
+- [16:00.000] question. Elizabeth?
+- [16:01.320] >> Thank you, Karoline. Secretary Mayorkas
+- [16:02.840] said that election officials that
+- [16:04.280] knowingly allowed non-citizens to vote
+- [16:06.600] could be prosecuted and fined. Is this
+- [16:08.960] option being considered in New Jersey
+- [16:10.680] after the governor revealed that
+- [16:12.440] thousands of non-citizens were
+- [16:13.600] registered to vote there?
+- [16:14.600] >> Well, for any prosecutions, obviously, I
+- [16:16.480] would always defer you to the Department
+- [16:17.840] of Justice, but what I will say on New
+- [16:20.000] Jersey and this governor, the fact that
+- [16:21.840] she just all of a sudden decided to put
+- [16:23.480] out a press release saying President
+- [16:25.320] Trump and Republicans have been right
+- [16:27.040] about non-citizens on our voting rolls
+- [16:29.040] is not a coincidence. I think this
+- [16:31.120] governor is saying this because she
+- [16:32.680] realizes this administration is serious
+- [16:35.200] about getting to the bottom of illegal
+- [16:36.920] aliens voting and being on our voting
+- [16:39.040] voter rolls in our country. The
+- [16:41.920] Secretary of Homeland Security, as you
+- [16:43.560] know, sent a letter to several states,
+- [16:45.440] including New Jersey, requesting that
+- [16:48.160] non-citizens that are on their voter
+- [16:49.760] rolls need to be reported to DHS and
+- [16:51.880] need to be removed from those voter
+- [16:53.280] rolls. So, that's why all of a sudden
+- [16:55.400] she is speaking truth about the fact
+- [16:57.440] that this does take place in states
+- [16:58.960] across the country. It is completely
+- [17:00.720] unacceptable to have non-citizens on
+- [17:03.160] American voter rolls voting in US
+- [17:05.400] elections. And she says it's 6,600. We
+- [17:08.319] suspect it's a heck of a lot more, not
+- [17:10.400] just in New Jersey, but in states across
+- [17:12.000] the country. The president is hell-bent
+- [17:14.000] on getting to the bottom of this. And
+- [17:15.640] it's also why we need to pass the Save
+- [17:17.839] America Act um to ensure that only US
+- [17:21.280] citizens are voting in US elections. And
+- [17:23.839] I understand the House had a great
+- [17:26.240] accomplishment yesterday with passing
+- [17:28.199] the budget resolution, which has as much
+- [17:30.440] of the Save America Act as possible, and
+- [17:32.240] we encourage the Senate um to move
+- [17:34.520] forward with passing that resolution
+- [17:36.480] into law so the president can sign it
+- [17:38.280] into law by the August recess. It's of
+- [17:40.680] the utmost importance to this president,
+- [17:42.920] but also to the American people who
+- [17:44.360] support this bill overwhelmingly.
+- [17:46.880] Mary in the back.
+- [17:48.972] >> [clears throat]
+- [17:52.280] >> Sure.
+- [18:04.720] Um I don't believe he has reached out to
+- [18:06.680] her. Uh I know he is following the
+- [18:08.960] story. As you know, this is something
+- [18:10.880] the president feels strongly about as
+- [18:12.520] well, and the American people do, too.
+- [18:14.440] Um that men should not be playing in
+- [18:16.280] women's sports. It's completely
+- [18:18.000] ludicrous that anyone could support
+- [18:19.680] that. It's even more ludicrous that you
+- [18:22.000] do have Sophia Cunningham, a female
+- [18:24.040] athlete herself, very accomplished in
+- [18:25.880] her own right, coming forth and speaking
+- [18:28.000] that truth, that men shouldn't play in
+- [18:29.480] women's sports. We want to protect women
+- [18:31.480] and girls, and the backlash she is
+- [18:33.080] receiving from Democrats and
+- [18:34.640] left-wingers across the country is
+- [18:36.760] astonishing. They are clearly very out
+- [18:38.680] of touch with the American public on
+- [18:40.680] this issue, which again is an 80/20
+- [18:42.840] issue. It's common sense. It's rude and
+- [18:45.160] basic biological fact um that men should
+- [18:47.640] not be competing against women on
+- [18:49.160] playing fields across the country.
+- [18:51.640] Sure.
+- [18:55.127] >> [clears throat]
+- [19:03.840] >> Uh well, you know, the president did
+- [19:05.480] have a red Tesla uh here at the White
+- [19:07.440] House for quite some time, so he's a
+- [19:08.880] supporter of them. I know he's purchased
+- [19:11.160] uh some self-driving cars for his family
+- [19:13.200] members, his grandchildren. So, I think
+- [19:15.200] he supports them and Americans who want
+- [19:17.440] to want to drive them.
+- [19:19.160] But, with that said, I don't know about
+- [19:21.040] the specific legislation. I will check
+- [19:22.960] in with our legislative affairs office
+- [19:24.520] and we'll get you a statement on that.
+- [19:26.320] Reagan.
+- [19:28.120] >> One question for you on Thune and then
+- [19:30.120] one on Darling Graham.
+- [19:31.960] The president seemed yesterday
+- [19:33.200] frustrated with Leader Thune when he was
+- [19:35.760] speaking in Georgia. Is his patience
+- [19:37.920] running out with Leader Thune? And then
+- [19:40.960] the president recently endorsed Darling
+- [19:42.760] Graham right after her appointment to
+- [19:44.400] Senate. What caused him to endorse
+- [19:46.280] endorse her so quickly?
+- [19:48.160] >> The president met with Darlene and
+- [19:49.760] thought she will be a great
+- [19:51.360] representative for the great people of
+- [19:53.200] South Carolina and will carry on her
+- [19:55.400] brother's legacy of public service in
+- [19:57.760] that beautiful state. So, the president
+- [19:59.400] is fully supportive of Darlene and her
+- [20:01.880] honorable decision to run and again to
+- [20:03.880] continue her brother's legacy.
+- [20:05.960] With respect to your first question on
+- [20:08.880] remind me.
+- [20:10.160] >> Leader Thune and if his patience is
+- [20:11.960] running out.
+- [20:12.440] >> Look, the president spoke about this
+- [20:13.760] directly yesterday. His patience is
+- [20:16.360] running out. He wants to see as much of
+- [20:18.440] the Save America passed as possible by
+- [20:20.920] the August recess. He knows that's what
+- [20:23.000] the American people want to see passed.
+- [20:25.360] He was just traveling on the road
+- [20:27.360] yesterday, spoke about this and there
+- [20:29.440] was a very loud applause from the people
+- [20:32.120] in the audience, the everyday Americans
+- [20:33.800] because voter ID is common sense. They
+- [20:36.680] want proof of citizenship in our
+- [20:38.360] elections and the president feels very
+- [20:40.480] strongly about that and I would just
+- [20:41.920] add, you know, the American people
+- [20:45.440] elected overwhelmingly Republicans to
+- [20:48.080] lead not just this White House but also
+- [20:50.200] the House and the Senate. The House did
+- [20:51.880] its job. The Senate needs to do its job,
+- [20:53.920] too. I know it's a brief briefing today,
+- [20:55.920] but you're going to hear from the
+- [20:56.680] president directly twice today at 2:30
+- [20:59.400] and also at 4:30 and we will see you all
+- [21:01.800] tomorrow night at the Correspondents
+- [21:03.120] Center. Thanks, guys.
+- [21:14.120] >> Mhm.

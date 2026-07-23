@@ -1,7 +1,19 @@
 # TruthSocial / RealDonaldTrump / 2026-07-23
 
-- Posts: 6
+- Posts: 10
 
+- [23:23 UTC - Rick Jackson, from the Great State of Georgia, very successfully campaigned for Governor, ...](116971865115694289/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116971865115694289
+  - Rick Jackson, from the Great State of Georgia, very successfully campaigned for Governor, on being strong with “TRUMP,” and won, against a field of very talented and popular oppone...
+- [23:23 UTC - It is my Great Honor to endorse MAGA Patriot, Tim Fleming, who is running to be the next S...](116971864522910409/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116971864522910409
+  - It is my Great Honor to endorse MAGA Patriot, Tim Fleming, who is running to be the next Secretary of State of the Incredible State of Georgia! A Highly Respected State Representat...
+- [23:23 UTC - Greg Dolezal is a MAGA Warrior running for Lieutenant Governor to represent the Fantastic ...](116971863913562523/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116971863913562523
+  - Greg Dolezal is a MAGA Warrior running for Lieutenant Governor to represent the Fantastic People of Georgia. He is strongly supported by my good friend, and the Peach State’s next...
+- [23:22 UTC - It is my Great Honor to endorse America First Patriot, Brian Strickland, who is running to...](116971862681784017/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116971862681784017
+  - It is my Great Honor to endorse America First Patriot, Brian Strickland, who is running to be the next Attorney General of the Wonderful State of Georgia! A Proven Leader, Brian pr...
 - [22:04 UTC - Please let this statement serve to represent, until further notice, that from this point f...](116971555718513784/)
   - Source: https://truthsocial.com/@realDonaldTrump/116971555718513784
   - Please let this statement serve to represent, until further notice, that from this point forth, any and all damages done to Ships, Cargo, or anything related thereto, will be paid...

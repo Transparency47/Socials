@@ -1,0 +1,810 @@
+<!-- source: https://www.youtube.com/watch?v=ebICSW2yVww -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ebICSW2yVww -->
+<!-- date_published: 2026-07-23T18:59:00+00:00 -->
+<!-- date_accessed: 2026-07-23T23:29:45.693690+00:00 -->
+
+# Transcript: President Trump Makes an Announcement on the Ratepayer Protection Pledge
+
+- [00:00.240] me and I gladly stand up next to you
+- [00:06.240] still today.
+- [00:08.480] There ain't no doubt I love this land.
+- [00:13.280] God bless the USA.
+- [00:28.240] From the lakes of Minnesota
+- [00:31.519] to the hills of Tennessee,
+- [00:35.200] across the plains of Texas, from sea to
+- [00:39.280] shining sea,
+- [00:41.760] from Detroit down to Houston and New
+- [00:45.600] York to LA, where there's pride in every
+- [00:50.239] American heart, and it's fine we stay
+- [00:53.199] the same.
+- [00:58.160] that I'm proud to be an America.
+- [01:31.600] And I'm about to be an American where at
+- [01:35.520] least I know I'm free. And I won't
+- [01:39.680] forget the men who died who gave that
+- [01:43.280] right to me. And I gladly stand up
+- [01:48.560] next to you and defend her still today.
+- [01:53.280] But there ain't no doubt I love this
+- [01:58.479] broadcast.
+- [02:04.960] >> Okay, let's go.
+- [02:07.680] >> Well, thank you very much everybody.
+- [02:10.080] >> I heard about this group and they said,
+- [02:11.760] "Could you come over and run over and
+- [02:13.280] say a few things?" And I said,
+- [02:15.599] "Absolutely, I will." And they gave me
+- [02:18.400] the lowest seat I've ever sat in. They
+- [02:20.400] don't, you know, they set that. They do
+- [02:23.040] that on purpose. I don't think it was
+- [02:25.040] Chris that did it. I'm just trying to
+- [02:26.480] compare. Chris wouldn't do that, but it
+- [02:29.280] happens. The uh it's really an honor to
+- [02:33.200] be with you. Tremendous people and it's
+- [02:35.040] a really important subject. So, I wanted
+- [02:36.640] to be here. I'll say a few words and
+- [02:38.000] then I'll head out and you'll handle it.
+- [02:41.120] And it's something you're very familiar
+- [02:43.120] with. But uh the people in the room are
+- [02:47.840] real doers. Real amazing. It's an
+- [02:50.720] amazing group. We're here today to
+- [02:52.800] continue the incredible progress we're
+- [02:54.800] making in communities nationwide to
+- [02:57.280] ensure that as new data centers go up
+- [03:00.480] and it's uh they're going up all over.
+- [03:02.800] Electricity bills for American families
+- [03:04.720] will actually come down. You know,
+- [03:06.959] you're going to be building your own
+- [03:08.400] data centers and you're going to build
+- [03:10.159] building your own electric plants.
+- [03:12.080] You're essentially becoming a utility
+- [03:15.120] like Khan Edison in New York, but maybe
+- [03:17.760] at a level that nobody's ever seen
+- [03:19.440] before because we've seen some of the
+- [03:20.879] plants that they're building are
+- [03:22.480] absolutely incredible. They're
+- [03:24.640] absolutely incredible. The electric
+- [03:26.879] plants, electric manufacturing plants.
+- [03:30.000] It's hard to believe, but you need
+- [03:31.200] double the electricity that we have
+- [03:32.720] right now, maybe even more than that to
+- [03:34.959] really fulfill what you want to do.
+- [03:36.640] We're leading China by a lot. and uh
+- [03:40.560] using our old grid would not have
+- [03:42.159] worked. And I came up with the idea that
+- [03:44.879] you know build your own plant. This way
+- [03:46.480] nobody can complain. You won't call me
+- [03:48.640] and say what a ter terrible job I'm
+- [03:50.560] doing because we have a 200y old grid
+- [03:54.000] that's uh not the best in the world. You
+- [03:56.319] look at some places, you take a look at
+- [03:58.080] California, you have brownouts and
+- [03:59.920] blackouts every weekend. The last thing
+- [04:01.680] they're going to be able to do is supply
+- [04:03.680] supply electric at numbers. Nobody's
+- [04:06.799] ever explained to me why it why it's so
+- [04:09.200] much electricity uh why you need so much
+- [04:12.400] nor did I care that much to be honest
+- [04:14.080] with you. All I know is you need more
+- [04:15.680] than double what we produce right now.
+- [04:17.280] Think of it. So we produce tremendous
+- [04:20.400] amounts of electricity for every
+- [04:21.919] business and this industry needs more
+- [04:24.800] than double that amount. So we're
+- [04:27.040] letting you build your own with the
+- [04:28.880] Trump administration's rateayer
+- [04:31.440] protection plan. the American innovators
+- [04:34.479] and consumers thrive to win together
+- [04:37.440] because we're insisting that AI data
+- [04:40.320] centers and big tech companies pay their
+- [04:43.040] own way. And that's what they're doing.
+- [04:44.720] And they're happy to do it because this
+- [04:47.199] way they're going to be able to function
+- [04:49.919] and function brilliantly. They're going
+- [04:52.080] to have a lot of electricity left over
+- [04:53.919] and they'll put that into the grid. So
+- [04:56.160] we'll actually end up with more
+- [04:57.440] electricity. The rates are going to go
+- [04:58.880] down. And as president, I've always said
+- [05:00.960] that America's goal must be to dominate
+- [05:03.199] the future. And that includes being the
+- [05:06.080] number one superpower in artificial
+- [05:08.080] intelligence. So important. And this is,
+- [05:10.800] I think, bigger than the, frankly, I
+- [05:12.240] think it's bigger than the internet.
+- [05:14.160] It's bigger than any anything's seen
+- [05:16.800] thus far. Maybe someday there'll be
+- [05:18.639] something bigger than this. Probably
+- [05:20.160] will. But I think up until this point,
+- [05:23.360] AI is probably the biggest thing
+- [05:25.039] anybody's ever seen. And whoever wins
+- [05:28.000] that race is probably going to win.
+- [05:29.680] Period. And again, we're leading China
+- [05:32.000] and we want to keep it that way.
+- [05:33.199] President Xi is coming over in September
+- [05:35.280] 24th. And we talked about it when I was
+- [05:38.080] over in Beijing and we'll be talking
+- [05:41.120] about it again. But he was very
+- [05:43.199] impressed with the job we've done
+- [05:44.639] because uh ordinarily, you know, they
+- [05:47.600] don't have any problem with electric.
+- [05:49.120] They build a lot of electric. They don't
+- [05:51.280] do environmental impact statements. They
+- [05:53.120] just say, "You want electric? We'll
+- [05:54.479] build it." They don't use too many
+- [05:56.320] windmills. They make the windmills, but
+- [05:57.919] they don't use them. They uh they do it
+- [06:00.639] the oldfashioned way in many ways. The
+- [06:02.479] United States never settles for second,
+- [06:05.360] and we don't under this administration.
+- [06:07.280] I can tell you that. You see that
+- [06:08.720] because we have the hottest country
+- [06:10.720] right now anywhere in the world. We live
+- [06:12.400] by the motto America first. That's
+- [06:14.240] what's made us very strong. And we're
+- [06:16.479] leading China and all other countries by
+- [06:19.120] a lot in AI and just about every other
+- [06:22.000] category,
+- [06:23.759] including crypto. We want to stay in
+- [06:25.759] front in crypto. They'd love to take
+- [06:27.360] that over. So many other things they'd
+- [06:29.759] like to take over. They're highly
+- [06:31.199] competitive if if you haven't noticed.
+- [06:33.840] But thanks in part to this incredible
+- [06:35.680] technology boom, investments are pouring
+- [06:38.319] into the United States from all over the
+- [06:40.240] world. 19.2 2 trillion dollars creating
+- [06:44.400] hundreds of thousands of jobs. So think
+- [06:46.479] of it, 19.2 trillion in 12 months. Okay?
+- [06:51.120] And the previous administration had less
+- [06:53.440] than 1 trillion in four years. I would
+- [06:56.960] say that's an improvement. Do I get
+- [06:58.960] credit for it? No.
+- [07:02.479] And no credit.
+- [07:04.800] Think of that. It's a 19.2 two in 12
+- [07:08.400] months versus less than one in four
+- [07:11.520] years. It's hard to believe, right? But
+- [07:13.039] that's the way it is. No credit, but we
+- [07:15.280] just keep chugging along. But as I say,
+- [07:17.520] I say I get no credit for anything. And
+- [07:19.520] then I look around the Oval Office, I
+- [07:21.120] said, "Oh, but we're in the Oval Office,
+- [07:22.800] so I guess we do get credit."
+- [07:25.360] But less than two years ago, our country
+- [07:27.440] was dead. And I've had this said by so
+- [07:30.080] many leaders. They use the expression a
+- [07:31.919] little bit different sometimes, said
+- [07:33.520] differently, but meaning the same thing.
+- [07:35.120] may say sir less than two years ago your
+- [07:38.560] country was dead and now you have the
+- [07:40.800] hottest country anywhere in the world
+- [07:42.880] and we are the hottest in the world at
+- [07:45.280] the same time we know that the data
+- [07:46.960] centers and AI are dramatically
+- [07:48.880] increasing the demand for electricity
+- [07:50.800] it's only fair that the cost of building
+- [07:53.120] the new infrastructure required to meet
+- [07:55.039] this demand should be borne by the
+- [07:57.199] corporations themselves not by the
+- [07:59.680] American consumers and the American
+- [08:02.080] patriots American citizens And uh I
+- [08:05.280] think everybody agrees to it and
+- [08:06.800] actually they really don't have a choice
+- [08:08.560] because there's no way of producing that
+- [08:10.160] kind of electricity, the kind you need
+- [08:12.400] and they want to do it themselves and
+- [08:14.080] honestly they're coming up with some
+- [08:15.520] plants that are genius just like just
+- [08:19.680] like they are. That's why earlier this
+- [08:22.080] year I introduced the rateayer
+- [08:24.160] protection pledge. Under this
+- [08:26.560] groundbreaking plan, America's largest
+- [08:28.400] tech companies have formally committed
+- [08:30.479] to fund or build all energy
+- [08:32.959] infrastructure required to meet the
+- [08:34.719] demand they are placing on the grid. So,
+- [08:37.519] they're going to be funding all of those
+- [08:39.279] electric needs and we're giving them the
+- [08:41.680] right to build their own power plants.
+- [08:43.360] Lee Zeldon is here. He's phenomenal and
+- [08:46.160] he's getting it done quickly. And
+- [08:49.760] thank you very much.
+- [09:00.640] He is phenomenal. He's incredible. He's
+- [09:02.640] an MVP candidate, I will tell you. He is
+- [09:06.399] doing things at levels. And by the way,
+- [09:08.560] everything perfectly. Uh he's totally
+- [09:11.040] into the environment, but he's getting
+- [09:12.640] things done in two, three, four weeks
+- [09:14.959] that used to take years and years. And
+- [09:18.560] uh people are getting their approvals
+- [09:20.080] and they're building buildings. because
+- [09:21.200] we're building more buildings now,
+- [09:22.720] plants and uh all sorts of manufacturing
+- [09:26.000] capability that we've never done
+- [09:28.080] anywhere near it many many times. And
+- [09:30.720] companies are pouring in. Toyota the
+- [09:33.120] other day, as you know, announced that
+- [09:34.480] they're moving into our country from
+- [09:37.600] Mexico. They're going to be I think
+- [09:39.600] closing up a lot of their operation,
+- [09:41.279] maybe all of it in Mexico. They're
+- [09:42.800] moving to this country. We have uh many
+- [09:46.080] car we have more car plants being built
+- [09:48.080] now in the United States than at any
+- [09:50.240] time in history. And you know we went
+- [09:52.800] years before me. We went many years with
+- [09:56.160] no car plant being built. I mean they
+- [09:58.080] wouldn't even think about building in
+- [09:59.600] this country. Now we're the hot same
+- [10:02.320] thing with chips. We'll have about 50%
+- [10:05.760] by the time this term is over. We're
+- [10:08.000] going to have probably 50% of the chip
+- [10:10.240] market. uh a year ago when we began uh
+- [10:14.399] we had no chip market. We had virtually
+- [10:16.320] none other than Intel. We had Intel and
+- [10:19.040] we made a purchase of 10% of Intel. We
+- [10:21.839] got it for the right price and we made
+- [10:24.399] approximately 72 billion on that deal.
+- [10:28.000] So it was good. Do I get credit for that
+- [10:29.839] one? No. I get no credit.
+- [10:35.040] None.
+- [10:38.399] So we did that and we have we made a lot
+- [10:40.399] of great deals I'll tell you. We keep it
+- [10:42.240] going too. But Intel's been fantastic.
+- [10:44.800] One of the hottest companies anywhere in
+- [10:47.360] the country and when we met them they
+- [10:49.200] were really having very big difficulty.
+- [10:51.680] We worked with them but uh the stock
+- [10:54.480] price has gone up many times. I think
+- [10:55.920] it's maybe the hottest or one of the
+- [10:57.279] hottest anywhere in the world. So it was
+- [11:00.560] an honor to do it. I love looking good.
+- [11:03.279] But we made a lot of money. We made I
+- [11:04.800] guess over 70 72 billion dollars on that
+- [11:07.360] profit. They've uh also agreed to invest
+- [11:10.640] heavily in local communities where data
+- [11:12.800] centers are built supporting job
+- [11:14.880] training and local services. They're
+- [11:17.360] really spending a tremendous amount of
+- [11:18.959] money. In other words, they're the
+- [11:20.079] governors in the room. You have great
+- [11:22.399] governors in this room. And these
+- [11:24.959] companies are spending tremendous
+- [11:26.399] amounts of money on the communities, the
+- [11:29.200] local communities. So I think it's
+- [11:32.000] important that we tell the local
+- [11:33.279] communities that because other nations
+- [11:36.320] are trying to get us to slow down and
+- [11:40.160] they are spending a lot of money on uh
+- [11:42.720] propaganda on press PR trying to
+- [11:47.279] convince everybody that this isn't a
+- [11:49.600] positive thing and if we don't do this
+- [11:51.279] we're going to be left behind and even
+- [11:53.360] communities compared to other
+- [11:54.640] communities. You have some communities
+- [11:55.920] that really want this. This isn't all
+- [11:58.160] negative stuff. This is you have
+- [11:59.680] communities that really want the data
+- [12:01.519] centers and frankly those are the smart
+- [12:04.079] communities because it means tremendous
+- [12:07.200] numbers of jobs uh very little actual
+- [12:10.880] disruption and the ones that don't want
+- [12:13.360] it. You know, the happiest people in the
+- [12:15.519] world are foreign countries, number one,
+- [12:17.519] and number two, other communities within
+- [12:19.760] our country, because they're begging for
+- [12:21.200] them to be there. And some of them are
+- [12:23.360] great communities, very, very uh
+- [12:26.079] forwardlooking
+- [12:27.600] communities, very smart communities.
+- [12:29.519] Since I introduced this plan just a few
+- [12:32.079] months ago, more than 220 utilities,
+- [12:34.399] tech companies, state governments, and
+- [12:36.639] other partners have signed our rateayer
+- [12:39.440] protection pledge. electricity rates for
+- [12:42.639] 80% of the power distributed in America
+- [12:44.959] are now being kept in check by the plan.
+- [12:48.639] We have uh kept rates down, way down.
+- [12:51.440] You know, we inherited the worst
+- [12:52.720] inflation in the history of America from
+- [12:55.120] the Biden administration. And as you
+- [12:57.839] know, uh last week it was announced that
+- [13:01.120] inflation is way down. It's down more
+- [13:04.000] than it's been in over six years. And
+- [13:07.120] other things are happening that are so
+- [13:08.959] fantastic. when these all these
+- [13:11.519] buildings, plants, factories that we're
+- [13:13.279] talking about start opening up, all I
+- [13:15.600] know is I'd like to be the next
+- [13:16.880] president because I'm going to make
+- [13:18.800] somebody look very good. They're going
+- [13:20.480] to sit there and all this stuff is going
+- [13:22.480] to be opening and they're going to be
+- [13:24.399] saying what a genius they are. That
+- [13:26.240] happened with Biden. I got cuts in
+- [13:28.720] medicine prices that statutoily took two
+- [13:31.920] or three years and I got these
+- [13:33.839] tremendous cuts and then they sat there
+- [13:36.240] said, "Oh, yeah." They didn't even know
+- [13:37.839] where they came from, but I got them.
+- [13:40.079] And this is going to be a much bigger
+- [13:41.760] example. You have all these plants are
+- [13:44.000] going to be opening up over the next two
+- [13:45.680] years, sooner, but two years. And
+- [13:49.120] somebody's going to look very, very
+- [13:50.399] smart. And I hope you remember me
+- [13:52.000] because what we've done is something
+- [13:54.320] that nobody thought was possible. For
+- [13:56.079] example, Southern Companies, Georgia
+- [13:58.959] Power has frozen base rates for
+- [14:01.199] households until 2029.
+- [14:04.480] Is anybody here from Georgia Power? Huh?
+- [14:09.760] There's a a certain governor who's here.
+- [14:12.320] A certain governor who's here.
+- [14:14.000] Congratulations. Good job. That's a
+- [14:16.639] great job. I've heard about it.
+- [14:18.399] Congratulations to both. And it's
+- [14:20.560] fantastic. And Georgia, the revenue from
+- [14:24.480] Google's data center construction is
+- [14:26.800] allowing them to eliminate property
+- [14:28.560] taxes entirely. And that's what you call
+- [14:30.959] using it to your advantage. The numbers
+- [14:32.880] are so incredible. Nobody's ever seen,
+- [14:36.399] you know, all my life, the biggest
+- [14:38.639] building in the whole world was the
+- [14:40.079] Pentagon. And you can fit 25 Pentagons
+- [14:43.760] into some of these buildings. 25. And if
+- [14:46.800] you happen to be a community, what? And
+- [14:48.480] there's very little disruption. They're
+- [14:50.240] just large. They go on for miles. And
+- [14:53.519] frankly, if you like certain types of
+- [14:55.519] things, they're incredible to look at to
+- [14:57.760] see that we could do something like
+- [14:59.680] this. But they also throw off tremendous
+- [15:02.160] amounts of money for the community. And
+- [15:04.079] when you look at Georgia and you look at
+- [15:05.600] the revenue, think of that revenue from
+- [15:07.199] Google's data center construction
+- [15:08.800] allowing them to eliminate all property
+- [15:12.000] taxes. Did you know that, Brian? That's
+- [15:14.240] not bad, right? So, thank you very much.
+- [15:17.279] Great job. That's a great job. And you
+- [15:19.839] probably had some negative uh stuff, a
+- [15:21.839] little heat. Oh, we don't want a data
+- [15:23.760] center. Uh, usually those are the people
+- [15:26.079] that actually want them and uh they'd
+- [15:28.560] like you not to build them because you
+- [15:29.839] know what? If it doesn't go to you and
+- [15:31.199] if it doesn't go to Georgia as an
+- [15:32.639] example, it's going to go someplace
+- [15:34.320] else. And those people are very happy to
+- [15:36.720] get them too. The smart people. American
+- [15:39.360] Electric Power now projects that their
+- [15:42.399] customers will enjoy as much as $16
+- [15:44.959] billion in cost offsets for consumers
+- [15:48.160] thanks to their data center contracts.
+- [15:51.519] 16 billion dollars. So think of that.
+- [15:54.240] That's cost offsets in Iowa. Aliant
+- [15:58.560] energy data center deals. Where where
+- [16:01.440] are you? Aliant. Aliant. Where are you?
+- [16:04.720] Are you here?
+- [16:06.639] Thank you. Uh data center deals are
+- [16:10.320] allowing them to freeze electric rates
+- [16:12.320] for consumers for at least five years.
+- [16:14.880] So your rates are going to stay the same
+- [16:16.639] or lower. In Louisiana, there's a guy
+- [16:19.759] looks like he's from Louisiana to me.
+- [16:22.880] public school teachers in Richard. So,
+- [16:25.759] think of that. Richland Parish are
+- [16:27.600] getting as much as $50,000 in bonuses
+- [16:31.040] this year thanks to a 27 billion project
+- [16:34.160] by Meta that will also save local
+- [16:36.720] residents $2.6 billion on their
+- [16:39.519] electricity bills. Their electricity is
+- [16:41.759] going down in less than a month.
+- [16:50.399] That's big stuff, Mr. Governor. Right.
+- [16:52.480] You didn't have any doubt about it.
+- [16:54.000] Here's a governor doing a great job. We
+- [16:57.040] have some really great governors in this
+- [16:58.959] room. With the rateayer protection
+- [17:01.519] pledge, we're creating a fair deal for
+- [17:04.079] everybody. This is how we'll grow our
+- [17:06.079] economy, lower the cost of living,
+- [17:08.400] protect American consumers, and lead the
+- [17:10.880] world in AI and high-tech all at the
+- [17:13.919] same time. We want to lead the world.
+- [17:15.600] And and it is said, if you come in
+- [17:17.360] second, you're going to be second
+- [17:18.559] overall because there's never been
+- [17:20.559] anything big like this. There's never
+- [17:22.000] been like in Georgia there's there's no
+- [17:24.160] other thing you can do to create numbers
+- [17:26.559] like you've created Bri and both of you
+- [17:29.039] there's no other thing you can do a
+- [17:30.320] hundred different deals 100 it is
+- [17:32.640] nothing close to what you've been able
+- [17:34.480] to do and why they put a big gorgeous
+- [17:36.880] new plant in a certain location big deal
+- [17:39.600] it's so it's so incredibly positive
+- [17:42.559] unfortunately there are some who would
+- [17:44.720] like to lead us down the opposite path
+- [17:48.559] and I call them the radical left
+- [17:50.160] communists I call them socialist, but
+- [17:51.840] these people are communists. Actually,
+- [17:53.280] more I think it's a much more accurate
+- [17:55.200] term. Want to shut down all new
+- [17:57.679] development, kill our most successful
+- [17:59.600] industries, destroy hundreds of
+- [18:02.000] thousands of jobs, and surrender the AI
+- [18:05.039] race to China. And China, look, you
+- [18:07.760] know, I I'm not blaming them. I have a
+- [18:10.000] lot of respect for them. Have a lot of
+- [18:11.840] respect for President Xi. But they
+- [18:14.160] represent China. We represent the United
+- [18:16.320] States of America. And they lobby
+- [18:19.440] against these things. and they spend
+- [18:21.200] money on it and they want communities to
+- [18:24.080] reject them as much as possible because
+- [18:26.000] they'd like to be leading the race. But
+- [18:28.080] we're leading the race and unless we're
+- [18:30.160] very foolish and frankly very stupid,
+- [18:32.640] we'll continue to lead the race. We're
+- [18:34.559] we have a nice lead. A lot of people
+- [18:36.480] didn't expect that was possible. Perhaps
+- [18:38.960] even worse, the radical left's plans
+- [18:40.799] would not lower your electricity bills,
+- [18:43.520] but they would actually increase them
+- [18:45.520] very substantially because you wouldn't
+- [18:47.120] have all of this money pouring in. You'd
+- [18:50.240] have uh American energy would be far
+- [18:53.360] more expensive and regulating oil,
+- [18:55.679] natural gas, and clean, beautiful coal.
+- [18:58.799] It would be the end of all of it. Be the
+- [19:01.360] end of all of it. Would be the end of
+- [19:03.360] frankly, it would be end the end of
+- [19:05.200] great success for our country because
+- [19:07.039] we've never had anything like what's
+- [19:08.799] happening right now. The I call them the
+- [19:11.679] Democrats because their policies are so
+- [19:13.760] bad. Look, think of it. No men. We want
+- [19:17.679] no men in women's sports. Transgender.
+- [19:21.679] They want transgender for everybody.
+- [19:24.320] Trans I call transgender mutilization of
+- [19:27.120] your children for everybody. Open
+- [19:29.360] borders where the world can pour in.
+- [19:31.840] Where prisons from all over the world
+- [19:33.679] are released into our country. And we've
+- [19:35.760] done a hell of a job in getting them
+- [19:37.200] out. Murderers. 11,888
+- [19:40.880] murderers
+- [19:42.400] let into our country under the previous
+- [19:44.880] administration. We've gotten a lot of
+- [19:46.400] them out. We're getting the rest of them
+- [19:47.679] out fast. But the Democrats in Congress
+- [19:51.840] want less energy, not more. And if given
+- [19:54.000] the chance, they'd send your prices
+- [19:56.080] soaring and inflation skyrocketing,
+- [19:57.919] which is exactly what would happen if
+- [20:00.320] you had somebody else sitting in the
+- [20:01.760] position that I am right now. And just
+- [20:04.880] like we did with the Green New Scam
+- [20:07.600] where we were scammed, the whole country
+- [20:09.280] was I wasn't scammed. I got it right
+- [20:11.039] from the beginning. I got it from the
+- [20:12.799] first minute when I heard this crap. You
+- [20:15.360] know, they were saying wind was so
+- [20:17.200] wonderful. So wonderful. Except you
+- [20:19.200] couldn't watch your television. They
+- [20:21.200] wanted to watch the debate. Donald Trump
+- [20:23.760] against sleepy Joe Biden. Nobody could
+- [20:25.440] watch it because the wind wasn't
+- [20:26.720] blowing. Remember that. Darling would
+- [20:29.120] like to watch the debate tonight. I'm
+- [20:30.640] sorry. The wind isn't blowing. Now
+- [20:33.280] that's one of the great scams of all
+- [20:35.039] time. But you know, if you if you
+- [20:37.600] dislike another country, let them keep
+- [20:39.360] building windmills. They are going down.
+- [20:41.200] People are finally figuring it out. But
+- [20:43.440] we're not going to let it happen to this
+- [20:44.960] country. We're going to be uh we're
+- [20:46.880] going to use the kind of things that
+- [20:48.159] work and they're working better than
+- [20:51.280] anybody ever thought possible. So
+- [20:53.120] experts have observed that the amount of
+- [20:55.919] energy a society produces is the single
+- [20:59.600] greatest indicator of its advancement as
+- [21:02.799] a civilization, its success as a
+- [21:05.200] country. Think of it when you when you
+- [21:07.760] think the amount of energy produced Lee.
+- [21:11.120] So when you give those fast approvals,
+- [21:12.799] that's a positive thing. I want I want
+- [21:14.880] you to feel good. Yet instead of
+- [21:17.360] offering a positive version and vision
+- [21:20.559] for carrying American civilization to
+- [21:23.039] new heights, the radical left only wants
+- [21:25.440] to limit our energy consumption and
+- [21:28.080] reign in our American dreams. We have
+- [21:30.159] the American dream. Until we came along,
+- [21:33.440] the first we had a great first term. We
+- [21:36.080] had the greatest economy in the history
+- [21:37.679] of our country and this economy will
+- [21:40.240] blow it away. We're doing very well
+- [21:42.799] against the Islamic Republic of Iran.
+- [21:47.120] We're doing extremely well. They would
+- [21:49.360] like to do something, but I say they're
+- [21:51.039] not ready yet. They need more of the
+- [21:53.200] same. They're not ready yet. They got
+- [21:55.600] some evil intentions. We cannot let them
+- [21:57.760] have a nuclear weapon. If we did all
+- [22:00.320] this that I'm talking about about your
+- [22:02.240] data centers, isn't that important? when
+- [22:05.200] they start blowing away communities uh
+- [22:07.919] one by one, we cannot let them ever even
+- [22:12.000] think about having a nuclear weapon. And
+- [22:14.480] that's exactly what's happening. They'll
+- [22:16.080] never have a nuclear weapon under the
+- [22:24.159] and by the way this should have been
+- [22:25.600] this should have been done by other
+- [22:27.200] they've been saying 47 years now for
+- [22:29.120] about three years but this should have
+- [22:31.200] been done for 50 years by other American
+- [22:33.679] presidents or other countries didn't
+- [22:36.240] have to be us but it seems to if we
+- [22:38.320] don't do it nobody else is but I will
+- [22:40.640] and nobody else has the capability to do
+- [22:42.640] it either we built in my first term the
+- [22:44.960] greatest military anywhere in the world.
+- [22:47.280] And we're using it a little more than I
+- [22:48.960] thought, but that's all right. We had
+- [22:50.720] Venezuela that Chris is doing a
+- [22:52.400] fantastic job. And we've paid for the
+- [22:54.880] cost of that war many times over. We're
+- [22:56.960] taking millions and millions of barrels
+- [22:59.440] of oil and it's going to Houston and
+- [23:01.120] Louisiana. You know that you see those
+- [23:03.520] ships lined up. And uh again, we've paid
+- [23:07.520] for that many, many times over. And we
+- [23:09.840] have a great relationship with
+- [23:11.919] Venezuela. And the people are happy in
+- [23:14.320] Venezuela right now. They can't believe
+- [23:16.159] what's happened. We have the biggest
+- [23:17.919] companies, the biggest oil companies in
+- [23:19.520] the world going in and doing business
+- [23:21.120] like nobody ever thought possible. And
+- [23:23.440] we're taking some. We should. And
+- [23:26.000] they're taking they're taking some. And
+- [23:28.240] you know, it's very interesting that uh
+- [23:30.799] they're making more money. Chris was
+- [23:32.320] showing me some numbers. They're making
+- [23:33.600] more money, Venezuela now, than they've
+- [23:36.080] ever made before.
+- [23:38.240] And uh and we're making a lot, too. And
+- [23:41.919] I think we're entitled to that. So it
+- [23:43.679] was really something. We took that. It
+- [23:45.280] was a one-day war. Took one day. People
+- [23:47.600] said, "Oh, we're going to be tied up
+- [23:49.039] there forever." And here, you know, we
+- [23:51.440] were in Vietnam for 20 years, lost
+- [23:54.480] thousands and hundreds of thousands of
+- [23:56.480] lives. But thousands and thousands of
+- [23:59.039] lives. We were in Afghanistan for years.
+- [24:02.320] We were in all these wars that you heard
+- [24:05.039] about for years and years. We were, you
+- [24:08.880] know, never I called them never ending
+- [24:10.640] wars. Well, we're in for four months and
+- [24:13.520] we uh I had a very sad day yesterday. I
+- [24:15.840] went to do four great American patriots
+- [24:19.200] killed. That's 18 in two wars. And one
+- [24:21.840] is too many, but it's 18. Whereas in
+- [24:25.200] Vietnam, we lost 200,000. We lost
+- [24:29.120] thousands and thousands in Afghanistan.
+- [24:32.159] We lost thousands in every war. The
+- [24:34.159] Korean War, thousands. And they these
+- [24:36.080] wars all lasted for years. And we want
+- [24:37.919] to get it over with. And we want to do
+- [24:40.000] it right, but we have to we have to do
+- [24:42.960] what we came to do. And that's we can't
+- [24:44.720] let these people have very violent
+- [24:47.440] people. We can't let them have what they
+- [24:48.960] want, which is nuclear weapons. It came
+- [24:52.640] from all of this success came from
+- [24:55.520] innovation and ambition and drive. In
+- [24:57.679] this country, we build the future
+- [24:59.840] fearlessly and confidently so that
+- [25:02.480] America always will be strong,
+- [25:04.240] prosperous, and dominant. And the other
+- [25:07.279] thing we're going to add to that, we
+- [25:08.480] want to be free. And we're going to
+- [25:09.600] continue to be free as long as we're
+- [25:11.279] smart. And we can't be hoodwinkedked. We
+- [25:15.520] can't be taken advantage of by people
+- [25:18.080] that say you're going to have a free
+- [25:19.279] home. You're going to get free rent.
+- [25:21.360] Everything's going to be free. What they
+- [25:22.559] don't say is a year later everything is
+- [25:24.240] going to be end up in squalor,
+- [25:26.240] destruction, and death. And also death
+- [25:28.960] for our country. So, we have to stop the
+- [25:32.080] threat of the communist rhetoric that
+- [25:34.799] you're hearing right now because these
+- [25:36.559] people, they don't act I'm very happy a
+- [25:39.279] poll came out. It said they're highly
+- [25:40.880] educated but doing very poorly. In other
+- [25:44.400] words, they're losers. They went to
+- [25:47.120] school. They got a good education. Now,
+- [25:49.360] they can't they don't know what they're
+- [25:50.880] doing. So, what they do is they complain
+- [25:52.640] about people like yourselves that have
+- [25:54.640] done so well. But we can't let the
+- [25:56.960] communist ideology even we don't want to
+- [25:59.840] even think about it for this country. It
+- [26:01.440] would be terrible. So we're joined today
+- [26:03.679] by some of the people helping to do all
+- [26:06.400] of the things that I just talked about
+- [26:08.240] putting the rateayer protection pledge
+- [26:10.480] into action. And here with us are
+- [26:13.760] Secretary of Energy Chris Wright who's
+- [26:16.240] an outstanding person. Doug Bergam told
+- [26:18.960] me about Chris. I didn't know Chris. I
+- [26:21.200] wanted Doug to head up energy and Doug
+- [26:22.880] said no there's one man that's better
+- [26:24.480] who Chris Wright. I said, "Who the hell
+- [26:26.080] is that?" Turned out to be this guy
+- [26:28.400] right over here. And he's turned out to
+- [26:30.640] be incredible. Really incredible. He's
+- [26:33.039] running Venezuela. He's run running a
+- [26:36.240] lot of more than anybody has ever run
+- [26:38.320] before, I think we can say, Chris.
+- [26:39.840] Right. He's doing a great job. So, we
+- [26:41.520] appreciate it. Thank you.
+- [26:50.080] a friend of mine, the governor of
+- [26:51.600] Louisiana, Jeff Landry, popular guy,
+- [26:54.240] really smart, street smart, and books
+- [26:56.400] smart, which is a rare combination, by
+- [26:58.880] the way. We have the governor of
+- [27:01.279] Nebraska, Jim Pillan, who's done a
+- [27:04.240] fantastic job. He's a very Where is Jim?
+- [27:06.640] Is there any place? Where are you? Oh,
+- [27:09.520] hello, Jim. You're looking good. You
+- [27:11.440] don't change much. Thank you. You don't
+- [27:14.240] change much. How's Nebraska doing? Good.
+- [27:17.360] >> Do they still like Trump in Nebraska? I
+- [27:19.200] think so. Huh. We've got We had a very
+- [27:21.440] good night two nights ago in place
+- [27:23.919] called Arizona. We're 14 out of 14 and
+- [27:27.440] we're doing that kind of numbers in uh
+- [27:29.919] Nebraska. I think we're doing those
+- [27:31.360] numbers everywhere. And it's all based
+- [27:33.360] on common sense. You know, we're
+- [27:34.720] conservative, we're this, we're that,
+- [27:36.240] whatever you are. The most important
+- [27:37.760] thing is we're people of common sense.
+- [27:40.240] We want to have strong borders. We want
+- [27:41.840] to have good education. We want to have
+- [27:43.360] low taxes. will have a great military.
+- [27:46.000] We're people of common sense and if you
+- [27:48.240] do that, you'll be very successful at
+- [27:50.880] politics. Uh, governor of Idaho, Brad
+- [27:53.440] Little, thank you very much, Brad.
+- [27:56.080] Governor of Georgia, Brian Kemp, thank
+- [27:58.320] you, Brian. Great honor. Uh, Energy CEO
+- [28:02.320] Drew Marsh. Drew, thank you very much,
+- [28:04.720] Drew. Thank you, Drew. Great job you're
+- [28:07.200] doing. Southern Company CEO Chris Wack.
+- [28:11.919] Chris, hi. There he is again. Chris, I
+- [28:15.520] didn't know that was your name. I saw
+- [28:16.880] just saw you. I said that's a smart guy
+- [28:18.640] because you did the you did that big job
+- [28:21.360] making people in Georgia rich. Right.
+- [28:23.919] That's
+- [28:25.440] Meta President Dina Powell who's been my
+- [28:28.799] friend. She was with me for four years
+- [28:30.320] in the White House. And I called up
+- [28:32.480] Mark. I said, "You hired the right
+- [28:34.000] person. You got the right person." So
+- [28:36.080] great, Dina. We're proud of you.
+- [28:37.679] Columbia County Commission Chairman Doug
+- [28:40.640] Duncan. Doug, thank you, Doug.
+- [28:43.440] Congratulations. Job well done. And
+- [28:46.320] Sheldon Jones of Louisiana's Richland
+- [28:49.440] Parish School District. And uh thank you
+- [28:52.480] very much. Good job. You know him, don't
+- [28:54.159] you? Huh? Thank you. I heard you're
+- [28:56.240] doing fantastically well. And again, Lee
+- [28:58.080] Zeldon, who's been so outstanding. So,
+- [29:01.840] thank you.
+- [29:06.880] So I want to just uh I just want to
+- [29:10.480] leave you by saying that it's an honor
+- [29:12.240] to be here. I'm going over now to talk
+- [29:15.200] about various and sunundry subjects. One
+- [29:17.679] is the Iran war where again we're doing
+- [29:21.120] very well very very well. I would say
+- [29:24.399] better than anybody expected could be
+- [29:26.559] done. We've uh knocked out their navy,
+- [29:29.679] their air force, all of their radar,
+- [29:32.559] most of their capability in terms of
+- [29:35.360] manufacturing.
+- [29:37.120] Their drones are down 84%. Their
+- [29:39.600] missiles are down 91%.
+- [29:42.159] And uh I had a newspaper saying they're
+- [29:44.880] in stronger position today than they
+- [29:46.799] were four months ago. No, that's not the
+- [29:49.039] truth. That's not right. I can't believe
+- [29:51.200] they're even allowed to say it. New York
+- [29:52.720] Times said they're in stronger position
+- [29:54.880] today. They have no military. They have
+- [29:56.720] no navy. They're done. They had 159
+- [29:59.200] ships. Everyone's at the bottom of the
+- [30:00.799] sea. They're 212 airplanes. Everyone is
+- [30:03.840] gone. They have no radar. They have no
+- [30:07.039] anti-aircraft. They have no nothing
+- [30:09.600] other than they're mean and they're
+- [30:11.919] smart and they still have some
+- [30:14.000] capability.
+- [30:16.000] But four months ago, trust me, they were
+- [30:18.960] much much stronger. Okay, I want to give
+- [30:21.679] you the nonfake news. Uh, but we're
+- [30:24.640] going to do that and we're going to then
+- [30:26.159] have the Dodgers, the World Championship
+- [30:27.919] Dodgers are going to be over at the
+- [30:29.200] White House. They're going to be waiting
+- [30:30.960] and uh I'll meet a man who's just about
+- [30:33.919] the best pitcher in baseball and just
+- [30:35.600] about the best hitter in baseball and
+- [30:37.440] just about the best fielder in the
+- [30:39.039] outfield in baseball. And needless to
+- [30:41.919] say, I guess he had a game where he
+- [30:43.360] pitched a almost perfect game and he had
+- [30:46.880] two or three home runs in that game and
+- [30:48.399] they said it was probably I said, you
+- [30:50.480] know, never seen that. Only Babe Ruth.
+- [30:52.559] Babe Ruth was a great pitcher and he was
+- [30:54.159] a great hitter, but even the babe didn't
+- [30:56.720] throw a one hitter and hit three home
+- [30:58.720] runs, which would make it, I would
+- [31:00.159] imagine, about the greatest game ever
+- [31:02.720] played. So, we're going to meet him and
+- [31:04.720] all of the people of the Dodgers. They
+- [31:06.240] won the world championship. And we see
+- [31:08.399] the champions, the Super Bowl champions
+- [31:10.399] and baseball and basketball, all of
+- [31:12.399] them. They like to come over to the
+- [31:14.000] White House. We're going to have a
+- [31:15.039] little thing in a few minutes, but I
+- [31:17.440] want to just thank everybody and uh was
+- [31:20.559] really talking about the rateayer
+- [31:22.159] protection plan to me is very important
+- [31:24.000] because you have to convince your
+- [31:26.080] community how great these things. You
+- [31:27.840] can't fight it. You have to go with it
+- [31:30.000] and you're going to have all that
+- [31:31.279] protection and we're giving you
+- [31:32.480] automatic protection, but you're going
+- [31:34.399] to make a tremendous amount of money.
+- [31:35.919] You're going to reduce taxes and you're
+- [31:38.080] going to have something that if you
+- [31:39.200] don't have it, everybody else wants it.
+- [31:41.919] So, uh, these are the smartest people.
+- [31:45.360] Most of you, most of you in this room,
+- [31:47.440] we have a couple probably on the other
+- [31:49.600] side of things. They disagree, but I
+- [31:51.440] don't know how they can disagree. Your
+- [31:53.279] community and your state's going to
+- [31:54.640] become rich, and there's very little
+- [31:57.200] disruption. And again, if you don't take
+- [32:00.240] all that money, somebody else is going
+- [32:02.559] to take it. You might as well do it
+- [32:04.000] yourselves. So, it's an honor to be with
+- [32:06.159] you. And maybe I'll let Chris and Lee
+- [32:08.399] and the group and Jeff and uh Brian,
+- [32:11.760] everybody just take over, have a good
+- [32:13.440] free-for-all, and uh figure it out. And
+- [32:15.919] if you have any problems, I'll come
+- [32:17.279] right back and I'll straighten those
+- [32:18.640] problems out. Okay. Thank you. Great
+- [32:20.720] job. Thank you.
+- [32:24.799] Thank you.
+- [32:26.880] Thank you very much.
+- [32:30.559] Yeah, I will. Thank you.
+- [32:33.679] Appcate Heat.
+- [32:52.080] Heat.
