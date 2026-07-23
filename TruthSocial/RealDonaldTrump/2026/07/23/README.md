@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-23
 
-- Posts: 4
+- Posts: 5
 
+- [12:16 UTC - A year ago the United States of America attacked, very powerfully, the Houthis, for their ...](116969243226176328/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116969243226176328
+  - A year ago the United States of America attacked, very powerfully, the Houthis, for their interference with commerce and trade, by shooting at ships. Since that time, and during ou...
 - [11:52 UTC - The Civil Nuclear Deal (There will be no enrichment of material!) being made between the U...](116969149016233329/)
   - Source: https://truthsocial.com/@realDonaldTrump/116969149016233329
   - The Civil Nuclear Deal (There will be no enrichment of material!) being made between the United States Department of Energy and Saudi Arabia, which pertains only to non-military us...
