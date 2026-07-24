@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-24
 
-- Posts: 11
+- Posts: 12
 
+- [17:32 UTC - Thank you to all the Senators who opposed yet another Dumocrat-led attempt to undermine ou...](116976146307878077/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116976146307878077
+  - Thank you to all the Senators who opposed yet another Dumocrat-led attempt to undermine our National Security. Congratulations to our GREAT Speaker, Mike Johnson, and the House Rep...
 - [17:06 UTC - The European Union is at it again and, as usual, taking direct aim at GREAT American Compa...](116976043318889040/)
   - Source: https://truthsocial.com/@realDonaldTrump/116976043318889040
   - The European Union is at it again and, as usual, taking direct aim at GREAT American Companies! After having fined Apple, for no reason at all, 15 Billion Dollars, Meta, 3 Billion...
