@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-24
 
-- Posts: 7
+- Posts: 8
 
+- [15:15 UTC - President Xi, at our recent meeting in Beijing, China, told me that he would not, under an...](116975606621428184/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116975606621428184
+  - President Xi, at our recent meeting in Beijing, China, told me that he would not, under any circumstances, give or sell Weapons to the Islamic Republic of Iran — And that statement...
 - [04:09 UTC - What a great guy, and baseball player!!! President DJT](116972989857630623/)
   - Source: https://truthsocial.com/@realDonaldTrump/116972989857630623
   - What a great guy, and baseball player!!! President DJT
