@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-24
 
-- Posts: 12
+- Posts: 13
 
+- [20:28 UTC - Republican Kurt Alme is a terrific candidate for the U.S. Senate in the Wonderful State of...](116976838638860847/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116976838638860847
+  - Republican Kurt Alme is a terrific candidate for the U.S. Senate in the Wonderful State of Montana, which I love and WON BIG in 2016, 2020, and 2024. He loves the U.S.A., and is a...
 - [17:32 UTC - Thank you to all the Senators who opposed yet another Dumocrat-led attempt to undermine ou...](116976146307878077/)
   - Source: https://truthsocial.com/@realDonaldTrump/116976146307878077
   - Thank you to all the Senators who opposed yet another Dumocrat-led attempt to undermine our National Security. Congratulations to our GREAT Speaker, Mike Johnson, and the House Rep...
