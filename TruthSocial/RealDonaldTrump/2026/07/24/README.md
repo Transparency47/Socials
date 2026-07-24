@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-07-24
 
-- Posts: 8
+- Posts: 11
 
+- [17:06 UTC - The European Union is at it again and, as usual, taking direct aim at GREAT American Compa...](116976043318889040/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116976043318889040
+  - The European Union is at it again and, as usual, taking direct aim at GREAT American Companies! After having fined Apple, for no reason at all, 15 Billion Dollars, Meta, 3 Billion...
+- [17:01 UTC - Thank you Prime Minister Radev! Bulgaria Backs Trump, Approves US Air Base Support Despite...](116976024406805765/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116976024406805765
+  - Thank you Prime Minister Radev! Bulgaria Backs Trump, Approves US Air Base Support Despite Iran Threats: [https://www. newsmax.com/newsfront/bulgaria -united-states-iran/2026/07/23...
+- [16:40 UTC - Canada disinvited the United States of America to the opening of the Gordie Howe Bridge, w...](116975941256357814/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116975941256357814
+  - Canada disinvited the United States of America to the opening of the Gordie Howe Bridge, which is fine, considering they are paying substantial TARIFFS to the United States, but th...
 - [15:15 UTC - President Xi, at our recent meeting in Beijing, China, told me that he would not, under an...](116975606621428184/)
   - Source: https://truthsocial.com/@realDonaldTrump/116975606621428184
   - President Xi, at our recent meeting in Beijing, China, told me that he would not, under any circumstances, give or sell Weapons to the Islamic Republic of Iran — And that statement...
