@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=0pswvKw76Uc: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=0pswvKw76Uc! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=2EFpaUNGFeE: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=2EFpaUNGFeE! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -10662,6 +10662,17 @@
       "published": "2026-07-24T23:04:13+00:00",
       "title": "Deportationmaxxing. \ud83e\udd85",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7666234190366657805"
+    },
+    "tiktok:whitehouse:7666297049213668622": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-07-25T04:26:54.988347+00:00",
+      "path": "TikTok/WhiteHouse/2026/07/25/7666297049213668622",
+      "platform": "tiktok",
+      "post_id": "7666297049213668622",
+      "published": "2026-07-25T03:08:10+00:00",
+      "title": "The funniest president \ud83e\udd23",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7666297049213668622"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -127075,6 +127086,28 @@
       "published": "2026-07-24T20:28:25.988000+00:00",
       "title": "Republican Kurt Alme is a terrific candidate for the U.S. Senate in the Wonderful State of...",
       "url": "https://truthsocial.com/@realDonaldTrump/116976838638860847"
+    },
+    "truthsocial:realdonaldtrump:116978462876373589": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-25T04:26:41.085328+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/25/116978462876373589",
+      "platform": "truthsocial",
+      "post_id": "116978462876373589",
+      "published": "2026-07-25T03:21:29.886000+00:00",
+      "title": "Alaska removes thousands from state\u2019s active voter list, erroneously flagging some citizen...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116978462876373589"
+    },
+    "truthsocial:realdonaldtrump:116978507306393239": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-25T04:26:41.084725+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/25/116978507306393239",
+      "platform": "truthsocial",
+      "post_id": "116978507306393239",
+      "published": "2026-07-25T03:32:47.835000+00:00",
+      "title": "[https:// x.com/lauraloomer/status/20806 57818466586812?s=46](https://x.com/lauraloomer/st...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116978507306393239"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
