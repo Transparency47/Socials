@@ -1,0 +1,1649 @@
+<!-- source: https://www.youtube.com/watch?v=2EFpaUNGFeE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 2EFpaUNGFeE -->
+<!-- date_published: 2026-07-25T02:41:16+00:00 -->
+<!-- date_accessed: 2026-07-25T19:54:47.248702+00:00 -->
+
+# Transcript: President Trump Delivers Remarks, Jul. 24, 2026
+
+- [00:01.280] I'm proud [music] to be an American
+- [00:04.480] where at least I know I'm free and I
+- [00:08.320] won't forget the men who died who gave
+- [00:12.080] that life to [music] me and [singing] I
+- [00:14.799] stand up next to you and [music] still
+- [00:19.600] today
+- [00:21.615] [singing] ain't no doubt I love this
+- [00:23.920] land.
+- [00:26.240] God bless the USA.
+- [00:30.160] >> Wow, that was very beautiful. But this
+- [00:32.000] has not been an easy evening. All these
+- [00:34.079] awards.
+- [00:36.680] [cheering]
+- [00:38.079] Do I have a say in those awards? All
+- [00:40.960] those awards.
+- [00:43.440] But it's great to be back at a place
+- [00:45.840] that I know very well because I built
+- [00:47.680] it. [cheering]
+- [00:50.435] [applause]
+- [00:52.160] And I'm very proud of it because I built
+- [00:54.320] it for $2.9 billion dollars less than
+- [00:56.879] the Federal Reserve building, which is a
+- [00:59.680] lot smaller, by the way. Figure that one
+- [01:02.399] out. [applause]
+- [01:04.640] But I am delighted to be here at the
+- [01:06.799] White House correspondents dinner.
+- [01:08.640] Amazing people. A lot of people that I
+- [01:10.960] like. Some I don't like it all,
+- [01:15.119] but I respect most of them. I must say
+- [01:16.960] that you do a great job. Amazing job.
+- [01:19.200] And it's an honor. As I said three
+- [01:22.720] months ago, the show must go on. We were
+- [01:27.200] back [applause]
+- [01:28.880] We were backstage and we both wanted to
+- [01:31.520] just have it go on. Whether it was 2:00,
+- [01:33.680] 3:00 in the morning, it didn't matter.
+- [01:36.240] But in the end, it made more sense to do
+- [01:38.000] it the way we're doing it. And we had a
+- [01:40.479] great news conference at the White House
+- [01:43.040] at a very important room. And uh you did
+- [01:46.560] very well. I think we all did very well.
+- [01:48.479] It was a hell of an evening. I can tell
+- [01:50.320] you that. won't soon be forgotten. And I
+- [01:53.840] think a lot was learned from that
+- [01:55.200] evening. Tremendous amount was learned
+- [01:57.200] about security and about other things,
+- [01:59.040] the dangers of what we all do.
+- [02:02.399] But just like my presidency, the second
+- [02:05.040] time
+- [02:06.640] is always better. It's always better.
+- [02:10.080] And the third time will be better yet.
+- [02:12.966] [cheering]
+- [02:14.480] I'm [applause]
+- [02:16.319] I'm only kidding.
+- [02:19.200] From the earliest moments after the
+- [02:21.920] attack on our dinner last April, I knew
+- [02:24.080] we had to reschedu this event as soon as
+- [02:26.879] possible. We had to do it very quickly
+- [02:29.280] and we met very quickly and we figured
+- [02:32.000] something out. But the attempted mass
+- [02:33.920] murder at the Washington Hilton, that's
+- [02:35.840] what it could have been, was an assault
+- [02:37.920] on our democracy itself. Very serious
+- [02:41.360] situation.
+- [02:42.959] Many of you were there with me and some
+- [02:45.680] showed extreme bravery like Pete
+- [02:47.440] Higgset,
+- [02:48.959] Steve Miller, Tom Hullman. Really? They
+- [02:52.879] were standing on tables and most of you
+- [02:55.040] were under the tables. Okay. But they
+- [02:58.000] did they showed I saw every one of them
+- [02:59.920] that were standing up in those tables. I
+- [03:01.760] didn't know they if they were brave, if
+- [03:04.560] they were smart, if they were stupid as
+- [03:06.319] hell, but they were on those tables in
+- [03:08.959] some cases. And uh there were a lot of
+- [03:12.400] different feelings going on in the room
+- [03:14.159] at that moment. But after hearing the
+- [03:16.720] gunshots, many people yelled, "Get down.
+- [03:20.080] Get down." Which caused Nicki Minaj to
+- [03:24.800] start twerking. Do you believe it? Get
+- [03:28.239] down.
+- [03:29.840] She's the only one that really
+- [03:31.120] understood what that meant. [laughter]
+- [03:35.599] It's quite an evening. But tonight we
+- [03:38.400] come back together to answer that
+- [03:41.200] heinous attack with unwavering resolve.
+- [03:45.120] And every one of us here this evening to
+- [03:47.840] show that in America we do not yield to
+- [03:52.319] political violence. We don't we can't do
+- [03:54.879] that. [applause]
+- [03:56.400] Can't do it.
+- [03:59.439] So in this country we believe in freedom
+- [04:01.519] of speech. We settle our differences not
+- [04:03.840] with bullets but with open and vigorous
+- [04:06.560] debate. And no deranged loser with a gun
+- [04:10.000] will ever change that. We can't let that
+- [04:12.080] ever happen. There a lot of very
+- [04:14.640] dangerous people out there. We can't let
+- [04:16.479] it happen. [applause]
+- [04:18.959] I want to begin by expressing our
+- [04:20.959] gratitude to the incredible men and
+- [04:23.040] women who put their lives on the line
+- [04:25.600] every day to protect my family and
+- [04:29.040] myself, all presidents and lots of
+- [04:31.840] others. That's the United States Secret
+- [04:34.479] Service. So, I appreciate it very much.
+- [04:36.400] And Sean and the whole [applause] group,
+- [04:38.479] amazing job.
+- [04:41.440] Amazing job.
+- [04:44.320] In recent months, they've repeatedly
+- [04:46.639] responded to threats with speed and
+- [04:48.639] professionalism and extraordinary
+- [04:50.320] courage. And there is no better example
+- [04:52.720] of that than Officer Victor Gonzalez,
+- [04:55.919] who we just met. It was amazing. He what
+- [04:58.880] he did was amazing. [applause]
+- [05:01.919] When the wouldbe assassin charged the
+- [05:05.040] checkpoint at speed, he was fast. You
+- [05:08.479] know, when you looked at that, you had
+- [05:09.680] to look at it about 10 times before you
+- [05:11.600] really saw what was going on. And he was
+- [05:13.759] quick,
+- [05:15.280] nasty.
+- [05:17.520] The gun made him nasty, actually. But
+- [05:20.320] Officer Gonzalez engaged the attacker
+- [05:22.880] without hesitation and took a bullet to
+- [05:25.680] the chest after his ballistic vest,
+- [05:29.520] fortunately was on, saved his life. And
+- [05:31.680] Victor did not even want to go to the
+- [05:34.880] hospital for a checkup. We insisted
+- [05:36.880] really, we wanted him to do it. We
+- [05:38.560] insisted, but he didn't want to go. So
+- [05:41.280] to officer Gonzalez, Secret Service,
+- [05:43.840] Metropolitan Police, law enforcement
+- [05:46.000] generally, and even all of the
+- [05:48.240] militaries around us in the room
+- [05:50.639] tonight, we salute you and we thank you
+- [05:53.759] with all of our hearts. Thank you very
+- [05:55.360] much. Great job. Great job. [applause]
+- [06:01.759] Great job. [applause]
+- [06:12.044] >> [applause]
+- [06:21.214] [applause]
+- [06:24.560] >> These are great people. So, this evening
+- [06:27.199] we're picking up right where we left
+- [06:29.120] off. So, let's have a little bit of fun.
+- [06:30.880] You know, I said, "What do we do here?
+- [06:32.319] Is this supposed to be fun? Am I
+- [06:34.400] supposed to be serious? Am I supposed to
+- [06:36.319] be a comedian?
+- [06:38.639] So I guess you maybe a little bit of
+- [06:40.880] everything. I know one thing. I could
+- [06:42.319] never have done the speech that I had
+- [06:44.960] ready just a short while. Oh, that was
+- [06:47.280] going to be a doozy.
+- [06:49.680] I was so psyched. I was going to rip
+- [06:52.319] people
+- [06:53.919] and I don't know, just something changed
+- [06:56.080] and it's really for the better. But I
+- [06:59.360] just wouldn't want to do that. But we'll
+- [07:01.280] do a little ripping if you don't mind.
+- [07:04.400] But it is true. I said, "How do we
+- [07:05.840] handle this? It's going to be a
+- [07:06.720] different kind of an evening." And it
+- [07:08.000] is. And in many ways, it's a more
+- [07:09.919] beautiful evening actually. Everyone's
+- [07:12.720] looking uh really good tonight. And I
+- [07:14.960] know it was not easy finding shoes to go
+- [07:17.680] along with your bulletproof vest, which
+- [07:20.160] many people didn't want to wear because
+- [07:22.080] they'd rather die than look 20 pounds
+- [07:25.199] heavier. You know that, right?
+- [07:28.479] We have that a lot. They put a They put
+- [07:30.880] one on me. I said, "Are you sure I'm not
+- [07:33.440] wearing this?"
+- [07:35.440] No, you gain You look exactly 20. They
+- [07:37.599] say, "Sir, it's about 21 pounds." I
+- [07:39.360] said, "Not good,
+- [07:41.840] but I want to thank the outgoing
+- [07:44.160] president of the White House
+- [07:46.479] Correspondent Center Association." Now,
+- [07:48.960] she won't admit it, and she should not
+- [07:50.639] admit it, but we sort of became
+- [07:52.639] friendly. You know, in times of stress,
+- [07:55.840] on occasion, you become friendly. And I
+- [07:57.599] have a lot of respect
+- [07:59.599] for Ouija and I tell you we uh we went
+- [08:02.639] through a little bit of a war together.
+- [08:04.000] It turned out pretty good. It turned out
+- [08:06.800] pretty good because of a lot of good
+- [08:08.160] people. They they stopped the tragedy.
+- [08:10.879] So I want to thank you very much.
+- [08:12.879] Fantastic job. [applause]
+- [08:19.440] And Ouija worked extremely hard to
+- [08:21.440] ensure this dinner was rescheduled. And
+- [08:24.639] we want to just thank her family. I just
+- [08:27.440] met her parents, her children, her
+- [08:29.599] husband. What a perfect family. So, it's
+- [08:32.560] uh really great. Thank you very much all
+- [08:34.479] for for putting up with this for putting
+- [08:37.200] up with this. Right.
+- [08:39.680] But let me also thank the incoming
+- [08:41.599] president of the correspondence
+- [08:43.519] association, Jackie Hinrich. She can be
+- [08:46.000] very tough as a reporter. I will tell
+- [08:47.600] you. She can be nasty. She looks so
+- [08:50.080] beautiful, but she can be so nasty. How
+- [08:52.320] could that happen?
+- [08:54.080] But she just got married to a very
+- [08:56.480] successful congressman, very good
+- [08:58.240] congressman. I'd like to have a couple
+- [09:00.160] of more votes from it. That's okay. On
+- [09:02.399] occasion, he shows a little
+- [09:04.720] independence. We don't like that.
+- [09:08.160] But now he's a very professional guy and
+- [09:10.399] he's very he loves our country. But uh
+- [09:13.920] that's a big thing. I I just see what
+- [09:16.560] takes place. We're talking about what
+- [09:18.080] takes place to be in the position that
+- [09:20.320] you're leaving and that Jackie is coming
+- [09:21.920] into. And it's a lot of work, a lot of
+- [09:24.399] friendships, a lot of talent. And so,
+- [09:26.959] Jackie, congratulations.
+- [09:29.856] [applause]
+- [09:33.600] >> And congratulations are also in order
+- [09:36.080] for our favorite wife, White House press
+- [09:39.360] secretary, Caroline Lev, who just had
+- [09:41.839] her second child. [applause]
+- [09:44.800] You and your husband. [cheering] She's
+- [09:46.959] great. She's done a fantastic job. We
+- [09:49.519] all love her. She's done a fantastic
+- [09:51.760] job. She can do another one. She can be
+- [09:53.279] nasty.
+- [09:56.320] But sometimes she has no choice, right?
+- [09:58.800] But Caroline may have one of the hardest
+- [10:01.120] jobs in the White House. She has to deal
+- [10:02.800] with all of you all of the time. And you
+- [10:06.720] can be very difficult. You can be very,
+- [10:08.720] very difficult people. But I'm probably
+- [10:10.880] being a little bit oversensitive
+- [10:13.200] sometimes. I really do think that some
+- [10:16.160] of you don't like me.
+- [10:18.959] In fact, I read a report. I get 93%
+- [10:22.000] negative publicity. 93. So, how the hell
+- [10:25.440] did I win the election by so much?
+- [10:28.880] Think of it. I don't think that's true.
+- [10:30.320] I can't believe it's 93. In the 80s,
+- [10:32.640] maybe, but not 93.
+- [10:35.760] But this place is the really the largest
+- [10:39.920] group of Trump derangement syndrome
+- [10:42.880] people
+- [10:44.560] ever put together at one time, I
+- [10:46.399] suspect. Some of you are lucky that our
+- [10:49.519] last dinner was cut short because I had
+- [10:52.959] brought with me what would possibly have
+- [10:56.160] been I'm telling you I had uh I had
+- [10:59.200] something I was going to go after you. I
+- [11:01.519] was going to I feel so badly doing this.
+- [11:03.440] It's got to be such a let down. Ohay.
+- [11:06.560] But your lives were really in danger the
+- [11:09.760] last time for an opposite reason. But on
+- [11:12.560] the plus side, your careers were saved
+- [11:14.399] and we have a uh we really do. We have a
+- [11:18.560] complete and total. And I love the words
+- [11:20.560] complete and total. They say, but it
+- [11:22.320] means almost the same thing. I said it
+- [11:24.079] doesn't matter when you say it. It's
+- [11:25.839] called emphasis. It's called emphasis.
+- [11:29.200] But everyone is now really warming up
+- [11:31.839] the new White House military center,
+- [11:35.760] drone port, highly protected ballroom.
+- [11:38.240] It's we have our ballroom. The windows
+- [11:40.480] are this thick.
+- [11:42.000] I said to the people, "Well, if a bullet
+- [11:44.480] hits, what happens?" Nothing. Nothing.
+- [11:47.040] It bounces right off, sir. This is the
+- [11:49.040] greatest bulletproof glass. I said,
+- [11:51.279] "AK-47. That's supposed to be a big one.
+- [11:53.760] I don't know so much about the guns. My
+- [11:55.680] sons know a lot." But I said, "A I know
+- [11:58.720] it's big. What would happen?" They go
+- [12:01.600] up. Meaning it can take more. I said,
+- [12:04.560] "So, if I'm making a speech and I hear
+- [12:06.399] that pinging sound at a window, what
+- [12:08.639] would I do?" Sir, uh, leave the room
+- [12:11.839] right away, but but you're going to be
+- [12:13.680] safe. We're building something that's
+- [12:15.040] going to be amazing. And in light of
+- [12:16.959] what we went through, I think, uh,
+- [12:18.720] people understand it. It's going to be
+- [12:20.320] amazing. a phenomenal one of the biggest
+- [12:23.279] drone ports anywhere in the world. Right
+- [12:25.279] on the roof, right protecting the White
+- [12:27.519] House, not only the ballroom and what's
+- [12:30.639] underneath, you know, is supposed to be
+- [12:32.079] a top military secret what's underneath,
+- [12:35.040] but then you get sued as usual and you
+- [12:37.200] have to reveal that you're building this
+- [12:39.600] unbelievable situation downstairs with
+- [12:42.880] room after room of very complex stuff.
+- [12:45.360] It was the military's dream to have it
+- [12:47.200] built. I wanted to have a ballroom
+- [12:49.440] because for 150 years they wanted it and
+- [12:52.720] then the generals came to see me and
+- [12:54.320] they said sir you're building something
+- [12:55.920] this gives us an opportunity to do
+- [12:58.399] something that will be so unbelievable
+- [13:00.560] never happen again because there's very
+- [13:02.480] little built under the white house very
+- [13:04.079] hard to build under a very fragile
+- [13:06.320] building like that it's very fragile
+- [13:07.760] it's old and a little different
+- [13:10.160] construction standards frankly and uh
+- [13:13.279] this is an opportunity for us to build
+- [13:15.920] something very powerful powerful. I
+- [13:18.079] said, "Let's keep it secret." They said,
+- [13:20.480] "No, no, we're telling you, sir. Let's
+- [13:22.399] keep it secret."
+- [13:25.600] And then we get sued. And we revealed
+- [13:27.760] every room, everyay,
+- [13:30.959] we told the people that did the suing,
+- [13:32.800] they're not good people. We told them,
+- [13:34.160] he said, "You know, you're being very
+- [13:36.160] unpatriotic when you bring a suit like
+- [13:38.079] this, but it is what it is, but it's
+- [13:39.680] going to be it's really going. It's
+- [13:41.839] moving fast. We're ahead of schedule.
+- [13:43.920] We're right on budget and it's going to
+- [13:46.079] be something like I think no no country
+- [13:48.959] has. I just visited China. They have
+- [13:51.440] this magnificent room, the great room.
+- [13:53.920] They call it the great room. It's a
+- [13:55.519] great room, but what we have is going to
+- [13:57.600] blow. There won't be anything like it.
+- [13:59.120] It's going to be fantastic. And with all
+- [14:00.720] of the things that are going along with
+- [14:02.800] it for safety and security of future
+- [14:04.800] presidents, you know, I'm only going to
+- [14:06.399] be using it for about six months.
+- [14:08.639] Assuming we finish it right on time, I
+- [14:10.639] get to use it. Somebody said he's
+- [14:12.320] building it for himself. I'm building it
+- [14:14.240] for the future. I'm not bu I used it.
+- [14:16.720] Now had I not gone down six or seven
+- [14:18.880] stories then in that case I would have
+- [14:21.600] been able to get a couple of years out
+- [14:23.120] of it. But that was far more complex
+- [14:25.680] what we did downstairs than what we do
+- [14:27.440] upstairs. So uh we're very proud of it
+- [14:30.160] though. It's going to be amazing. And I
+- [14:32.079] think I was just telling uh the whole
+- [14:35.120] group sitting at the table we were
+- [14:36.639] talking about and I said I think you
+- [14:38.399] know it's White House correspondence. So
+- [14:40.880] I don't see any reason why you wouldn't
+- [14:42.480] be able to use that. It's going to be
+- [14:43.680] very large and very beautiful and very
+- [14:45.279] safe and that's what you need. So, I was
+- [14:47.920] thrilled to see that after witnessing
+- [14:50.399] the attack, even Democrat Senator John
+- [14:53.680] Federman told his fellow Democrats to
+- [14:57.120] drop the Trump derangement syndrome and
+- [15:00.399] build the White House ballroom, but it's
+- [15:02.800] much more than that. It's something that
+- [15:04.399] you're going to use. I predict that
+- [15:05.760] you're going to end up using it and a
+- [15:08.240] lot of people are going to end up using
+- [15:09.360] it. They're going to be as safe as you
+- [15:10.639] can possibly be. But despite everything
+- [15:13.040] that happened at the previous dinner and
+- [15:15.600] all of the dangers involved, I'm told
+- [15:18.000] that this is still the hottest ticket in
+- [15:21.440] town. This ticket to get in tonight
+- [15:24.000] because it's a smaller room. It's a
+- [15:25.760] beautiful room. It's a luxury room. See
+- [15:27.600] those beautiful chandelies? I can tell
+- [15:29.120] you everything about them if you'd like
+- [15:30.560] to know.
+- [15:32.720] See that beautiful capital above? See
+- [15:34.800] the beautiful capital? See the
+- [15:36.880] everything? The brass. Uh those
+- [15:39.199] chandeliers are great. I'm looking at
+- [15:41.040] them. I'm saying, "I wonder if I could,
+- [15:42.240] you know, I sold this building." And uh
+- [15:45.199] they're doing a nice job, but they're
+- [15:46.959] nice people. But I'll tell you, I'm
+- [15:48.880] looking at them, I'm saying, I wonder if
+- [15:50.079] I could walk out with those chandeliers
+- [15:51.759] because you can't buy them. They're very
+- [15:54.480] special. I won't tell you the fact. I
+- [15:56.399] won't mention that they're check crystal
+- [15:58.240] because I'd like to say everything's
+- [15:59.440] made here, but they are check crystal
+- [16:02.000] and they are beautiful.
+- [16:04.399] And the Waldorf people are doing a
+- [16:06.079] really nice job. We're proud of them
+- [16:07.680] actually because you know when I left
+- [16:09.360] town I was a little angry. I was a
+- [16:10.959] little bit angry. I was offered a nice
+- [16:13.600] price. I said I'm getting out of that
+- [16:15.279] place and then I said let's make a
+- [16:16.959] comeback. And uh but I was very proud of
+- [16:20.160] this building. This building was hot.
+- [16:22.240] Remember the lobby floor. 82,000 ft for
+- [16:26.399] those in the real estate business.
+- [16:27.920] 82,000 ft. That's a major That's a major
+- [16:31.279] floor. That thing was packed every
+- [16:32.959] single night. was packed, mostly
+- [16:35.199] Republicans, I would say, but it was
+- [16:36.880] packed every single night. It almost
+- [16:39.199] brings back memories. But uh I left town
+- [16:43.680] and uh I have just had nothing but good
+- [16:46.320] experience and this might be the best
+- [16:48.000] experience of all having all of these
+- [16:50.320] incredible people in this room. It's a
+- [16:52.079] great It's a great feeling. Frankly,
+- [16:53.839] it's a great feeling. But tonight's
+- [16:56.079] event Thank you. [applause]
+- [16:59.040] Thank you. But tonight's event is even
+- [17:02.320] crazier than the last time. In fact,
+- [17:04.160] it's so successful that I've been
+- [17:06.240] informed by CBS News's David Ellison,
+- [17:09.679] who's going to do a fendant job. He's
+- [17:11.439] the owner. He's the owner. He bought it,
+- [17:13.839] spent a lot of money, and he's going to
+- [17:15.199] make, I think, fantastic changes and
+- [17:17.919] keep some of the great stuff going, but
+- [17:20.000] that next year they're going to call it
+- [17:21.919] the Trump White House Correspondent
+- [17:23.760] Center. He told me that, and I like that
+- [17:26.480] very much. We're going to change the
+- [17:28.079] name of it. Okay. Oh, it's going to be
+- [17:30.880] so hot. Just like our country is hot. We
+- [17:33.280] are hot, by the way. But to be honest,
+- [17:36.559] it's just about the only way that
+- [17:38.400] they're going to ever get me back here.
+- [17:39.840] You're going to have to change the name
+- [17:40.880] of the dinner. But how's that one going?
+- [17:43.520] Not too good. I hope that everyone
+- [17:45.679] finally got to enjoy their entire very
+- [17:50.240] delicious beef tenderloins. Very special
+- [17:53.280] beef. And I want you all to know that
+- [17:55.760] Bobby Kennedy, who's right here,
+- [17:57.760] personally ran over the cow in his car.
+- [18:02.072] [cheering]
+- [18:02.640] Boom.
+- [18:04.160] And he cut it up and he brought it here
+- [18:05.919] for you to eat tonight. So, it's very
+- [18:07.760] fresh. And Bobby also suggested an
+- [18:11.600] appetizer featuring his favorite cut of
+- [18:14.559] male raccoon roadkill,
+- [18:18.080] but we drew the line at that, Cheryl. We
+- [18:20.480] said, "No, we're not going to do that.
+- [18:22.640] We're not doing that. We love Bobby,
+- [18:24.960] I'll tell you. He's a piece of work. You
+- [18:26.720] think it's it is fun, but he is a very
+- [18:29.440] different kind of a person. I will tell
+- [18:31.200] you.
+- [18:33.120] But he has what it takes. And he's
+- [18:34.720] smart. And he loves the country. And he
+- [18:36.480] wants people to be made to feel good. Do
+- [18:40.000] you agree with that, Bobby? He wants
+- [18:41.600] people to feel good. And uh he's doing a
+- [18:44.880] fantastic job. Thank you, Bobby. Thank
+- [18:46.799] you. We can joke all we want, but thank
+- [18:48.880] you.
+- [18:49.888] >> [applause]
+- [18:50.720] >> A lot's happened since the last time we
+- [18:52.880] were all together. Last month, we hosted
+- [18:54.799] one of the most incredible sporting
+- [18:56.559] events in world history at the White
+- [18:58.559] House, the UFC Freedom 250 fight. The
+- [19:01.679] UFC fight. When I announced that we're
+- [19:04.080] going to build a boxing ring right
+- [19:05.679] outside of the front door of the White
+- [19:07.039] House, that took a lot of heat, but it
+- [19:09.120] turned out that was they say about the
+- [19:11.440] most viewed fight in history. It was
+- [19:13.919] inc. It was beautiful. So many things
+- [19:16.160] happened. It was supposed to rain. We're
+- [19:18.480] going to do it the week before and the
+- [19:20.400] weather was beautiful and the weather
+- [19:23.120] came and it went and now we came up to
+- [19:25.360] Wednesdays I said sir this was on a
+- [19:27.840] Sunday night replacing 60 minutes which
+- [19:32.080] is nice and unusual because usually it's
+- [19:35.200] Saturday night and they said sir it's
+- [19:38.559] this was from Wednesday on tell me about
+- [19:40.720] weather right sir it's going to rain I
+- [19:42.960] think you're going to have to it's going
+- [19:43.760] to be one of the worst storms that we've
+- [19:45.360] seen in a long time it's coming up the
+- [19:47.200] coast it's going to hit you on Sunday
+- [19:48.799] night. It's going to be a disaster. I'm
+- [19:50.320] saying, "Can you believe?" And you saw
+- [19:51.919] the ring we built, Dana White, the great
+- [19:53.679] Dana White and everything. We had the
+- [19:56.400] best fighters in the world. Turned out
+- [19:58.160] we had the best fights that we that most
+- [20:00.320] people have ever seen, including me. It
+- [20:02.240] was just a miracle. But what happened is
+- [20:04.960] we're waiting for this rain to come all
+- [20:07.039] day long and it's coming and it's
+- [20:09.039] horrible
+- [20:10.559] and it's 8:00 and we say, "I think we're
+- [20:13.520] should it hasn't rained yet." I said,
+- [20:15.440] "Maybe we should postpone it an hour.
+- [20:17.440] maybe we should make it the next day. We
+- [20:19.440] didn't know what to do. And finally, we
+- [20:21.520] just said, "Let's just have it." And it
+- [20:23.919] never rained. It was perfect. In fact,
+- [20:26.400] the week before it was 92 degrees. It
+- [20:28.480] was nice, but it was this was like 72
+- [20:31.200] degrees. And the rain was coming and it
+- [20:34.240] came right over the White House and it
+- [20:36.960] was like, "Thank you very much." It went
+- [20:40.240] like this.
+- [20:42.240] And other areas were drenched a few
+- [20:44.480] miles away. We didn't have a drop of
+- [20:46.159] rain. And it was absolutely one of the
+- [20:48.559] most incredible things anybody's ever
+- [20:50.320] seen. People said it's a one of the most
+- [20:52.960] incredible nights of their lives. So
+- [20:55.520] just remember before I came along, if
+- [20:57.919] you wanted to see someone lose
+- [20:59.919] consciousness on the south lawn of the
+- [21:02.480] White House, all you had to do is ask
+- [21:05.600] Joe Biden a question. They'd remember
+- [21:07.440] that. Oh, you think I'm kidding?
+- [21:10.714] >> [applause]
+- [21:11.120] >> But the big fight was such an amazing
+- [21:13.280] success that tonight I'm pleased to
+- [21:14.960] announce that we're going to host an
+- [21:17.120] even bigger one right in front of the
+- [21:19.919] White House. Every Friday night, every
+- [21:21.919] Saturday night, we're going to have
+- [21:23.200] fights in front of the White House. But
+- [21:25.679] we do have something coming that's and
+- [21:27.440] I'm only kidding. You know the one thing
+- [21:29.520] about the press that I learned, don't be
+- [21:31.679] sarcastic when because I'm a very
+- [21:34.480] sarcastic person and I get sarcastic
+- [21:37.600] and most people know that. You have some
+- [21:39.840] bad people that will write it exactly
+- [21:42.240] like I say it. And I said I was only
+- [21:44.799] kidding. But we are going to have uh
+- [21:47.520] Indie 500 Roger Pensky's coming in mid
+- [21:50.960] August and they're going to have it all
+- [21:52.640] throughout Washington. The greatest
+- [21:54.400] cars, the greatest drivers in the world.
+- [21:56.640] And that's going to be something.
+- [21:57.760] Already they have over 350,000 people
+- [22:00.559] signed up going down Pennsylvania Avenue
+- [22:03.520] around the Capitol. And Roger who's
+- [22:06.080] incredible. won the Indianapolis 500 20
+- [22:08.720] times. Think of it. Germany, Japan, all
+- [22:11.360] these countries, they spend billions and
+- [22:14.320] billions of dollars trying to win the
+- [22:16.320] Indie 500. And Roger wins it. He
+- [22:19.600] literally won it 20 times. On the 18th
+- [22:23.200] time, I said, you know, that's amazing.
+- [22:25.280] I'm going to give him the Presidential
+- [22:27.039] Medal of Freedom. And I had him up and
+- [22:29.440] then he won it two times after that. The
+- [22:31.280] guy's amazing. And he lost the last one
+- [22:33.600] by about six inches. if anybody watched
+- [22:35.760] it. So, they're coming here and it's
+- [22:38.080] going to be something really exciting.
+- [22:39.520] We have unbelievable events. It's an
+- [22:41.520] unbelievable country. And on July 4th,
+- [22:44.320] we were over at the mall and it was
+- [22:48.400] raining was supposed to be really bad
+- [22:50.640] again. And we had 450,000 people show up
+- [22:54.880] and that's a light number. And I was
+- [22:57.520] told, "Sir, we're going to have to
+- [22:58.880] cancel the event. This was not good."
+- [23:01.600] And it was drizzling a little bit, not
+- [23:03.360] raining very hard. And people are
+- [23:06.320] calling me. Friends of mine were calling
+- [23:08.080] me. And I got a call from Brett Bear.
+- [23:10.559] Brett Bearer said, "Uh, it's not
+- [23:12.799] raining." They said, "Where are you? I
+- [23:15.120] standing at the mall and I'm waiting to
+- [23:16.799] go in the White House." Then others
+- [23:18.720] called up. They said the same thing. And
+- [23:22.000] I said, "You know, this is terrible."
+- [23:23.600] But there was lightning. Not big
+- [23:25.360] lightning, but you don't have to have
+- [23:26.720] big lightning. just have to takes just a
+- [23:29.200] little bit to do some big damage. So
+- [23:31.679] they said, "Everybody must leave.
+- [23:33.120] Everybody 450,000 people were forced to
+- [23:35.760] leave." And they left. And then I said
+- [23:37.919] to myself, I said, "Let me call up and
+- [23:40.720] find out what the hell's going on." And
+- [23:42.159] I called up and I spoke to a brilliant
+- [23:43.840] young man. He said, "Don't worry about
+- [23:45.360] it, sir. We can do it in a couple of
+- [23:46.799] weeks." I said, "You can't do it in a
+- [23:48.400] couple of weeks. This is the 250th
+- [23:51.440] birthday. In two weeks, what are we
+- [23:53.440] going to do? Say, let's go. We're going
+- [23:54.799] to have a redo." No. I said, "I'll speak
+- [23:57.120] if I have to speak at three o'clock in
+- [23:58.799] the morning, two o'clock, one o'clock, I
+- [24:00.960] don't care. Call them all back. They're
+- [24:02.960] all gone." 450,000.
+- [24:06.000] And most of them were in cars or heading
+- [24:07.919] back to Texas. And it was sad. And we
+- [24:13.039] said, "The show must go on." Very much
+- [24:14.880] like here, we said the same term, right?
+- [24:16.880] The show, it's great term. It's true in
+- [24:19.279] life. The show has to go on. The show
+- [24:21.039] must go on. And I said, "The show must
+- [24:23.919] go on." And I put it out on truth. The
+- [24:25.679] show must go on. And we had probably
+- [24:29.279] Peter 150,000 people come back. Come
+- [24:32.799] back up higher maybe. Thank you. Let's
+- [24:34.720] just stand up Peter. Tell them more.
+- [24:37.279] Right. It might have been more, but it
+- [24:39.440] was amazing. It was it was just an
+- [24:41.600] amazing crowd and actually worked out
+- [24:44.080] better a little like this. It worked out
+- [24:45.760] better than if it we had done it at the
+- [24:47.679] normal 7:00, 8:00 time. It was
+- [24:50.880] incredible. We started speaking at 11:00
+- [24:53.520] in the evening. But tremendous numbers
+- [24:55.279] of people, tens, I mean thousands and
+- [24:58.159] thousands came roaring back and it was a
+- [25:00.720] great evening and it was a celebration
+- [25:02.640] and we didn't do it the following day
+- [25:04.320] and we didn't do it two weeks later. We
+- [25:06.080] did it when we were supposed to do it.
+- [25:08.320] It was a fantastic uh celebration. Uh,
+- [25:12.320] but I can exclusively reveal to you this
+- [25:14.799] evening that for the heaviest of the
+- [25:17.360] heavyweights, we will have sloppy Chris
+- [25:20.799] Christie, one of the sloppiest human
+- [25:22.480] beings you'll ever meet, fighting uh, I
+- [25:25.760] would say I could mention the governor
+- [25:27.679] of Chicago, but I'm going to mention
+- [25:29.440] instead Jerry Nadler.
+- [25:32.080] And they're fighting for a big piece of
+- [25:33.760] cheesecake. Big fat piece of cheesecake.
+- [25:36.400] Who the hell wrote that line?
+- [25:39.120] But it is true. And then you have a
+- [25:41.919] congresswoman Alexandria Okasiocortez.
+- [25:45.679] AOC plus3. That's her three friends,
+- [25:47.919] right? AOC plus three. And I watched her
+- [25:51.039] give that answer when she was over in
+- [25:52.720] Europe. It was not a good answer. If I
+- [25:54.320] ever gave that answer, I would be out of
+- [25:55.919] politics. Remember, you cannot have a 19
+- [25:58.880] second wait time to answer a s really a
+- [26:02.240] very quite simple question. But we'll
+- [26:05.120] then have a rematch against an extreme
+- [26:08.480] simple question on a foreign policy from
+- [26:11.679] Munich security conference. It was a big
+- [26:14.799] security conference and this was her
+- [26:16.480] first time up in terms of that and uh we
+- [26:20.159] had a sort of little preview and then
+- [26:23.039] Anderson Cooper is going to fight
+- [26:25.919] Lawrence O'Donnell. Not a I'm not a fan
+- [26:28.000] of Lawrence O'Donnell. I like Anderson
+- [26:29.919] actually because he's covered me well
+- [26:31.360] for many years and he went bad as soon
+- [26:32.880] as I went for politics. But but for
+- [26:35.200] years he loved interviewing. I did so
+- [26:37.520] many interviews with him and he was
+- [26:39.600] great but you know he's got a little
+- [26:41.919] different persuasion than me in many
+- [26:44.320] ways actually.
+- [26:46.400] And Lawrence O'Donnell never liked him.
+- [26:48.960] Never thought he had any talent but he's
+- [26:51.360] still making a living so I can't knock
+- [26:53.120] it. But we had a uh contest for who had
+- [26:56.480] the lowest ratings and the lowest IQ on
+- [26:58.799] television. And that was actually Don
+- [27:01.440] Lemon, I think. You know, when I said
+- [27:03.279] that he's the dumbest man on television,
+- [27:05.120] I said, you know, when you say some
+- [27:06.400] things, you never make a comeback. It's
+- [27:08.159] not like, oh, gee, hey, Don, let's have
+- [27:10.480] dinner some night. But I know what I'm
+- [27:13.279] saying. And then you have B. Mittler and
+- [27:16.000] Jane Fonda actually held a concert to
+- [27:18.400] protest the first UFC fight. They didn't
+- [27:21.039] want to see the fight. and very few
+- [27:24.080] people want. They had a they held a an
+- [27:26.480] event like three people showed up and
+- [27:29.919] given the choice between seeing some of
+- [27:32.080] the really beat up faces of the UFC.
+- [27:35.600] Almost everyone chose the people in the
+- [27:37.679] UFC. It was between the two of them or
+- [27:39.600] the UFC. And what about Bruce
+- [27:42.080] Springsteen? What the hell happened to
+- [27:43.840] that guy?
+- [27:45.679] He looks like hell. I don't care what
+- [27:47.200] anyone says. I'm not supposed to say.
+- [27:48.720] I'm sure he doesn't like the way I look,
+- [27:50.159] but I don't look so bad.
+- [27:52.559] But at a recent conscious, Bruce, all he
+- [27:55.279] did was talk politics. He ought to run
+- [27:56.960] for office. That'd be interesting. But
+- [27:58.640] all he talked about, he made four
+- [28:00.080] political speeches in his three-hour
+- [28:03.200] show. The tour has been renamed board in
+- [28:06.240] the USA,
+- [28:08.000] and his new song was so bad that Chris
+- [28:10.399] Christie, who's like a fan, you know, he
+- [28:13.200] goes out and tells everybody how he
+- [28:14.720] hates Chris Christie. keep that guy out
+- [28:16.559] of my And I see Chris Christie there
+- [28:18.720] again high-fiving Bruce Springsteen in
+- [28:21.600] the aisle and Bruce Springsteen saw him
+- [28:23.279] and didn't even lift his hand up. And I
+- [28:25.679] just want because I used to be friendly
+- [28:27.120] with Chris. Chris, when somebody doesn't
+- [28:29.679] like you, write them off. Forget it. You
+- [28:32.000] got billions of people in the world. You
+- [28:33.919] don't have to make a jerk out of
+- [28:35.200] yourself, but usually a comedian hosts
+- [28:37.919] this dinner. And I think we sort of
+- [28:40.799] changed it. Tonight we're going to have
+- [28:42.080] somebody who I think is really
+- [28:43.200] spectacular, but I've watched comedians
+- [28:45.520] get up for the D because I have been
+- [28:47.440] here actually quite a few times. People
+- [28:49.919] don't realize and there's one time in
+- [28:52.320] particular when Barack Hussein Obama
+- [28:54.559] hosted it. Do you know who that is?
+- [28:57.919] And he hit me hard. But actually he hit
+- [29:00.960] me with respect. I was sitting with
+- [29:03.360] Melania at a table and you had Brooklyn
+- [29:07.120] Decker supermodel at a table right next
+- [29:09.919] to and she I I really always will like
+- [29:12.159] her. She's married to a great tennis
+- [29:13.840] player Andy and she was at the table not
+- [29:16.799] at my table and I have watched this clip
+- [29:20.159] thousands of times. They keep playing it
+- [29:21.919] because they think that was evening I
+- [29:23.360] decided to run for president. It was
+- [29:25.200] not. In fact, I loved the evening. I
+- [29:28.399] looked at my wife. I said, "Can you
+- [29:29.919] believe it? All these people, that's all
+- [29:31.360] they're doing is talking about me. I
+- [29:33.200] love this dinner. It's true.
+- [29:36.880] And Obama was nice. He, you know, it's
+- [29:39.039] amazing how things work out. He actually
+- [29:41.120] showed a picture of the White House with
+- [29:43.279] a big Trump on top. Like I put a sign
+- [29:45.279] and you know, I'm sort of doing that
+- [29:46.559] when you think about it, right? I mean,
+- [29:49.679] he wasn't really wrong. But no, he was
+- [29:51.919] respectful. He was good. And And it had
+- [29:55.039] But it had nothing to do It had nothing
+- [29:57.520] to do. I just decided that I wanted to
+- [30:00.720] make America great again. This had
+- [30:02.320] nothing to do with that dinner. I've
+- [30:04.159] gotten so many [applause]
+- [30:06.640] Yeah. I've gotten so many
+- [30:10.000] calls and for years they've been saying,
+- [30:12.720] "Was that the moment you decided to
+- [30:14.720] run?" Really? No. Uh I left that night
+- [30:18.159] and press was there. A lot of the same
+- [30:20.240] people that I see. They said, "Did you
+- [30:22.000] have a good time?" Unbelievable. And
+- [30:23.840] some thought I didn't have, but I did
+- [30:25.360] have. And uh I really I always remember
+- [30:29.120] though Brooklyn, she was so angry. She
+- [30:31.679] was much angrier than me. She was angry.
+- [30:33.440] She thought they were mocking me and
+- [30:35.279] they really weren't. It was just one of
+- [30:37.039] those things. And I had a great time.
+- [30:39.679] But I [snorts] left and I sort of
+- [30:42.000] thought I was there three or four times
+- [30:43.600] before that. But I sort of thought,
+- [30:45.440] "Wow, that dinner is really something
+- [30:47.679] special." And then I ran. I got elected.
+- [30:52.320] I thought the press treated me very,
+- [30:54.240] very unfairly.
+- [30:56.240] And I don't know, I think I made the
+- [30:58.880] right decision because you hate to go
+- [31:01.360] where maybe you're not wanted, but they
+- [31:02.960] did want me. They wanted me for ratings
+- [31:04.799] and they wanted me for other reasons,
+- [31:06.240] but not for love. And I said, you know,
+- [31:10.320] I'm not going to go. First time that
+- [31:11.760] ever happened, I think. Was that the
+- [31:13.200] first time? Just about. Presidents
+- [31:14.720] always came. And I didn't go for four
+- [31:16.960] years because I got treated terribly by
+- [31:18.799] the press in, you know, in my opinion
+- [31:21.440] unfairly. Uh, I know unfairly because I
+- [31:24.960] know the facts, but I got treated
+- [31:26.799] unfairly. I didn't go. And this year I
+- [31:29.679] was called by your president and your
+- [31:32.880] chairman and all of the people and they
+- [31:34.799] said, "We'd like to do it." And I said,
+- [31:36.399] "You know what? With time, time goes by,
+- [31:39.360] time passes, and you sort of look at
+- [31:42.320] life a little bit differently." I said,
+- [31:43.679] "Let's do it." And I didn't know it was
+- [31:45.919] going to turn out the way it did. It
+- [31:47.840] turned out to be the biggest event in
+- [31:49.519] the history of your day. That was that
+- [31:50.960] by far the biggest right for all the
+- [31:52.880] wrong reasons. But as I said before, a
+- [31:55.360] lot was learned from that evening. So
+- [31:57.120] much having to do with so many different
+- [31:58.720] things, including
+- [32:00.559] security, but it's an honor to do it.
+- [32:03.279] This is my first. I mean, I've been to
+- [32:04.720] it numerous times, but as president, I
+- [32:07.919] haven't been here, and I'm glad. And I
+- [32:10.480] said, they said, "Would you do it next
+- [32:11.760] year?" I said, "I will be back next
+- [32:13.279] year." Now, if you get really, really
+- [32:15.200] nasty, maybe not. I don't know. But
+- [32:17.360] we're going to be back next year. and
+- [32:20.132] [applause]
+- [32:22.960] or Jackie will treat me very badly.
+- [32:25.372] [applause]
+- [32:26.320] But this year the association decided
+- [32:28.559] not to have a comedian. So they
+- [32:31.120] considered using Jimmy Kimmel,
+- [32:34.240] Jimmy Fallon. These guys, they they're
+- [32:36.399] terrible. They're terrible. Steven
+- [32:38.960] Colbear. These are people without
+- [32:40.320] talent. They get a lot. They have
+- [32:42.000] talent. You know who has talent? Their
+- [32:43.360] agents getting them the amount the money
+- [32:45.039] they get. They have no talent. But they
+- [32:47.760] are not comedians. are not funny people.
+- [32:49.519] They're angry people. They're sick
+- [32:50.960] people. But the association really uh
+- [32:54.720] put on a big show and they have somebody
+- [32:56.799] very special. I look forward to seeing
+- [32:58.240] him. And so they thought about going
+- [33:00.480] with a professional clown for
+- [33:03.679] entertainment, but Adam Shifty Schiff
+- [33:06.640] was not available. You know, he's known
+- [33:08.960] I called him I I hate some people. You
+- [33:11.360] know, I shouldn't say this. I'm
+- [33:12.559] president. I'm not supposed to hate. I'm
+- [33:13.840] supposed to love everybody. But he's a
+- [33:16.559] terrible person. and he's a liar. And I
+- [33:19.840] called him watermelon head cuz he has
+- [33:21.440] the largest head I've ever seen with the
+- [33:23.120] smallest neck, pencil neck. How does
+- [33:24.880] that big fat ugly head stand on a on a
+- [33:28.159] little pencil pencil pencil neck? And
+- [33:31.840] then I'm told that even Rosie O'Donnell
+- [33:35.360] reached out from Ireland. She really
+- [33:36.960] wanted to be here in order to honor me.
+- [33:39.440] She loves me very much and she was
+- [33:42.000] desperate to come back to the United
+- [33:43.679] States and pay her respect to Donald J.
+- [33:45.919] Trump.
+- [33:47.039] But that didn't work out unfortunately
+- [33:48.960] because nobody wanted her to come back.
+- [33:52.000] She actually But she's a one of the
+- [33:55.120] greatest sufferers of Trump derangements
+- [33:57.200] and she is a sick young woman, sick
+- [33:59.679] older woman, I guess now I have to say.
+- [34:02.000] So instead we're honored to have for
+- [34:04.640] entertainment the very talented
+- [34:06.799] mentalist O Pearlman. clothes perman
+- [34:10.828] [applause]
+- [34:12.639] and
+- [34:14.720] everything to everybody. They said, "Are
+- [34:16.480] you going to stay?" I said, "Yeah, I'll
+- [34:17.760] stay." I mean, I think I'll say, "What
+- [34:19.359] the hell else am I going to do? I've got
+- [34:20.800] Iran. I've got this. I've got that."
+- [34:23.280] Which is all going extremely well. Don't
+- [34:25.200] believe the fake news. You know, it's
+- [34:27.679] the only thing I've ever We were talking
+- [34:29.440] before. I said, "So, we've hit Iran very
+- [34:32.159] hard. Their Navy is gone. Their off air
+- [34:36.720] force is gone. 250 jets. No longer
+- [34:41.040] 159 boats. Good boats. In fact, I said,
+- [34:44.399] "Why the hell didn't we keep them? We
+- [34:45.919] could have used them, but 159 boat all
+- [34:49.440] at the bottom of the sea. They have no
+- [34:51.839] radar. They have very few drones left
+- [34:54.240] despite what you see. And every once in
+- [34:55.839] a while, they're going to set some
+- [34:57.599] things up, but they don't have much
+- [34:58.800] left. And by the way, they are talking
+- [35:00.240] to us right now. They'd love to make a
+- [35:01.920] deal. I don't think they're ready to. I
+- [35:04.079] don't think it's time yet, but I'm
+- [35:05.920] willing to listen. But they cannot have
+- [35:08.240] a nuclear weapon. We don't want to see
+- [35:11.359] Washington DC or any of our cities or
+- [35:14.320] Israel or frankly the Middle East
+- [35:16.880] destroyed with a nuclear weapon because
+- [35:18.640] I know the power of nuclear weapons. I
+- [35:20.560] see it. I get to see it. We're not going
+- [35:22.640] to let that happen. So this is all about
+- [35:25.440] we will not let them have a nuclear
+- [35:28.400] weapon. [applause]
+- [35:32.640] And they would use it. They would use it
+- [35:34.720] if they had it. But O, I do have one
+- [35:37.599] question about what happened that time
+- [35:39.520] because he was there. How the hell did
+- [35:41.920] you not see that coming? He sees
+- [35:43.680] everything.
+- [35:45.200] He sees every He's telling me about your
+- [35:47.440] grandmother and your this. Why the hell
+- [35:50.000] didn't we got to ask him that question
+- [35:51.520] when he gets up here. Why didn't he see
+- [35:53.200] that coming? But of course, this
+- [35:55.359] evening, it's really all about the fake
+- [35:57.440] news media and your handling of prizes
+- [36:01.040] and writing and producing and performing
+- [36:03.680] madeup stories like the Academy Awards.
+- [36:05.680] You know, Academy Awards used to be the
+- [36:07.839] the epitome of ratings outside of the
+- [36:10.320] Super Bowl. It got the second most
+- [36:11.920] ratings. Now, it's down in the dumps.
+- [36:14.240] Nobody wants to watch it anymore because
+- [36:16.160] they took on Trump. They hit me all
+- [36:17.920] night long. They hit me. Uh, the winner
+- [36:21.040] is so and so. I want to talk about
+- [36:22.720] Donald Trump. I hate this man. Nobody
+- [36:25.200] wants to hear this stuff, right, Peter?
+- [36:27.440] Nobody wants to hear. You ever see the
+- [36:29.040] ratings? They used to have 48 million
+- [36:31.599] people. Now they have two people
+- [36:32.960] watching. But they learned their lesson.
+- [36:36.160] But I want to personally congratulate
+- [36:38.240] CNN's Caitlyn Collins
+- [36:41.920] on receiving her award. It was all about
+- [36:44.960] me. It's a fake. She shouldn't get the
+- [36:46.880] award. It was a fake. But I didn't mind.
+- [36:48.720] I said, "Caitlyn, congratulations."
+- [36:51.440] But it was fake. There's no question
+- [36:52.880] about it. But she's a young, attractive
+- [36:56.000] woman. She never smiles. I said,
+- [36:57.920] "Caitlyn, do you have a smile? Smile.
+- [37:01.040] You have a nice position. You're at CNN
+- [37:03.760] fake news. You should be a happy
+- [37:06.000] person." So, smile, Caitlyn. Just smile.
+- [37:08.720] But we attack. And I thought Caitlyn had
+- [37:12.240] really made it big with a major new
+- [37:15.680] sponsorship. But then I informed her
+- [37:18.160] that it wasn't her on the Bud Light can.
+- [37:21.680] It was Dylan Mulaney.
+- [37:24.640] And Dylan Mulaney cost Bud Light $35
+- [37:29.359] million in market cap. That was the
+- [37:32.800] worst commercial ever made. By the way,
+- [37:34.400] for those few people that want to hear
+- [37:36.000] that, most people don't care, but I
+- [37:38.000] would. I wouldn't want to hire Dylan
+- [37:39.440] anytime soon. Think of it. They hired
+- [37:41.839] Dylan Mulan. The market cap has gone
+- [37:44.320] down by $35 billion. Who wrote that
+- [37:47.839] commercial? And then you have writer
+- [37:50.320] Josh Dorsy. He also received He's been
+- [37:53.599] killing me for years. No, he's been And
+- [37:55.680] yet tonight he shakes my hand. He hugs
+- [37:57.599] me. Everything nice. He kills me. Josh
+- [38:00.800] is amazing. He writes more stories than
+- [38:02.960] any human being. There's nobody that
+- [38:06.160] writes more than Josh. He'll write four
+- [38:08.000] stories about me a day. All different
+- [38:09.760] subjects. I mean, I had the other day
+- [38:12.320] three stories and one on the I He was
+- [38:15.839] upset about this. One was on page seven,
+- [38:17.839] three were on page one. They were all
+- [38:19.280] written by Josh, but he's hit the big
+- [38:22.160] time. I mean, he's a workhorse. And yet,
+- [38:25.520] he's almost unhirable. You know, you
+- [38:27.440] hired He's just one of these guys. Wall
+- [38:29.680] Street Journal is lucky to have him, but
+- [38:32.079] you really It's a It's unbelievable.
+- [38:34.800] He's almost unhirable. CNN is also here,
+- [38:39.280] and I'm very disappointed they didn't
+- [38:41.280] bring Fake Tapper because he's had a
+- [38:44.079] rough couple of years. fake has, you
+- [38:45.839] know, he calls me up every once in a
+- [38:47.119] while if I pick it up. You know, I pick
+- [38:48.480] up my phone. I used to go to this young
+- [38:50.960] lady. I'd say, "Any calls from the
+- [38:53.280] press?" "No, sir." I said, "Oh, now I'm
+- [38:57.040] the president of the United States."
+- [38:58.560] Right? I'd say to Stephen Chung, "Is
+- [39:00.960] Stephen here someplace? Where's
+- [39:02.240] Stephen?" He's one of the toughest human
+- [39:04.160] beings I've ever met. Don't ever wrestle
+- [39:06.800] Stephen. You'll be in big trouble. But I
+- [39:09.040] say, "Stephen, let me ask you, did the
+- [39:10.880] press call?" "No, sir."
+- [39:13.520] H you know when I was a developer I'd
+- [39:15.440] get a call every half an hour I for
+- [39:17.119] whatever reason I always got
+- [39:18.240] disproportionate press so I said Stephen
+- [39:21.680] nobody called no sir two hours later I
+- [39:24.800] say hi Steve how we doing everything
+- [39:26.320] good anybody call no sir no press calls
+- [39:29.680] I said I'm president nope they never
+- [39:31.440] call so this went on for about a week
+- [39:33.520] I'd say Caroline did the press call no
+- [39:35.920] sir no calls I said nothing that's over
+- [39:39.440] a week I haven't received a call so I
+- [39:41.520] said you know what I'll do I'm going to
+- [39:42.640] give the address my phone number. That
+- [39:44.800] was the stupidest thing I ever did. I'm
+- [39:47.760] getting a call every 3.7 minutes.
+- [39:51.200] Stephen, I don't know where the hell
+- [39:52.800] you've been, but the press calls I'm
+- [39:55.839] getting calls ring, ring. I was with
+- [39:57.760] somebody today. They said, "I've never
+- [40:00.000] heard a phone ring as much. It's fresh."
+- [40:02.000] Now, I look at the thing and usually
+- [40:03.680] just delete, delete, delete. Every once
+- [40:06.079] in a while it'll be one of the people in
+- [40:08.800] this room that I like and I'll pick it
+- [40:11.200] up. Like this one right here calls me on
+- [40:13.839] occasion, right? She'll call me and she
+- [40:15.920] says, "Hello, sir. How are you? We want
+- [40:19.599] to talk about some horrible subject."
+- [40:21.520] Like a horrible depressing subject. I
+- [40:23.920] say, "Jackie, I don't want to talk about
+- [40:25.760] congratulations, however, on your new
+- [40:27.520] marriage, but I don't want to talk about
+- [40:29.680] it." But it's true. And people call me
+- [40:32.880] now and and so for weeks I go no calls
+- [40:35.839] and I learned then that both of them
+- [40:40.160] they feel that I'm doing a great job and
+- [40:42.160] they feel I'm above it all and that no
+- [40:45.200] person hundreds of people call no person
+- [40:48.720] is good enough to talk to Trump and so
+- [40:51.280] we don't even bother telling you that's
+- [40:52.800] not the way it works Caroline you have
+- [40:55.040] to let me know because sometimes I do
+- [40:57.359] want I do like to speak to the press but
+- [40:59.599] now I have the best system I've ever had
+- [41:01.680] it rings. And just so you understand,
+- [41:03.200] you're much better off of putting your
+- [41:04.400] name because if there's no name, I just
+- [41:06.240] I just can't do that. You know, I pick
+- [41:08.079] up every once in a while. Hello, I'm
+- [41:10.480] from Reno, Nevada. We're a startup
+- [41:12.880] paper. We're calling us the Reno
+- [41:16.960] Express. I said, do you believe I'm I'm
+- [41:18.800] the president of the United States. Mr.
+- [41:20.480] President, could I have your views on
+- [41:22.000] Iran?
+- [41:23.760] And I just hang up. No, I get the
+- [41:26.480] craziest calls. I mean, some of them, my
+- [41:28.800] wife said, I can't believe you do this.
+- [41:30.319] This is a hell of a way to live. But
+- [41:32.240] sometimes they get calls from very
+- [41:33.680] important. Sometimes I can straighten
+- [41:35.040] out stories that are going to be fake
+- [41:36.880] and I can make them from a fake story to
+- [41:38.960] a good story. I always find that when
+- [41:40.960] you don't speak to the press, you always
+- [41:42.640] get a bad story. When you do speak to
+- [41:44.880] the press, you have a shot at getting a
+- [41:46.640] good story. Oh, look. [applause]
+- [41:50.240] No. Be look, if I were a reporter and
+- [41:52.880] let's say I'm a big reporter, I work for
+- [41:54.720] the failing New York Times or I work for
+- [41:57.859] [clears throat]
+- [41:58.560] I don't know. Do they ever come to these
+- [41:59.920] dinners? Didn't they cancel out a long
+- [42:01.520] time ago? Big mistake. They they should
+- [42:03.680] be here. But I get a call. I've always
+- [42:06.160] found that, you know, speaking to them,
+- [42:09.920] you just do better. You do better when
+- [42:12.160] you can when you have the time. You
+- [42:14.079] speak to the reporter. You treat the
+- [42:15.920] reporter with respect. Sometimes now
+- [42:18.000] there are reporters where it doesn't
+- [42:19.520] matter. You can be so nice to them, it
+- [42:21.839] doesn't matter. You get treated
+- [42:22.880] unfairly. But you have a lot of great
+- [42:24.319] reporters where when you speak to them,
+- [42:25.920] you can get your point across. And
+- [42:27.440] that's a that's a good thing. But some
+- [42:29.839] people say that Jake Tapper is a great
+- [42:33.280] investigative reporter in DC. And that's
+- [42:35.599] why after moderating our debate, it only
+- [42:38.480] took him one year to break the story
+- [42:40.560] that Joe Biden might possibly have
+- [42:43.040] suffered from cognitive decline. Took
+- [42:45.760] him one year. He wrote a book about how
+- [42:47.680] great he was mentally, not not too good.
+- [42:50.160] And I don't like Biden because Biden was
+- [42:52.160] very unfair to a lot of people. But Jill
+- [42:54.560] Biden insists that Jill would have
+- [42:56.480] beaten me in 2024 even though he was way
+- [42:59.040] down. She said he was way behind in the
+- [43:00.960] polls because he was seriously ahead.
+- [43:04.319] She felt he was going to win because he
+- [43:06.000] was seriously ahead on deceased voters.
+- [43:08.560] He was leading on the deceased crowd and
+- [43:10.560] there were a lot of them. You're finding
+- [43:11.839] out there's a lot of them. Look at the
+- [43:13.359] numbers that just came out yesterday.
+- [43:15.680] And it's traditional that at least one
+- [43:17.839] or two potential presidential hopefuls
+- [43:20.880] attend the correspondence dinner, but
+- [43:23.200] many of them seem to have really
+- [43:25.119] chickenened out. I was disappointed that
+- [43:27.839] Gavin Nuskum
+- [43:30.079] didn't show up. He didn't show up. He
+- [43:32.240] should be here. But I heard that he
+- [43:35.119] recently said that we will lose our
+- [43:38.400] country if we don't fight fire with
+- [43:40.319] fire. And to be fair, there's only one
+- [43:44.079] thing we know about Gavin, and that's
+- [43:45.680] that he definitely doesn't want to fight
+- [43:47.359] fire with water. He's got a lot of
+- [43:48.800] water, never uses. What a disaster. That
+- [43:51.680] should have never happened. But Gavin
+- [43:54.640] Nuskam recently did a careerthreatening,
+- [43:58.560] one of the worst interviews I've ever
+- [44:00.079] seen where he said that he can't read a
+- [44:03.680] speech. He's incapable of reading a
+- [44:05.680] speech. He's a low IQ person. He's
+- [44:10.240] smarter, however, than all of the people
+- [44:12.079] in the room. And then he gets sued for
+- [44:13.680] being a racist, okay, when he said that.
+- [44:16.160] But he basically said he has various
+- [44:18.560] mental incapacities.
+- [44:20.720] He has difficulty and various other
+- [44:23.440] ailments mentally. And I'm looking at
+- [44:26.319] saying this is the worst interview. I'm
+- [44:28.079] watching this interview. I said, this is
+- [44:29.359] the worst interview I've ever seen given
+- [44:31.200] by a professional politician. I've been
+- [44:33.599] watching politicians for a long time,
+- [44:36.319] mostly on the previous side because I
+- [44:38.560] haven't been doing this too long. How am
+- [44:40.240] I doing? Not not bad for the number of
+- [44:42.640] for the number of minutes spent. Not
+- [44:45.280] bad. But with Gavin, so he said that all
+- [44:49.359] these things and I said anybody running
+- [44:51.359] again said all they have to do is take
+- [44:52.800] that one interview and you can't lose. I
+- [44:54.640] actually put out a statement that Gavin
+- [44:56.800] News has come out and said he will not
+- [45:00.000] be running for president because nobody
+- [45:02.800] can say what he said about himself and
+- [45:06.000] survived. Nuome was in big trouble when
+- [45:10.000] he openly admitted that Kamla was
+- [45:12.319] smarter than him. She said Kamla
+- [45:15.839] is smarter. If Kamala is smarter than
+- [45:18.640] someone, you don't want that person to
+- [45:21.200] be president of the United States of
+- [45:23.359] America. Between California's policies
+- [45:26.240] of enabling wildfires, paying drug
+- [45:30.000] addicts to be homeless, giving free sex
+- [45:33.040] changes to illegals, and telling rich
+- [45:35.520] people they're going to take away. All
+- [45:38.079] of your money is going to be taken away.
+- [45:40.079] People are fleeing and they're fleeing
+- [45:42.240] in droves. We can't have that in this
+- [45:44.240] country. It's becoming such a horrible
+- [45:46.800] and dangerous
+- [45:48.640] location that Elon Omar, one of my
+- [45:51.359] favorites, and her brother are thinking
+- [45:54.079] about moving together, very much in
+- [45:55.680] love. The video has surfaced recently of
+- [45:58.960] Elon
+- [46:00.640] giving a speech referring to World War
+- [46:03.839] II as World War 11.
+- [46:06.880] And uh they asked her about that. She
+- [46:08.960] still thought she thought she got it
+- [46:10.560] right, but I'm not surprised because
+- [46:12.880] she's a low IQ person and she's also a
+- [46:15.920] very dishonest person and she ought to
+- [46:18.400] get the hell out of our country. She
+- [46:19.920] shouldn't be here. She shouldn't be in
+- [46:21.440] our country. She also calls her brother
+- [46:24.160] husband number one. Omar is reportedly
+- [46:28.160] being investigated for fraud. She
+- [46:30.400] revised her net worth. I was shocked to
+- [46:33.040] see that she was worth much more than
+- [46:34.960] $30 million. And then when the press got
+- [46:37.839] on her, she revised it slightly downward
+- [46:40.079] to less than 18,000. So she went from
+- [46:42.720] much more than 30 million to 18,000. And
+- [46:46.240] I know Democrats and the word Democrat
+- [46:49.280] is something that's come into fashion. I
+- [46:51.680] changed the E with a U. And most people
+- [46:54.560] don't know that dumb has a B, so we
+- [46:56.960] don't have to worry about that. It's
+- [46:59.280] very quiet. I thought it was quite good,
+- [47:00.960] but I haven't gotten much credit for
+- [47:02.720] that. Fake news, good. Pocahontas is
+- [47:05.440] good. I won't say Lion Ted because he's
+- [47:08.480] on my side. I don't talk about past
+- [47:11.200] conquests, but we have a lot of them. I
+- [47:14.480] won't talk about They got a whole table
+- [47:16.720] full of Republicans there. They're
+- [47:18.240] saying, "No, don't mention my freaking
+- [47:20.079] name, will you, please?" But we've had a
+- [47:22.319] lot of good names, but the Democrats
+- [47:25.359] uh are there to destroy wealth. And
+- [47:28.160] honestly, they've gone absolutely crazy.
+- [47:30.240] Gavin Nuskam's not only a man who really
+- [47:35.359] wants to run for president, he's doing a
+- [47:38.319] bad job running a state. You can't have
+- [47:40.079] somebody like a JB Pritsker who I
+- [47:42.400] understand is not president sadly, but
+- [47:45.200] uh you know some people say never use
+- [47:48.720] the fat word and I don't. I would never
+- [47:50.960] call anybody fat. I have my own
+- [47:52.400] problems, you know. It's not like I'm
+- [47:54.079] perfect.
+- [47:55.760] Sir in the back, don't call him a fat
+- [47:58.720] pig. Okay, that's I'm sticking up for
+- [48:01.280] him. Don't call him you. You can't do
+- [48:04.560] that, sir. You can't call JB Pritsker a
+- [48:07.599] fat pig, please. All right. Thank you
+- [48:10.720] very much. I appreciate it. Everyone's
+- [48:12.880] trying to figure out who is that guy?
+- [48:14.319] Does he exist? But the nice part is when
+- [48:16.160] you do that, the press can't get you
+- [48:18.319] because I'm defending a man who
+- [48:21.599] obviously has a problem. Actually, he's
+- [48:23.119] lost a lot of weight. I saw him
+- [48:25.040] recently. He lost quite a bit of weight.
+- [48:27.119] I don't know what the hell. He's got no
+- [48:28.640] chance. Believe me. Anything he does,
+- [48:30.480] her family threw him out of the
+- [48:31.760] business. A number of other potential
+- [48:34.400] Democrat contenders. Sadly refused to
+- [48:37.119] show up tonight. We invited Elizabeth
+- [48:40.160] Pocahontas Warren.
+- [48:42.720] She's referred to Pocahontas because in
+- [48:45.920] fact I had to apologize. People came up.
+- [48:48.240] They said, "Uh, we want you to apologize
+- [48:51.040] to Elizabeth Warren for calling her
+- [48:55.680] Pocahontas." And I ended up apologizing
+- [48:58.640] to the real Pocahontas, but Elizabeth
+- [49:02.319] Warren was uh supposedly of Indian
+- [49:05.520] heritage.
+- [49:07.119] And then she took the test and she only
+- [49:08.960] had 1,024th
+- [49:10.960] Native American. And I said, "You know
+- [49:13.040] what? I have I think I'm more of an
+- [49:15.359] Indian than she is. So this is what we
+- [49:18.079] have to deal with." But Senator Warren
+- [49:20.559] did not accept our invitation to debate.
+- [49:22.880] I wanted to debate her on various
+- [49:24.400] incendry things and she decided not to
+- [49:26.640] do it and I decided to bury the hatchet.
+- [49:30.079] It doesn't matter. And
+- [49:33.920] she Well, I'm not going to say this next
+- [49:36.240] one. Do you want to hear this one? How
+- [49:38.559] bad? She wasn't high up on her totem
+- [49:41.280] pole. Who the hell wrote that?
+- [49:43.920] No, she's bad news. I wanted to make
+- [49:45.839] sure that Jack Smith, deranged Jack
+- [49:47.599] Smith, remember he went after me for
+- [49:49.200] about two years. How did he do? Not too
+- [49:51.680] good. But I'm in the White House and
+- [49:54.480] he's not doing as well. I was going to
+- [49:56.800] say he's in a different kind of a house,
+- [49:58.400] but he's a deranged human being. He's a
+- [50:00.480] bad prosecutor. You know, prosecutors
+- [50:02.720] are very important. A great prosecutor,
+- [50:05.119] a fair prosecutor, but that's the great
+- [50:07.359] prosecutors, the ones that are fair.
+- [50:09.040] They're very important to a country. But
+- [50:10.640] this guy was a deranged lunatic. I saw
+- [50:13.680] his invitation tonight. he was invited
+- [50:16.640] cuz you know but I put it in a private
+- [50:20.079] text to Chuck Grassley and uh Chuck saw
+- [50:24.240] him and he did a certain thing and then
+- [50:26.319] you one one man that we had who should
+- [50:28.880] be here he turned Palestinian
+- [50:31.599] this was a man who was 100% for Israel
+- [50:37.200] 100% Chuck Schumer crying Chuck remember
+- [50:40.240] he cried at the airport over illegal
+- [50:42.000] immigrants they were the fakest tears
+- [50:44.640] there were people throwing water in his
+- [50:46.319] face. But now he's a proud, very proud
+- [50:49.760] Palestinian. In fact, I'm going to send
+- [50:51.839] him a beautiful Palestinian outfit
+- [50:54.400] tomorrow so he can greet BB Netanyahu
+- [50:58.559] when he comes to town next week along
+- [51:01.040] with the mayor who I'm sure would love
+- [51:02.400] to meet BB. uh they're not treating BB
+- [51:05.520] too well. But Chuck wanted to join us
+- [51:07.359] tonight, but he didn't want to be
+- [51:09.440] violating many parts of the Palestinian
+- [51:12.800] rules, regulations, and certainly he
+- [51:14.800] didn't want to violate Sharia law, his
+- [51:17.040] new his new founding. And all joking
+- [51:20.319] aside, I do think we need term limits in
+- [51:23.280] Congress. I think term limits are very
+- [51:25.200] important because I see what's
+- [51:26.480] happening. I see what's happening. The
+- [51:29.200] other day, a senator I knew got a text,
+- [51:31.520] a great guy, from his wife,
+- [51:35.119] and she said, "When you get home, I want
+- [51:37.119] to have you immediately come up the
+- [51:39.280] stairs and make love to me." And he
+- [51:42.640] said, "I can't do both." You know what?
+- [51:46.480] You know, in other words, can't go up
+- [51:49.760] the stairs and make love. Does anybody
+- [51:51.839] get that? Well, I thought that was
+- [51:53.040] actually pretty good. That was actually
+- [51:54.800] the only thing I thought was good in
+- [51:56.319] this whole freaking stupid speech that
+- [51:58.240] they wrote. [cheering]
+- [52:00.160] That was the only good one. And that
+- [52:01.839] went down with not exactly great
+- [52:03.599] laughter. I think, you know, in other
+- [52:05.760] words, you can't go up the stairs and
+- [52:07.119] make love too, you know. So, we're
+- [52:09.359] looking for term limits. Does anybody
+- [52:11.119] understand this? [laughter]
+- [52:14.240] But I really do wonder whether the
+- [52:16.240] Democrats are trying to lose the
+- [52:18.160] midterms in Maine. They nominated a guy
+- [52:21.040] with a Nazi tattoo. But don't worry,
+- [52:23.920] Democrats. Word is that Platin's
+- [52:26.400] replacement. He throws bottles at women.
+- [52:29.680] This guy throws bottles. This guy's
+- [52:30.960] another lunatic, by the way. Although, I
+- [52:33.520] think Platner might have done
+- [52:34.720] surprisingly well because we're in the
+- [52:38.319] age of Trump. Call it what you want.
+- [52:41.200] People can do well today. Platner, I
+- [52:44.079] don't know. But, you know, people don't
+- [52:45.520] have the guts to stick it out. But, it
+- [52:47.200] looked like he was guilty of a lot of
+- [52:48.640] stuff. He certainly didn't defend
+- [52:50.160] himself very well in Texas. The
+- [52:52.319] Democrats are running a candidate named
+- [52:55.040] James Telerico
+- [52:57.599] who hates guns, hates oil, hates sex,
+- [53:00.160] hates women, and who said he is quote a
+- [53:04.319] Christian who hates Christianity. Other
+- [53:06.800] than that, his I think his platform is
+- [53:08.800] quite good.
+- [53:10.640] And that means that he's not going to do
+- [53:12.160] very well against Ken Paxton, who
+- [53:13.839] hopefully in Texas is going to win. But
+- [53:16.480] Telerico, he's Alf, you know what it
+- [53:18.319] looks like to me? Alfred Eye Newman. Do
+- [53:19.760] you remember Alfred Newman? Mad
+- [53:21.359] Magazine. I said that guy is Alfred E.
+- [53:23.760] Newman. Can't imagine he'd win. Well, I
+- [53:26.319] have all of the press here in one place.
+- [53:28.960] I have to say that we're having an
+- [53:32.079] amazing load of accomplishments that the
+- [53:35.119] media never talks about. For example,
+- [53:36.960] under my administration, a once-feared
+- [53:39.280] and powerful regime that relentlessly
+- [53:42.160] attacked America has finally been
+- [53:43.839] toppled. Their former leaders have been
+- [53:46.319] removed and they're now being run by a
+- [53:48.960] gay dictator facing internal divisions.
+- [53:52.480] But I for one wish Barry Weiss all the
+- [53:56.559] best at CBS News.
+- [53:59.200] She a wonderful woman. Most of the press
+- [54:02.480] lives here in Washington DC and you
+- [54:04.640] should be thankful for me for what my
+- [54:07.520] administration and I have done to make
+- [54:09.920] our nation's capital which was one of
+- [54:12.160] the most dangerous and unsafe cities
+- [54:14.960] anywhere in the world.
+- [54:17.280] One of the safest cities in the United
+- [54:19.119] States. Crime is down 88%. And our
+- [54:22.079] capital is shining again with 62
+- [54:24.400] monument statues, water fountains
+- [54:26.480] looking more beautiful. The graffiti is
+- [54:29.280] all gone. The tents are all moved out of
+- [54:32.559] the parks. The fences are all done. Our
+- [54:35.680] capital looks like it's really in good
+- [54:38.880] shape. And people coming here, people in
+- [54:41.200] the White House, they work in the White
+- [54:42.400] House. They all say, "Young women, young
+- [54:44.559] guys walk up, they say, "Thank you, sir.
+- [54:47.200] Two years ago, we lived in a dangerous
+- [54:49.119] city. We lived in a city where 150
+- [54:51.280] people were killed a year.
+- [54:53.680] And now we are we have almost a
+- [54:55.760] crimefree city. Our National Guard has
+- [54:59.200] done an incredible job and we've removed
+- [55:01.280] over 5,000 career criminals. [applause]
+- [55:05.599] You know, we removed there's one stat I
+- [55:07.599] think it's a great stat. It's uh it's to
+- [55:10.640] me it's fantastic. 2% of the people
+- [55:15.280] create 91% of the crime. That's
+- [55:18.319] something you can fix and we fix it. We
+- [55:20.160] moved out over 5,000 career criminals
+- [55:23.280] out of Washington DC. And we have the
+- [55:26.480] greatest capital in the world. Again,
+- [55:28.720] it's beautiful. It's thriving. The
+- [55:30.559] restaurants are thriving. You couldn't
+- [55:32.640] get into a restaurant because they
+- [55:33.839] didn't have all the restaurants were
+- [55:35.359] closing. And if you even got in, you
+- [55:38.000] felt unsafe. People were getting into
+- [55:40.400] Ubers and they were being attacked when
+- [55:42.160] they were in an Uber. It's not happening
+- [55:44.480] anymore. We have tough, smart people and
+- [55:48.000] they have done a fantastic job.
+- [55:49.920] Washington DC is safe again. You can't
+- [55:52.880] get into a restaurant. The restaurants
+- [55:54.640] are opening up. They're opening up all
+- [55:56.319] over the city. They can't get It's the
+- [55:58.240] exact opposite. They can't get space.
+- [56:01.200] But mostly I've given up on you and the
+- [56:03.839] media so that now I just gave up in you
+- [56:06.559] and I'm number one on Tik Tok. Did you
+- [56:08.240] see that? I'm number one, Stephen. Is
+- [56:09.760] that true? I'm number one on Tik Tok.
+- [56:12.880] How could they be so bad? 52.
+- [56:15.920] Think of this. 425
+- [56:18.480] billion views. Can you believe that,
+- [56:20.480] Peter? I mean, let's go, Peter. I gave
+- [56:22.960] up on you people. I gave up on
+- [56:24.960] traditional press. And it obviously
+- [56:27.680] worked because we did win in a
+- [56:29.040] landslide. I mean, somebody's got to be
+- [56:30.640] saying something good about me. But Tik
+- [56:33.200] Tok, good old Tik Tok. And I was able to
+- [56:35.520] get it sold to a group of very wealthy
+- [56:38.240] people, mostly Americans. I would told
+- [56:40.480] President Xi, who's a man that I get
+- [56:42.559] along with very well, he was a hard no
+- [56:44.960] for the sale of Tik Tok. They all said
+- [56:47.280] he's a hard no. I said, well, let's call
+- [56:49.200] put your group together. They put it
+- [56:50.559] together. Billions, hundreds of billions
+- [56:52.160] of dollars. I called up President Xi as
+- [56:54.880] their president. Look, these are
+- [56:56.880] American people. They're wonderful
+- [56:58.880] people. In fact, one of them happens to
+- [57:01.200] own CBS. Actually, I mentioned his name.
+- [57:03.920] I said, "These are wonderful people and
+- [57:06.799] it'll be a good thing. Does it mean
+- [57:08.319] anything?" president, it's nothing. It's
+- [57:11.040] nothing. They love your country. We'd
+- [57:13.839] love to see you approve the deal. And he
+- [57:16.319] goes,
+- [57:18.000] "All right, that was it. It was done."
+- [57:20.319] And we sold Tik Tok. And he's a friend
+- [57:22.559] of mine. And he's not contributing to
+- [57:25.359] problems like other people contribute to
+- [57:27.440] problems. So, we get along, but we made
+- [57:30.160] the deal. But number one on TikTok is
+- [57:32.160] Trump. And that's probably why we won.
+- [57:34.000] But for all of the trouble that you give
+- [57:35.839] me, you give me a lot of trouble, a lot
+- [57:37.520] of heartache. I hope all of you know
+- [57:39.839] that I believe in the free press more
+- [57:41.760] than anyone in this room does.
+- [57:45.200] Maybe not quite. But that's why I'm
+- [57:47.920] proud to be the most open and
+- [57:49.520] transparent president in history. They
+- [57:51.760] call me that. You know who calls me
+- [57:53.599] that? Caroline. That's about it. So,
+- [57:55.599] would anybody else call me that? I think
+- [57:57.280] Peter would call me that. Am I the most
+- [57:59.680] transparent? Biden never used to answer
+- [58:01.359] your questions. He'd ask Biden 20
+- [58:03.440] questions. He'd never get an answer.
+- [58:05.280] Who's the most transparent president,
+- [58:07.359] Peter?
+- [58:10.160] >> Who? Who? I look at him. I It's the
+- [58:14.079] first time he's He's tongue tied. I
+- [58:17.359] cannot believe it. Oh, he's not going to
+- [58:19.440] be happy tomorrow. But you people have
+- [58:21.680] no idea how lucky you are. When I'm
+- [58:23.520] gone, you're all going to be broke. Your
+- [58:26.480] business model is going to be finished.
+- [58:28.240] No, it's true. When I'm not around,
+- [58:30.319] you're going to be broke. There's not
+- [58:31.520] going to be anybody to report on. Nobody
+- [58:34.160] gives a damn about anybody else.
+- [58:37.599] The New York Times the other day had
+- [58:39.440] five stories about me. You know, before
+- [58:42.160] I got into politics in my whole life, I
+- [58:45.040] had seven front page stories. This is
+- [58:46.960] years of success. I think six were good,
+- [58:49.760] one was bad. I had five stories. Seven.
+- [58:53.599] Five good. Yeah. I had a total of seven
+- [58:55.839] stories on the front page of the New
+- [58:57.280] York Times. That's not bad. Now I
+- [58:59.760] average about three or four a day. All
+- [59:02.000] different topics, all bad. Everything's
+- [59:04.079] bad. But here we are. I mean, here we
+- [59:07.040] are. In fact, when I'm finished, I'm
+- [59:08.400] going right back to the Oval Office. So,
+- [59:10.480] I have to be doing okay. But we are all
+- [59:12.799] doing good together. That's why tonight
+- [59:14.559] to show just how much I care about the
+- [59:17.200] press. And uh I want to save your
+- [59:20.799] ratings. I'm pleased to announce my
+- [59:23.599] intention to and this is a somewhat of a
+- [59:27.280] scoop. My intention to run for a fourth
+- [59:32.160] term as president of the United States.
+- [59:35.680] I will be doing that. I will be having
+- [59:38.079] an official. In fact, I think I have
+- [59:40.640] Yeah,
+- [59:42.799] I won. I won three times. Now I'm going
+- [59:46.000] to do it again.
+- [59:50.640] Thank you. I'm going to do it again. It
+- [59:53.760] should be easy. I'm getting very good at
+- [59:55.359] running for president. No, I won three
+- [59:57.760] times. Did very well the second time, by
+- [59:59.680] the way. It's a rigged election, but we
+- [01:00:01.520] don't have to talk about it. You know,
+- [01:00:02.880] it's interesting when you come back and
+- [01:00:04.319] you do a good job like we did. And you
+- [01:00:06.720] don't care about it so much. But we do
+- [01:00:08.319] have to tighten up these elections
+- [01:00:09.680] because they really are in seriously bad
+- [01:00:12.079] shape. But on a serious note, I want to
+- [01:00:14.400] say once again, I just want to thank you
+- [01:00:16.079] all. It's been an interesting evening. I
+- [01:00:18.559] didn't really know what to expect and
+- [01:00:20.880] it's far worse than I actually thought,
+- [01:00:23.040] but if you want to know that, but I
+- [01:00:25.440] didn't know exactly what to expect. And
+- [01:00:28.319] uh I've made a lot of friends tonight.
+- [01:00:29.920] I've made a lot of good friends tonight.
+- [01:00:31.440] Probably made some enemies also. But uh
+- [01:00:34.480] it's been an experience that is uh
+- [01:00:36.960] something that we've all shared together
+- [01:00:38.559] because we're all in this room tonight
+- [01:00:41.200] because most of us went through a period
+- [01:00:43.119] of of uh trauma from just a short while
+- [01:00:47.040] ago. And you know, some people said they
+- [01:00:50.319] wanted to come, but they were afraid to
+- [01:00:51.760] come. And you people weren't afraid to
+- [01:00:53.359] come. There were a lot of people that
+- [01:00:55.839] said, Jackie, they don't really, you
+- [01:00:58.079] know, they didn't have the courage to
+- [01:00:59.599] come. And we don't want that to happen.
+- [01:01:02.640] And I'm sure it's not going to happen.
+- [01:01:04.240] We're gonna do things. Again, I want to
+- [01:01:06.480] thank our law enforcement. Keeps us
+- [01:01:08.079] safe. All law enforcement. It's We have
+- [01:01:11.760] the greatest people on earth. You know,
+- [01:01:13.280] we had u two years ago we had the worst
+- [01:01:16.559] record of recruitment in, as an example,
+- [01:01:19.119] the military, Army, Navy, Air Force,
+- [01:01:21.359] Marines, the Coast Guard, Space Force. I
+- [01:01:24.160] love Space Force. Look at all that
+- [01:01:26.240] shooting we're able to do from space.
+- [01:01:28.000] That was my baby. But all of the
+- [01:01:30.720] branches of you couldn't get people to
+- [01:01:32.640] join. This was two years ago. And last
+- [01:01:35.839] week, you probably saw some of you wrote
+- [01:01:37.760] the story. We have the single best
+- [01:01:40.400] recruiting of people into our armed
+- [01:01:42.480] forces than we have ever had in the
+- [01:01:44.880] history of our country. We have they are
+- [01:01:47.520] brimming over with great people. And
+- [01:01:51.040] that's a big statement. And that also
+- [01:01:52.720] goes for the police departments where
+- [01:01:55.520] they were having a tremendous problem
+- [01:01:57.280] recruiting. You can't get into a police
+- [01:01:59.119] department now if you're looking for a
+- [01:02:00.559] job. It's very tough. And that also
+- [01:02:02.720] includes our great fire departments
+- [01:02:04.400] because people forget about them.
+- [01:02:05.920] They're unbelievable the job they do.
+- [01:02:08.720] So, I just want to thank you. Look,
+- [01:02:10.240] we're on the uh cusp of something big.
+- [01:02:13.280] And I call it and this I'm being very
+- [01:02:15.280] serious when I say this that this is the
+- [01:02:17.520] golden age of America. We have 19.2
+- [01:02:21.040] trillion dollars being spent in our
+- [01:02:22.799] country. A record was China. I think it
+- [01:02:25.680] was 10 years ago. 3 trillion trillion is
+- [01:02:28.319] a lot. Four years they went less than 1
+- [01:02:32.240] trillion under Biden and we have 192
+- [01:02:36.559] trillion and this is a period of
+- [01:02:39.359] actually 13 months not even current
+- [01:02:41.920] because we're here a little bit longer
+- [01:02:43.520] than that but that was as of reporting
+- [01:02:46.000] dates. $19.2 trillion is being spent.
+- [01:02:49.680] Factories are coming. Toyota just
+- [01:02:51.280] announced they're going to be building
+- [01:02:52.880] the biggest car plant in the world.
+- [01:02:54.480] They're leaving Mexico. They're coming
+- [01:02:56.000] here. Tariffs did that. Tariffs did
+- [01:02:58.480] that. And maybe November 5th did that,
+- [01:03:01.200] too, the election. But our country is
+- [01:03:04.480] doing things that nobody's ever seen
+- [01:03:06.160] before. And it is true. We were, and
+- [01:03:08.640] you've heard me say this, we were a dead
+- [01:03:11.359] country two years ago. Other leaders
+- [01:03:14.400] would see me and they say it's a
+- [01:03:16.720] miracle. President Xi told me that a few
+- [01:03:20.480] weeks ago in China and he's coming here
+- [01:03:23.119] on September, I think 24th, coming in
+- [01:03:26.720] September, the end of September. Going
+- [01:03:28.480] to be exciting. But he said the same
+- [01:03:31.119] thing. The king of Saudi Arabia said it.
+- [01:03:33.119] Everyone said almost the same words. We
+- [01:03:35.520] thought you were a dead country. We
+- [01:03:37.119] never thought you had a chance. You were
+- [01:03:38.400] never going to make it back. And in a
+- [01:03:39.760] period of year, period of one year, you
+- [01:03:42.319] made it the hottest country anywhere in
+- [01:03:44.000] the world. We all did that together.
+- [01:03:45.359] It's not me. We all did it together.
+- [01:03:47.920] And we do. We have the hottest country
+- [01:03:49.920] anywhere in the world. And we're going
+- [01:03:51.760] to keep it going. And I just want to say
+- [01:03:54.160] this is the room. I have tremendous
+- [01:03:55.839] respect for the people in this room.
+- [01:03:57.760] Sometimes I don't feel you treat me
+- [01:03:59.760] fair. Maybe you do. I don't know. I
+- [01:04:01.680] don't feel that. But sometimes you treat
+- [01:04:03.200] me very fairly. And I have a lot of
+- [01:04:05.680] respect for your profession. Your
+- [01:04:07.119] profession is amazing. And I just want
+- [01:04:09.520] to thank you for having me. And it's
+- [01:04:12.000] been fun. And I've met a lot of great
+- [01:04:13.839] people. And you know, I used an
+- [01:04:15.839] expression and I've used it right from
+- [01:04:17.280] the beginning. I did this for one
+- [01:04:18.799] reason, to make America great again. And
+- [01:04:20.559] that's what's happening right before
+- [01:04:21.760] your very eyes. We have made America
+- [01:04:24.079] great again. It's going to get a lot
+- [01:04:25.359] greater. So, thank you all very much.
+- [01:04:27.119] It's an honor to be with you. Thank you.
+- [01:04:28.799] Thank you very much. Thank [applause]
+- [01:04:36.334] [music]
+- [01:04:37.839] off the ground. I said young man, you're
+- [01:04:41.359] in a [music] new town. There's no need
+- [01:04:43.839] to be unhappy.

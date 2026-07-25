@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=2EFpaUNGFeE: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=2EFpaUNGFeE! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/xqY9bHDRbuA: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=xqY9bHDRbuA! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -10673,6 +10673,17 @@
       "published": "2026-07-25T03:08:10+00:00",
       "title": "The funniest president \ud83e\udd23",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7666297049213668622"
+    },
+    "tiktok:whitehouse:7666548745495907598": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-07-25T19:54:41.927953+00:00",
+      "path": "TikTok/WhiteHouse/2026/07/25/7666548745495907598",
+      "platform": "tiktok",
+      "post_id": "7666548745495907598",
+      "published": "2026-07-25T19:25:05+00:00",
+      "title": "President Trump is bringing back made in America \ud83c\uddfa\ud83c\uddf8",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7666548745495907598"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -167941,6 +167952,17 @@
       "title": "President Trump Participates in a Meeting with the Secretary General of NATO",
       "url": "https://www.youtube.com/watch?v=0moOxFjwdn4"
     },
+    "youtube:whitehouse:0pswvKw76Uc": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-25T19:54:48.247863+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/24/0pswvKw76Uc",
+      "platform": "youtube",
+      "post_id": "0pswvKw76Uc",
+      "published": "2026-07-24T21:53:04+00:00",
+      "title": "President Trump Makes an Announcement on American Nuclear Innovation",
+      "url": "https://www.youtube.com/watch?v=0pswvKw76Uc"
+    },
     "youtube:whitehouse:0tVY3pwVr3I": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -168347,6 +168369,17 @@
       "published": "2025-06-28T17:02:40+00:00",
       "title": "NOW That\u2019s What I Call Freedom 2025: The One Big Beautiful Bill",
       "url": "https://www.youtube.com/watch?v=2Ave73JRdOk"
+    },
+    "youtube:whitehouse:2EFpaUNGFeE": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-25T19:54:47.248702+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/25/2EFpaUNGFeE",
+      "platform": "youtube",
+      "post_id": "2EFpaUNGFeE",
+      "published": "2026-07-25T02:41:16+00:00",
+      "title": "President Trump Delivers Remarks, Jul. 24, 2026",
+      "url": "https://www.youtube.com/watch?v=2EFpaUNGFeE"
     },
     "youtube:whitehouse:2Ey5TwGj7Cc": {
       "account": "WhiteHouse",
@@ -175090,6 +175123,17 @@
       "published": "2025-12-20T18:27:52+00:00",
       "title": "President Trump Announces Largest Developments in Bringing Most-Favored-Nation Pricing to Americans",
       "url": "https://www.youtube.com/watch?v=NPQgFalYcLA"
+    },
+    "youtube:whitehouse:NPWLGs-bmZY": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-25T19:54:49.199828+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/24/NPWLGs_bmZY",
+      "platform": "youtube",
+      "post_id": "NPWLGs-bmZY",
+      "published": "2026-07-24T20:42:25+00:00",
+      "title": "Back-to-Back World Series Champions, the LA Dodgers, at the White House: Postcard Edition",
+      "url": "https://www.youtube.com/watch?v=NPWLGs-bmZY"
     },
     "youtube:whitehouse:NS1xNWqJazY": {
       "account": "WhiteHouse",
