@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-26
 
-- Posts: 30
+- Posts: 31
 
+- [19:47 UTC - Truth Social post 116988001548688589](116988001548688589/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116988001548688589
+  - _No text content captured._
 - [19:33 UTC - Truth Social post 116987945290640259](116987945290640259/)
   - Source: https://truthsocial.com/@realDonaldTrump/116987945290640259
   - _No text content captured._
