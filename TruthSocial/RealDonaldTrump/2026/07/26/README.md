@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-07-26
 
-- Posts: 12
+- Posts: 15
 
+- [13:46 UTC - Thank you to Highly Respected Mohammed VI, the King of Morocco — Such a Great Honor! I loo...](116986582428363613/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116986582428363613
+  - Thank you to Highly Respected Mohammed VI, the King of Morocco — Such a Great Honor! I look forward to traveling the entire length of this Great Highway someday, hopefully soon! Pr...
+- [13:39 UTC - [https://www. cnbc.com/2026/07/23/google-1-b illion-eu-fine-dma.html](https://www.cnbc.com...](116986556826955994/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116986556826955994
+  - [https://www. cnbc.com/2026/07/23/google-1-b illion-eu-fine-dma.html](https://www.cnbc.com/2026/07/23/google-1-billion-eu-fine-dma.html)
+- [13:11 UTC - Truth Social post 116986444957105099](116986444957105099/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116986444957105099
+  - _No text content captured._
 - [09:23 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985546564236950](116985547613847953/)
   - Source: https://truthsocial.com/@realDonaldTrump/116985547613847953
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985546564236950
