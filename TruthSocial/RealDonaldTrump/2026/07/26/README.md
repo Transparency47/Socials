@@ -1,7 +1,46 @@
 # TruthSocial / RealDonaldTrump / 2026-07-26
 
-- Posts: 17
+- Posts: 30
 
+- [19:33 UTC - Truth Social post 116987945290640259](116987945290640259/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116987945290640259
+  - _No text content captured._
+- [19:32 UTC - Truth Social post 116987944179267331](116987944179267331/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116987944179267331
+  - _No text content captured._
+- [19:31 UTC - Truth Social post 116987941233666572](116987941233666572/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116987941233666572
+  - _No text content captured._
+- [19:31 UTC - Truth Social post 116987940337917728](116987940337917728/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116987940337917728
+  - _No text content captured._
+- [19:25 UTC - Truth Social post 116987916984661637](116987916984661637/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116987916984661637
+  - _No text content captured._
+- [19:25 UTC - Truth Social post 116987914358073377](116987914358073377/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116987914358073377
+  - _No text content captured._
+- [19:24 UTC - Truth Social post 116987911134538733](116987911134538733/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116987911134538733
+  - _No text content captured._
+- [19:24 UTC - Truth Social post 116987909945766850](116987909945766850/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116987909945766850
+  - _No text content captured._
+- [19:23 UTC - Truth Social post 116987909203284060](116987909203284060/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116987909203284060
+  - _No text content captured._
+- [19:23 UTC - Truth Social post 116987908357353303](116987908357353303/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116987908357353303
+  - _No text content captured._
+- [19:23 UTC - Truth Social post 116987907386884999](116987907386884999/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116987907386884999
+  - _No text content captured._
+- [19:23 UTC - Truth Social post 116987906648853970](116987906648853970/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116987906648853970
+  - _No text content captured._
+- [19:22 UTC - Truth Social post 116987905837218727](116987905837218727/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116987905837218727
+  - _No text content captured._
 - [15:43 UTC - Truth Social post 116987042116835106](116987042116835106/)
   - Source: https://truthsocial.com/@realDonaldTrump/116987042116835106
   - _No text content captured._
