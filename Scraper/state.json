@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/xqY9bHDRbuA: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=xqY9bHDRbuA! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/xqY9bHDRbuA: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=xqY9bHDRbuA! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -127163,6 +127163,116 @@
       "published": "2026-07-26T03:48:11.004000+00:00",
       "title": "The all Republican Senators! Terminate the Filibuster, which the Dumocrats will do as soon...",
       "url": "https://truthsocial.com/@realDonaldTrump/116984230117651831"
+    },
+    "truthsocial:realdonaldtrump:116985537282198490": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-26T09:30:32.115627+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/26/116985537282198490",
+      "platform": "truthsocial",
+      "post_id": "116985537282198490",
+      "published": "2026-07-26T09:20:36.819000+00:00",
+      "title": "Truth Social post 116985537282198490",
+      "url": "https://truthsocial.com/@realDonaldTrump/116985537282198490"
+    },
+    "truthsocial:realdonaldtrump:116985538488226369": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-26T09:30:32.115342+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/26/116985538488226369",
+      "platform": "truthsocial",
+      "post_id": "116985538488226369",
+      "published": "2026-07-26T09:20:55.251000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985537282198490",
+      "url": "https://truthsocial.com/@realDonaldTrump/116985538488226369"
+    },
+    "truthsocial:realdonaldtrump:116985539855804799": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-26T09:30:32.114918+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/26/116985539855804799",
+      "platform": "truthsocial",
+      "post_id": "116985539855804799",
+      "published": "2026-07-26T09:21:16.117000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985538488226369",
+      "url": "https://truthsocial.com/@realDonaldTrump/116985539855804799"
+    },
+    "truthsocial:realdonaldtrump:116985540759658958": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-26T09:30:32.114536+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/26/116985540759658958",
+      "platform": "truthsocial",
+      "post_id": "116985540759658958",
+      "published": "2026-07-26T09:21:29.912000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985539855804799",
+      "url": "https://truthsocial.com/@realDonaldTrump/116985540759658958"
+    },
+    "truthsocial:realdonaldtrump:116985541740203201": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-26T09:30:32.114121+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/26/116985541740203201",
+      "platform": "truthsocial",
+      "post_id": "116985541740203201",
+      "published": "2026-07-26T09:21:44.874000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985540759658958",
+      "url": "https://truthsocial.com/@realDonaldTrump/116985541740203201"
+    },
+    "truthsocial:realdonaldtrump:116985543077318839": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-26T09:30:32.113709+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/26/116985543077318839",
+      "platform": "truthsocial",
+      "post_id": "116985543077318839",
+      "published": "2026-07-26T09:22:05.275000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985541740203201",
+      "url": "https://truthsocial.com/@realDonaldTrump/116985543077318839"
+    },
+    "truthsocial:realdonaldtrump:116985544314974655": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-26T09:30:32.113233+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/26/116985544314974655",
+      "platform": "truthsocial",
+      "post_id": "116985544314974655",
+      "published": "2026-07-26T09:22:24.066000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985543077318839",
+      "url": "https://truthsocial.com/@realDonaldTrump/116985544314974655"
+    },
+    "truthsocial:realdonaldtrump:116985545303195966": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-26T09:30:32.112880+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/26/116985545303195966",
+      "platform": "truthsocial",
+      "post_id": "116985545303195966",
+      "published": "2026-07-26T09:22:39.238000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985544314974655",
+      "url": "https://truthsocial.com/@realDonaldTrump/116985545303195966"
+    },
+    "truthsocial:realdonaldtrump:116985546564236950": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-26T09:30:32.112502+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/26/116985546564236950",
+      "platform": "truthsocial",
+      "post_id": "116985546564236950",
+      "published": "2026-07-26T09:22:58.480000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985545303195966",
+      "url": "https://truthsocial.com/@realDonaldTrump/116985546564236950"
+    },
+    "truthsocial:realdonaldtrump:116985547613847953": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-26T09:30:32.112061+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/26/116985547613847953",
+      "platform": "truthsocial",
+      "post_id": "116985547613847953",
+      "published": "2026-07-26T09:23:14.496000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985546564236950",
+      "url": "https://truthsocial.com/@realDonaldTrump/116985547613847953"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",

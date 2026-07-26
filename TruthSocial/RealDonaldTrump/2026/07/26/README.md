@@ -1,7 +1,37 @@
 # TruthSocial / RealDonaldTrump / 2026-07-26
 
-- Posts: 2
+- Posts: 12
 
+- [09:23 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985546564236950](116985547613847953/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116985547613847953
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985546564236950
+- [09:22 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985545303195966](116985546564236950/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116985546564236950
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985545303195966
+- [09:22 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985544314974655](116985545303195966/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116985545303195966
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985544314974655
+- [09:22 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985543077318839](116985544314974655/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116985544314974655
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985543077318839
+- [09:22 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985541740203201](116985543077318839/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116985543077318839
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985541740203201
+- [09:21 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985540759658958](116985541740203201/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116985541740203201
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985540759658958
+- [09:21 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985539855804799](116985540759658958/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116985540759658958
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985539855804799
+- [09:21 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985538488226369](116985539855804799/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116985539855804799
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985538488226369
+- [09:20 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985537282198490](116985538488226369/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116985538488226369
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116985537282198490
+- [09:20 UTC - Truth Social post 116985537282198490](116985537282198490/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116985537282198490
+  - _No text content captured._
 - [03:48 UTC - The all Republican Senators! Terminate the Filibuster, which the Dumocrats will do as soon...](116984230117651831/)
   - Source: https://truthsocial.com/@realDonaldTrump/116984230117651831
   - The all Republican Senators! Terminate the Filibuster, which the Dumocrats will do as soon as they get the chance, and PASS THE SAVE AMERICA ACT, and everything else, including the...
