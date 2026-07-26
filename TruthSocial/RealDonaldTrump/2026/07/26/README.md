@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-07-26
 
-- Posts: 15
+- Posts: 17
 
+- [15:43 UTC - Truth Social post 116987042116835106](116987042116835106/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116987042116835106
+  - _No text content captured._
+- [15:16 UTC - Truth Social post 116986935948703907](116986935948703907/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116986935948703907
+  - _No text content captured._
 - [13:46 UTC - Thank you to Highly Respected Mohammed VI, the King of Morocco — Such a Great Honor! I loo...](116986582428363613/)
   - Source: https://truthsocial.com/@realDonaldTrump/116986582428363613
   - Thank you to Highly Respected Mohammed VI, the King of Morocco — Such a Great Honor! I look forward to traveling the entire length of this Great Highway someday, hopefully soon! Pr...
