@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-27
 
-- Posts: 21
+- Posts: 22
 
+- [21:52 UTC - BREAKING NEWS: The Failing New York Times, after 10 years of harassment, slander, and libe...](116994156371757363/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116994156371757363
+  - BREAKING NEWS: The Failing New York Times, after 10 years of harassment, slander, and libel, just failed again in their desperate attempt to have our powerful Defamation Lawsuit ag...
 - [20:24 UTC - Sen. Ron Johnson: Move to End the Filibuster Now—Before Democrats Do: [https://www. wsj.co...](116993810062084166/)
   - Source: https://truthsocial.com/@realDonaldTrump/116993810062084166
   - Sen. Ron Johnson: Move to End the Filibuster Now—Before Democrats Do: [https://www. wsj.com/opinion/sen-ron-johnso n-move-to-end-the-filibuster-nowbefore-democrats-do-4171ee4c](htt...

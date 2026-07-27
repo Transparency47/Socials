@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=5tfaGxzq7X0: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=5tfaGxzq7X0! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=5tfaGxzq7X0&ei=PMxnaseMCp_10_wP_d7NgQw&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1785212588&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=299966A6C36C3C8391879C583F99B9ABECA85CC7.7F2D17401928E087B84188769EE6931FDF52280B&key=yt8&kind=asr&lang=en&variant=gemini&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=5tfaGxzq7X0: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=5tfaGxzq7X0! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=5tfaGxzq7X0&ei=oNxnatXNA6PYy_sPksHIyQI&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1785216784&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=546B08D109A065CF5D566212F14C48455A8D7350.5448A2CAB97D7163DFCF3756D336D58954F6A327&key=yt8&kind=asr&lang=en&variant=gemini&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -10728,6 +10728,17 @@
       "published": "2026-07-27T18:54:13+00:00",
       "title": "Nothing like American cars \ud83c\uddfa\ud83c\uddf8",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7667282954019720462"
+    },
+    "tiktok:whitehouse:7667303790869073166": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-07-27T22:32:59.840428+00:00",
+      "path": "TikTok/WhiteHouse/2026/07/27/7667303790869073166",
+      "platform": "tiktok",
+      "post_id": "7667303790869073166",
+      "published": "2026-07-27T20:15:06+00:00",
+      "title": "Now look at me \ud83e\udd85",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7667303790869073166"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -128043,6 +128054,17 @@
       "published": "2026-07-27T20:24:29.353000+00:00",
       "title": "Sen. Ron Johnson: Move to End the Filibuster Now\u2014Before Democrats Do: [https://www. wsj.co...",
       "url": "https://truthsocial.com/@realDonaldTrump/116993810062084166"
+    },
+    "truthsocial:realdonaldtrump:116994156371757363": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-27T22:32:49.380920+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/27/116994156371757363",
+      "platform": "truthsocial",
+      "post_id": "116994156371757363",
+      "published": "2026-07-27T21:52:33.618000+00:00",
+      "title": "BREAKING NEWS: The Failing New York Times, after 10 years of harassment, slander, and libe...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116994156371757363"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
