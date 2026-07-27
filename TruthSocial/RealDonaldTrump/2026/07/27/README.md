@@ -1,7 +1,37 @@
 # TruthSocial / RealDonaldTrump / 2026-07-27
 
-- Posts: 11
+- Posts: 21
 
+- [20:24 UTC - Sen. Ron Johnson: Move to End the Filibuster Now—Before Democrats Do: [https://www. wsj.co...](116993810062084166/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116993810062084166
+  - Sen. Ron Johnson: Move to End the Filibuster Now—Before Democrats Do: [https://www. wsj.com/opinion/sen-ron-johnso n-move-to-end-the-filibuster-nowbefore-democrats-do-4171ee4c](htt...
+- [20:24 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116993808256006694](116993809640438974/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116993809640438974
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116993808256006694
+- [20:24 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116993807372928829](116993808256006694/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116993808256006694
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116993807372928829
+- [20:23 UTC - Truth Social post 116993807372928829](116993807372928829/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116993807372928829
+  - _No text content captured._
+- [20:23 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116993805746480019](116993806932337687/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116993806932337687
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116993805746480019
+- [20:23 UTC - Truth Social post 116993805746480019](116993805746480019/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116993805746480019
+  - _No text content captured._
+- [20:23 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116993802814114985](116993805414058559/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116993805414058559
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116993802814114985
+- [20:22 UTC - Truth Social post 116993802814114985](116993802814114985/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116993802814114985
+  - _No text content captured._
+- [20:22 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116993801329839445](116993802650087776/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116993802650087776
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116993801329839445
+- [20:22 UTC - Truth Social post 116993801329839445](116993801329839445/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116993801329839445
+  - _No text content captured._
 - [17:10 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116993046455147795](116993048026996953/)
   - Source: https://truthsocial.com/@realDonaldTrump/116993048026996953
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116993046455147795
