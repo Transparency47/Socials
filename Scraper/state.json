@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/xqY9bHDRbuA: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=xqY9bHDRbuA! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/xqY9bHDRbuA: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=xqY9bHDRbuA! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -10706,6 +10706,17 @@
       "published": "2026-07-26T18:24:34+00:00",
       "title": "decline is a choice. POTUS has made dc BEAUTIFUL AGAIN",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7666904218967477518"
+    },
+    "tiktok:whitehouse:7667014758113086734": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-07-27T05:05:29.330036+00:00",
+      "path": "TikTok/WhiteHouse/2026/07/27/7667014758113086734",
+      "platform": "tiktok",
+      "post_id": "7667014758113086734",
+      "published": "2026-07-27T01:33:20+00:00",
+      "title": "You in?",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7667014758113086734"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -127790,6 +127801,17 @@
       "published": "2026-07-26T21:16:28.878000+00:00",
       "title": "Truth Social post 116988352192597760",
       "url": "https://truthsocial.com/@realDonaldTrump/116988352192597760"
+    },
+    "truthsocial:realdonaldtrump:116989452475906419": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-27T05:05:17.528591+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/27/116989452475906419",
+      "platform": "truthsocial",
+      "post_id": "116989452475906419",
+      "published": "2026-07-27T01:56:17.867000+00:00",
+      "title": "Congressman Brandon Gill (Texas!) was Fantastic tonight on the Trey Gowdy Show, especially...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116989452475906419"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
