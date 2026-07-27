@@ -1,7 +1,52 @@
 # TruthSocial / RealDonaldTrump / 2026-07-27
 
-- Posts: 22
+- Posts: 37
 
+- [23:30 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) BREAKING NEWS: The Failin...](116994540958595788/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116994540958595788
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) BREAKING NEWS: The Failing New York Times, after 10 years of harassment, slander, and libel, just failed again in t...
+- [23:30 UTC - Taking down the scaffolding around the regilded Arts of War sculptures!](116994539588037223/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116994539588037223
+  - Taking down the scaffolding around the regilded Arts of War sculptures!
+- [23:29 UTC - President Trump’s primetime address reaffirms election fraud and deep state as America’s g...](116994535807393646/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116994535807393646
+  - President Trump’s primetime address reaffirms election fraud and deep state as America’s greatest threat – with media willfully complicit: [https://www. rsbnetwork.com/news/preside...
+- [23:23 UTC - Truth Social post 116994514512472669](116994514512472669/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116994514512472669
+  - _No text content captured._
+- [23:21 UTC - Truth Social post 116994505815559855](116994505815559855/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116994505815559855
+  - _No text content captured._
+- [23:21 UTC - Truth Social post 116994505184265386](116994505184265386/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116994505184265386
+  - _No text content captured._
+- [23:21 UTC - Truth Social post 116994504602767514](116994504602767514/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116994504602767514
+  - _No text content captured._
+- [23:20 UTC - [https://www. cnbc.com/video/2026/07/06/watc h-cnbcs-full-interview-with-invest-america-fo...](116994504056726420/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116994504056726420
+  - [https://www. cnbc.com/video/2026/07/06/watc h-cnbcs-full-interview-with-invest-america-founder-brad-gerstner.html](https://www.cnbc.com/video/2026/07/06/watch-cnbcs-full-interview...
+- [23:20 UTC - Trump caps sensational 250th celebration with tribute to the glory of American freedom: [h...](116994503034214426/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116994503034214426
+  - Trump caps sensational 250th celebration with tribute to the glory of American freedom: [https:// justthenews.com/politics-polic y/all-things-trump/trump-caps-sensational-250th-cel...
+- [23:20 UTC - RT [@ SebGorka](https://truthsocial.com/@SebGorka) It’s very simple. Trust President [@ re...](116994501078523747/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116994501078523747
+  - RT [@ SebGorka](https://truthsocial.com/@SebGorka) It’s very simple. Trust President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) . [https://www. foxnews.com/video...
+- [23:20 UTC - NVIDIA: Building in America, for America: [https://www. nvidia.com/en-us/made-in-usa/](htt...](116994500400281844/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116994500400281844
+  - NVIDIA: Building in America, for America: [https://www. nvidia.com/en-us/made-in-usa/](https://www.nvidia.com/en-us/made-in-usa/)
+- [23:19 UTC - NVIDIA and Partners Build in America, for America: [https:// blogs.nvidia.com/blog/nvidia-...](116994497445449017/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116994497445449017
+  - NVIDIA and Partners Build in America, for America: [https:// blogs.nvidia.com/blog/nvidia-a nd-partners-build-in-america-for-america/](https://blogs.nvidia.com/blog/nvidia-and-part...
+- [23:19 UTC - Trump-endorsed congressional candidate pledges entire $174K salary to wounded Iraq War vet...](116994496630944909/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116994496630944909
+  - Trump-endorsed congressional candidate pledges entire $174K salary to wounded Iraq War veteran's family: [https://www. foxnews.com/politics/trump-end orsed-congressional-candidate-...
+- [23:18 UTC - Rep. Hamadeh: America First Has Never Meant America Alone: [https://www. newsmax.com/polit...](116994495434465622/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116994495434465622
+  - Rep. Hamadeh: America First Has Never Meant America Alone: [https://www. newsmax.com/politics/armenia-a zerbaijan-netanyahu/2026/06/29/id/1261240/](https://www.newsmax.com/politics...
+- [22:46 UTC - Truth Social post 116994369074143851](116994369074143851/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116994369074143851
+  - _No text content captured._
 - [21:52 UTC - BREAKING NEWS: The Failing New York Times, after 10 years of harassment, slander, and libe...](116994156371757363/)
   - Source: https://truthsocial.com/@realDonaldTrump/116994156371757363
   - BREAKING NEWS: The Failing New York Times, after 10 years of harassment, slander, and libel, just failed again in their desperate attempt to have our powerful Defamation Lawsuit ag...

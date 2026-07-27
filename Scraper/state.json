@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=5tfaGxzq7X0: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=5tfaGxzq7X0! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=5tfaGxzq7X0&ei=oNxnatXNA6PYy_sPksHIyQI&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1785216784&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=546B08D109A065CF5D566212F14C48455A8D7350.5448A2CAB97D7163DFCF3756D336D58954F6A327&key=yt8&kind=asr&lang=en&variant=gemini&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=8ohyJYSjA94: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=8ohyJYSjA94! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -128065,6 +128065,171 @@
       "published": "2026-07-27T21:52:33.618000+00:00",
       "title": "BREAKING NEWS: The Failing New York Times, after 10 years of harassment, slander, and libe...",
       "url": "https://truthsocial.com/@realDonaldTrump/116994156371757363"
+    },
+    "truthsocial:realdonaldtrump:116994369074143851": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-27T23:43:32.761141+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/27/116994369074143851",
+      "platform": "truthsocial",
+      "post_id": "116994369074143851",
+      "published": "2026-07-27T22:46:39.201000+00:00",
+      "title": "Truth Social post 116994369074143851",
+      "url": "https://truthsocial.com/@realDonaldTrump/116994369074143851"
+    },
+    "truthsocial:realdonaldtrump:116994495434465622": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-27T23:43:32.760862+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/27/116994495434465622",
+      "platform": "truthsocial",
+      "post_id": "116994495434465622",
+      "published": "2026-07-27T23:18:47.308000+00:00",
+      "title": "Rep. Hamadeh: America First Has Never Meant America Alone: [https://www. newsmax.com/polit...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116994495434465622"
+    },
+    "truthsocial:realdonaldtrump:116994496630944909": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-27T23:43:32.760248+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/27/116994496630944909",
+      "platform": "truthsocial",
+      "post_id": "116994496630944909",
+      "published": "2026-07-27T23:19:05.565000+00:00",
+      "title": "Trump-endorsed congressional candidate pledges entire $174K salary to wounded Iraq War vet...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116994496630944909"
+    },
+    "truthsocial:realdonaldtrump:116994497445449017": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-27T23:43:32.759745+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/27/116994497445449017",
+      "platform": "truthsocial",
+      "post_id": "116994497445449017",
+      "published": "2026-07-27T23:19:17.994000+00:00",
+      "title": "NVIDIA and Partners Build in America, for America: [https:// blogs.nvidia.com/blog/nvidia-...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116994497445449017"
+    },
+    "truthsocial:realdonaldtrump:116994500400281844": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-27T23:43:32.759220+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/27/116994500400281844",
+      "platform": "truthsocial",
+      "post_id": "116994500400281844",
+      "published": "2026-07-27T23:20:03.075000+00:00",
+      "title": "NVIDIA: Building in America, for America: [https://www. nvidia.com/en-us/made-in-usa/](htt...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116994500400281844"
+    },
+    "truthsocial:realdonaldtrump:116994501078523747": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-27T23:43:32.758741+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/27/116994501078523747",
+      "platform": "truthsocial",
+      "post_id": "116994501078523747",
+      "published": "2026-07-27T23:20:13.430000+00:00",
+      "title": "RT [@ SebGorka](https://truthsocial.com/@SebGorka) It\u2019s very simple. Trust President [@ re...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116994501078523747"
+    },
+    "truthsocial:realdonaldtrump:116994503034214426": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-27T23:43:32.757785+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/27/116994503034214426",
+      "platform": "truthsocial",
+      "post_id": "116994503034214426",
+      "published": "2026-07-27T23:20:43.268000+00:00",
+      "title": "Trump caps sensational 250th celebration with tribute to the glory of American freedom: [h...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116994503034214426"
+    },
+    "truthsocial:realdonaldtrump:116994504056726420": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-27T23:43:32.757255+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/27/116994504056726420",
+      "platform": "truthsocial",
+      "post_id": "116994504056726420",
+      "published": "2026-07-27T23:20:58.870000+00:00",
+      "title": "[https://www. cnbc.com/video/2026/07/06/watc h-cnbcs-full-interview-with-invest-america-fo...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116994504056726420"
+    },
+    "truthsocial:realdonaldtrump:116994504602767514": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-27T23:43:32.756765+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/27/116994504602767514",
+      "platform": "truthsocial",
+      "post_id": "116994504602767514",
+      "published": "2026-07-27T23:21:07.207000+00:00",
+      "title": "Truth Social post 116994504602767514",
+      "url": "https://truthsocial.com/@realDonaldTrump/116994504602767514"
+    },
+    "truthsocial:realdonaldtrump:116994505184265386": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-27T23:43:32.756485+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/27/116994505184265386",
+      "platform": "truthsocial",
+      "post_id": "116994505184265386",
+      "published": "2026-07-27T23:21:16.074000+00:00",
+      "title": "Truth Social post 116994505184265386",
+      "url": "https://truthsocial.com/@realDonaldTrump/116994505184265386"
+    },
+    "truthsocial:realdonaldtrump:116994505815559855": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-27T23:43:32.756179+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/27/116994505815559855",
+      "platform": "truthsocial",
+      "post_id": "116994505815559855",
+      "published": "2026-07-27T23:21:25.712000+00:00",
+      "title": "Truth Social post 116994505815559855",
+      "url": "https://truthsocial.com/@realDonaldTrump/116994505815559855"
+    },
+    "truthsocial:realdonaldtrump:116994514512472669": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-27T23:43:32.755881+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/27/116994514512472669",
+      "platform": "truthsocial",
+      "post_id": "116994514512472669",
+      "published": "2026-07-27T23:23:38.414000+00:00",
+      "title": "Truth Social post 116994514512472669",
+      "url": "https://truthsocial.com/@realDonaldTrump/116994514512472669"
+    },
+    "truthsocial:realdonaldtrump:116994535807393646": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-27T23:43:32.755600+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/27/116994535807393646",
+      "platform": "truthsocial",
+      "post_id": "116994535807393646",
+      "published": "2026-07-27T23:29:03.350000+00:00",
+      "title": "President Trump\u2019s primetime address reaffirms election fraud and deep state as America\u2019s g...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116994535807393646"
+    },
+    "truthsocial:realdonaldtrump:116994539588037223": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-27T23:43:32.754994+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/27/116994539588037223",
+      "platform": "truthsocial",
+      "post_id": "116994539588037223",
+      "published": "2026-07-27T23:30:01.043000+00:00",
+      "title": "Taking down the scaffolding around the regilded Arts of War sculptures!",
+      "url": "https://truthsocial.com/@realDonaldTrump/116994539588037223"
+    },
+    "truthsocial:realdonaldtrump:116994540958595788": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-27T23:43:32.754650+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/27/116994540958595788",
+      "platform": "truthsocial",
+      "post_id": "116994540958595788",
+      "published": "2026-07-27T23:30:21.952000+00:00",
+      "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) BREAKING NEWS: The Failin...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116994540958595788"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
