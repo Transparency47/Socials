@@ -1,7 +1,28 @@
 # TruthSocial / RealDonaldTrump / 2026-07-27
 
-- Posts: 4
+- Posts: 11
 
+- [17:10 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116993046455147795](116993048026996953/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116993048026996953
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116993046455147795
+- [17:10 UTC - Truth Social post 116993046455147795](116993046455147795/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116993046455147795
+  - _No text content captured._
+- [16:06 UTC - Truth Social post 116992795342274139](116992795342274139/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116992795342274139
+  - _No text content captured._
+- [16:06 UTC - [https:// trumpaccounts.gov](https://trumpaccounts.gov)](116992794702989897/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116992794702989897
+  - [https:// trumpaccounts.gov](https://trumpaccounts.gov)
+- [16:05 UTC - [https:// trumpaccounts.gov](https://trumpaccounts.gov)](116992790900768538/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116992790900768538
+  - [https:// trumpaccounts.gov](https://trumpaccounts.gov)
+- [16:04 UTC - Exclusive — President Donald Trump on Hard-Left Socialist Turn of ‘Dumocrats’: ‘Concept of...](116992786273183992/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116992786273183992
+  - Exclusive — President Donald Trump on Hard-Left Socialist Turn of ‘Dumocrats’: ‘Concept of Give Away Everything Ends up In Squalor, Crime, and Death’: [https://www. breitbart.com/p...
+- [16:04 UTC - [https:// nypost.com/2026/06/26/opinion/ republicans-should-cheer-the-exit-of-sad-tucker-c...](116992785834552197/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116992785834552197
+  - [https:// nypost.com/2026/06/26/opinion/ republicans-should-cheer-the-exit-of-sad-tucker-carlson/](https://nypost.com/2026/06/26/opinion/republicans-should-cheer-the-exit-of-sad-tu...
 - [13:16 UTC - Whichever Party Terminates the Filibuster FIRST will be the Party that survives and thrive...](116992125438554532/)
   - Source: https://truthsocial.com/@realDonaldTrump/116992125438554532
   - Whichever Party Terminates the Filibuster FIRST will be the Party that survives and thrives. If the Dumocrats win this race, however, America will rapidly become nothing more than...
