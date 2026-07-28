@@ -1,7 +1,61 @@
 # TruthSocial / RealDonaldTrump / 2026-07-28
 
-- Posts: 16
+- Posts: 34
 
+- [13:53 UTC - ‘Up Like a Rocket!’ CNN Data Guru Says Lindsey Graham’s Sister Is Now ‘Clear Favorite’ to ...](116997936589719290/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997936589719290
+  - ‘Up Like a Rocket!’ CNN Data Guru Says Lindsey Graham’s Sister Is Now ‘Clear Favorite’ to Win Primary: [https://www. mediaite.com/media/news/up-lik e-a-rocket-cnn-data-guru-says-li...
+- [13:53 UTC - Truth Social post 116997936210675201](116997936210675201/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997936210675201
+  - _No text content captured._
+- [13:53 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997934475409421](116997935355911269/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997935355911269
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997934475409421
+- [13:53 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997933680774362](116997934475409421/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997934475409421
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997933680774362
+- [13:53 UTC - [https://www. nist.gov/news-events/news/2026 /07/uk-aisi-caisi-preliminary-assessment-kimi...](116997933680774362/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997933680774362
+  - [https://www. nist.gov/news-events/news/2026 /07/uk-aisi-caisi-preliminary-assessment-kimi-k3s-cyber-capabilities](https://www.nist.gov/news-events/news/2026/07/uk-aisi-caisi-preli...
+- [13:52 UTC - She only went public because she was caught! Software vendor disputes NJ governor's ‘glitc...](116997932764326375/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997932764326375
+  - She only went public because she was caught! Software vendor disputes NJ governor's ‘glitch’ claim, says state approves foreigners on voter roll: [https:// justthenews.com/nation/s...
+- [13:52 UTC - MIKE DAVIS: Why criminal referral of Jack Smith was 100% justified: [https://www. foxnews....](116997931035441050/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997931035441050
+  - MIKE DAVIS: Why criminal referral of Jack Smith was 100% justified: [https://www. foxnews.com/opinion/mike-davis -why-criminal-referral-jack-smith-100-percent-justified](https://ww...
+- [13:52 UTC - It was a Rigged Election that we must learn from. Never forget! [https://www. dailymail.co...](116997929936049893/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997929936049893
+  - It was a Rigged Election that we must learn from. Never forget! [https://www. dailymail.com/news/article-159 93893/Trump-2020-election-win-biden-poll.html](https://www.dailymail.co...
+- [13:51 UTC - Lil Wayne Praises Trump for Building White House Ballroom: ‘I’m So Glad!’ [https://www. me...](116997928439760348/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997928439760348
+  - Lil Wayne Praises Trump for Building White House Ballroom: ‘I’m So Glad!’ [https://www. mediaite.com/media/lil-wayne-p raises-trump-for-building-white-house-ballroom-im-so-glad/](h...
+- [13:51 UTC - Confirm Todd Blanche without delay: [https://www. washingtontimes.com/news/2026/ jul/23/co...](116997927517547120/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997927517547120
+  - Confirm Todd Blanche without delay: [https://www. washingtontimes.com/news/2026/ jul/23/confirm-todd-blanche-without-delay/](https://www.washingtontimes.com/news/2026/jul/23/confir...
+- [13:51 UTC - Exclusive — Andrew Giuliani: World Cup Was ‘Just the Start’ of America’s ‘Golden Age of Sp...](116997925928882045/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997925928882045
+  - Exclusive — Andrew Giuliani: World Cup Was ‘Just the Start’ of America’s ‘Golden Age of Sports’: [https://www. breitbart.com/sports/2026/07/2 1/exclusive-andrew-giuliani-world-cup-...
+- [13:49 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997915992497491](116997917894077171/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997917894077171
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997915992497491
+- [13:48 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997914591056746](116997915992497491/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997915992497491
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997914591056746
+- [13:48 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997913009839733](116997914591056746/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997914591056746
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997913009839733
+- [13:47 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997911252543548](116997913009839733/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997913009839733
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997911252543548
+- [13:47 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997909765930913](116997911252543548/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997911252543548
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997909765930913
+- [13:47 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997908473797212](116997909765930913/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997909765930913
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997908473797212
+- [13:46 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997904456604109](116997908473797212/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997908473797212
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997904456604109
 - [13:45 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997902816278620](116997904456604109/)
   - Source: https://truthsocial.com/@realDonaldTrump/116997904456604109
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997902816278620
