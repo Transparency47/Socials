@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=HqlzksD6UYo: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=HqlzksD6UYo! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=rENhwohTQWs: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=rENhwohTQWs! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption track was empty"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -128659,6 +128659,116 @@
       "published": "2026-07-28T13:53:55.170000+00:00",
       "title": "\u2018Up Like a Rocket!\u2019 CNN Data Guru Says Lindsey Graham\u2019s Sister Is Now \u2018Clear Favorite\u2019 to ...",
       "url": "https://truthsocial.com/@realDonaldTrump/116997936589719290"
+    },
+    "truthsocial:realdonaldtrump:116998687659903888": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-28T17:38:39.125788+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/28/116998687659903888",
+      "platform": "truthsocial",
+      "post_id": "116998687659903888",
+      "published": "2026-07-28T17:04:55.593000+00:00",
+      "title": "Truth Social post 116998687659903888",
+      "url": "https://truthsocial.com/@realDonaldTrump/116998687659903888"
+    },
+    "truthsocial:realdonaldtrump:116998688330805629": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-28T17:38:39.125561+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/28/116998688330805629",
+      "platform": "truthsocial",
+      "post_id": "116998688330805629",
+      "published": "2026-07-28T17:05:05.827000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116998687659903888 We\u2019re going ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116998688330805629"
+    },
+    "truthsocial:realdonaldtrump:116998766458372558": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-28T17:38:39.125218+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/28/116998766458372558",
+      "platform": "truthsocial",
+      "post_id": "116998766458372558",
+      "published": "2026-07-28T17:24:57.958000+00:00",
+      "title": "Tariffs pull, USMCA pushes: Toyota to Texas: [https:// thehill.com/opinion/white-hous e/59...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116998766458372558"
+    },
+    "truthsocial:realdonaldtrump:116998771507248785": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-28T17:38:39.124825+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/28/116998771507248785",
+      "platform": "truthsocial",
+      "post_id": "116998771507248785",
+      "published": "2026-07-28T17:26:14.997000+00:00",
+      "title": "Trump gives emotional tribute to fallen Army Lt Tyler Feehan after flying grieving family ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116998771507248785"
+    },
+    "truthsocial:realdonaldtrump:116998772846859723": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-28T17:38:39.124427+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/28/116998772846859723",
+      "platform": "truthsocial",
+      "post_id": "116998772846859723",
+      "published": "2026-07-28T17:26:35.442000+00:00",
+      "title": "Trump holds hands with toddler and mocks \u2018Pee-wee Herman look-alike\u2019 Jon Ossoff at Georgia...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116998772846859723"
+    },
+    "truthsocial:realdonaldtrump:116998774304633594": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-28T17:38:39.124014+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/28/116998774304633594",
+      "platform": "truthsocial",
+      "post_id": "116998774304633594",
+      "published": "2026-07-28T17:26:57.686000+00:00",
+      "title": "Trump blasts Jon Ossoff, 'communist' Democrats in Georgia speech: [https:// justthenews.co...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116998774304633594"
+    },
+    "truthsocial:realdonaldtrump:116998775699194439": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-28T17:38:39.123611+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/28/116998775699194439",
+      "platform": "truthsocial",
+      "post_id": "116998775699194439",
+      "published": "2026-07-28T17:27:18.965000+00:00",
+      "title": "Trump: \u2018With communism, everything turns to s***\u2019: [https://www. washingtonexaminer.com/ne...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116998775699194439"
+    },
+    "truthsocial:realdonaldtrump:116998780287502025": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-28T17:38:39.123195+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/28/116998780287502025",
+      "platform": "truthsocial",
+      "post_id": "116998780287502025",
+      "published": "2026-07-28T17:28:28.972000+00:00",
+      "title": "Trump touts explosive early growth of new child savings accounts: [https://www. washington...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116998780287502025"
+    },
+    "truthsocial:realdonaldtrump:116998782313244681": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-28T17:38:39.122755+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/28/116998782313244681",
+      "platform": "truthsocial",
+      "post_id": "116998782313244681",
+      "published": "2026-07-28T17:28:59.884000+00:00",
+      "title": "Trump Rallies Around 'Trump Accounts' During Ga. Speech: [https://www. newsmax.com/newsfro...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116998782313244681"
+    },
+    "truthsocial:realdonaldtrump:116998787858683666": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-28T17:38:39.122246+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/28/116998787858683666",
+      "platform": "truthsocial",
+      "post_id": "116998787858683666",
+      "published": "2026-07-28T17:30:24.504000+00:00",
+      "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) We\u2019re going to bring this...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116998787858683666"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",

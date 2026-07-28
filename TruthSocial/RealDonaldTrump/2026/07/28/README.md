@@ -1,7 +1,37 @@
 # TruthSocial / RealDonaldTrump / 2026-07-28
 
-- Posts: 34
+- Posts: 44
 
+- [17:30 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) We’re going to bring this...](116998787858683666/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116998787858683666
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) We’re going to bring this heroic young man, and his family, into the White House with, perhaps, the boy he saved, t...
+- [17:28 UTC - Trump Rallies Around 'Trump Accounts' During Ga. Speech: [https://www. newsmax.com/newsfro...](116998782313244681/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116998782313244681
+  - Trump Rallies Around 'Trump Accounts' During Ga. Speech: [https://www. newsmax.com/newsfront/donald-t rump-georgia-rally-investment-accounts/2026/07/22/id/1263753/](https://www.new...
+- [17:28 UTC - Trump touts explosive early growth of new child savings accounts: [https://www. washington...](116998780287502025/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116998780287502025
+  - Trump touts explosive early growth of new child savings accounts: [https://www. washingtontimes.com/news/2026/ jul/22/trump-touts-explosive-early-growth-new-child-savings-accounts/...
+- [17:27 UTC - Trump: ‘With communism, everything turns to s***’: [https://www. washingtonexaminer.com/ne...](116998775699194439/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116998775699194439
+  - Trump: ‘With communism, everything turns to s***’: [https://www. washingtonexaminer.com/news/wh ite-house/4659752/trump-communism-dont-think-anybody-wants-that-georgia-remarks/](ht...
+- [17:26 UTC - Trump blasts Jon Ossoff, 'communist' Democrats in Georgia speech: [https:// justthenews.co...](116998774304633594/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116998774304633594
+  - Trump blasts Jon Ossoff, 'communist' Democrats in Georgia speech: [https:// justthenews.com/politics-polic y/all-things-trump/trump-blasts-jon-ossoff-communist-democrats-georgia-sp...
+- [17:26 UTC - Trump holds hands with toddler and mocks ‘Pee-wee Herman look-alike’ Jon Ossoff at Georgia...](116998772846859723/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116998772846859723
+  - Trump holds hands with toddler and mocks ‘Pee-wee Herman look-alike’ Jon Ossoff at Georgia Trump Accounts rally: [https:// nypost.com/2026/07/22/us-news/ trump-holds-hands-with-tod...
+- [17:26 UTC - Trump gives emotional tribute to fallen Army Lt Tyler Feehan after flying grieving family ...](116998771507248785/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116998771507248785
+  - Trump gives emotional tribute to fallen Army Lt Tyler Feehan after flying grieving family on Air Force One: [https://www. foxnews.com/politics/trump-pay s-emotional-tribute-fallen-...
+- [17:24 UTC - Tariffs pull, USMCA pushes: Toyota to Texas: [https:// thehill.com/opinion/white-hous e/59...](116998766458372558/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116998766458372558
+  - Tariffs pull, USMCA pushes: Toyota to Texas: [https:// thehill.com/opinion/white-hous e/5965989-toyota-texas-tacoma-tariffs-impact/](https://thehill.com/opinion/white-house/5965989...
+- [17:05 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116998687659903888 We’re going ...](116998688330805629/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116998688330805629
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116998687659903888 We’re going to bring this heroic young man, and his family, into the White House with, perhaps, the bo...
+- [17:04 UTC - Truth Social post 116998687659903888](116998687659903888/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116998687659903888
+  - _No text content captured._
 - [13:53 UTC - ‘Up Like a Rocket!’ CNN Data Guru Says Lindsey Graham’s Sister Is Now ‘Clear Favorite’ to ...](116997936589719290/)
   - Source: https://truthsocial.com/@realDonaldTrump/116997936589719290
   - ‘Up Like a Rocket!’ CNN Data Guru Says Lindsey Graham’s Sister Is Now ‘Clear Favorite’ to Win Primary: [https://www. mediaite.com/media/news/up-lik e-a-rocket-cnn-data-guru-says-li...
