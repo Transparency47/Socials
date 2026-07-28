@@ -1,0 +1,476 @@
+<!-- source: https://www.youtube.com/watch?v=rENhwohTQWs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: rENhwohTQWs -->
+<!-- date_published: 2026-07-28T18:42:36+00:00 -->
+<!-- date_accessed: 2026-07-28T21:31:45.311532+00:00 -->
+
+# Transcript: President Trump Attends the Funeral for Senator Lindsey Graham
+
+- [00:05.239] [music]
+- [00:13.519] Singless
+- [00:20.160] love is
+- [00:23.359] my soul.
+- [00:25.439] Oh my soul.
+- [00:29.039] What
+- [00:31.359] is this
+- [00:33.520] for my soul?
+- [00:47.815] [singing] for
+- [00:57.840] sing.
+- [00:59.605] [music]
+- [01:12.560] With faith in Jesus Christ, we receive
+- [01:15.840] the body of our brother Lindseay Olen
+- [01:19.280] Graham for burial.
+- [01:22.000] Let us pray with confidence to God, the
+- [01:24.479] giver of life, that he will raise him to
+- [01:27.600] perfection in the company of the saints.
+- [01:31.439] Deliver your servant Lindsay, oh
+- [01:33.119] sovereign Lord Christ, from all evil,
+- [01:36.000] and set him free from every bond, that
+- [01:39.040] he may rest with all your saints in the
+- [01:41.520] eternal habitations,
+- [01:43.680] where with the Father and the Holy
+- [01:45.600] Spirit, you live and reign, one God,
+- [01:49.280] forever and ever. Amen.
+- [01:55.600] Let us also pray for all who mourn
+- [01:59.439] that they may cast their care on God
+- [02:03.280] and know the consolation of his love.
+- [02:07.680] Almighty God, look with pity upon the
+- [02:11.280] sorrows of your servants for whom we
+- [02:14.400] pray.
+- [02:16.400] Remember them, Lord, in mercy. Nourish
+- [02:19.840] them in patience. comfort them with a
+- [02:23.360] sense of your goodness. Lift up your
+- [02:26.640] countenance upon them and give them
+- [02:29.440] peace through Jesus Christ
+- [02:33.280] our Lord.
+- [02:35.599] >> Amen.
+- [04:05.200] Oh, bird.
+- [04:53.600] I am resurrection and I am life, says
+- [04:56.160] the Lord. Whoever has faith in me shall
+- [04:59.440] have life even though he die.
+- [05:03.199] And everyone who has life and has
+- [05:05.360] committed himself to me in faith shall
+- [05:08.560] not die forever.
+- [05:11.440] As for me, I know that my redeemer lives
+- [05:14.960] and that at the last he will stand upon
+- [05:17.120] the earth. After my awakening he will
+- [05:20.560] raise me up and in my body I shall see
+- [05:24.080] God.
+- [05:25.759] I myself shall see and my eyes behold
+- [05:28.720] him who is my friend and not a stranger.
+- [05:34.080] For none of us has life in himself and
+- [05:36.639] none becomes his own master when he
+- [05:38.880] dies. For if we have life we are alive
+- [05:42.400] in the Lord. And if we die we die in the
+- [05:46.479] Lord. So then whether we live or die we
+- [05:51.039] are the Lord's possession.
+- [05:54.320] Happy from now on are those who die in
+- [05:57.120] the Lord. So it is, says the Spirit, for
+- [06:00.720] they rest from their labors.
+- [07:21.520] Good morning and welcome to Washington
+- [07:23.599] National Cathedral. My name is Randy
+- [07:26.240] Hollerith. I'm the dean of the cathedral
+- [07:28.160] and on behalf of all of us who serve God
+- [07:30.800] in this place, please know that we are a
+- [07:34.080] house of prayer for all people and you
+- [07:36.639] are always welcome here.
+- [07:39.199] Today we bid farewell to a man much
+- [07:41.440] beloved by many and I know it means a
+- [07:44.639] great deal to Senator Darlene Graham and
+- [07:47.199] to the entire Graham family to have all
+- [07:50.080] of you here today.
+- [07:52.960] Lindsey Graham was a man of faith, a
+- [07:55.039] longtime public servant who devoted his
+- [07:57.440] life to this country and to his
+- [07:59.919] cherished South Carolina.
+- [08:02.800] His untimely death leaves a void in both
+- [08:05.840] places. And we gather this afternoon to
+- [08:09.039] honor his life and commend his soul to
+- [08:11.440] God in firm and abiding faith that he
+- [08:14.479] now rests in the life hereafter.
+- [08:18.000] Let us pray today that God's love and
+- [08:20.160] peace may abide with him this day and
+- [08:23.280] forever more.
+- [08:25.759] Now, would you join with me as we give
+- [08:28.000] praise to God and sing How Great Thou
+- [08:31.039] Art.
+- [08:42.000] Heat. Heat.
+- [08:49.246] [music]
+- [08:53.831] [music]
+- [08:59.071] [music]
+- [09:03.440] Heat.
+- [09:06.931] [music]
+- [09:15.446] [music]
+- [09:17.920] Heat.
+- [09:24.616] [music]
+- [09:25.519] Heat.
+- [09:29.201] [music]
+- [09:36.800] Heat.
+- [09:39.681] [music]
+- [09:44.921] [music]
+- [09:46.320] Heat
+- [09:53.436] [music] up
+- [09:58.021] [music]
+- [10:07.279] here.
+- [10:10.467] [music]
+- [10:11.760] Heat.
+- [10:16.362] [music]
+- [10:26.240] Heat.
+- [10:28.152] [music]
+- [10:32.737] [music]
+- [10:33.920] Yeah.
+- [10:37.322] [bell]
+- [10:39.760] Heat. [music]
+- [10:46.492] [music]
+- [10:50.240] Heat. Heat.
+- [10:52.387] [music]
+- [10:59.592] [music]
+- [11:06.797] [music]
+- [11:12.037] >> [music]
+- [11:15.440] >> Heat.
+- [11:20.552] [music]
+- [11:26.447] [music]
+- [11:27.440] Heat.
+- [11:31.687] [music]
+- [11:33.839] Yeah. [bell]
+- [11:38.238] [music]
+- [11:41.920] Heat. [music]
+- [11:50.028] [music]
+- [11:54.640] Heat
+- [11:59.853] [music]
+- [12:03.760] up
+- [12:12.298] [music] here. [bell]
+- [12:17.538] [music]
+- [12:22.399] Yeah.
+- [12:24.800] Heat.
+- [12:26.708] [music]
+- [12:32.603] [music]
+- [12:34.959] Yeah.
+- [12:38.498] [music]
+- [12:40.639] Heat.
+- [12:48.978] [bell]
+- [12:53.563] [music]
+- [13:00.079] Yeah. [music]
+- [13:05.353] [music] Heat.
+- [13:09.939] [music]
+- [13:15.179] [music]
+- [13:21.519] Heat.
+- [13:28.934] [music]
+- [13:33.760] Heat.
+- [13:39.414] [music]
+- [13:42.480] Heat. Heat. Heat.
+- [13:45.964] [music]
+- [13:52.480] Heat. Heat. [music]
+- [13:57.754] [music]
+- [14:02.720] Heat. [music]
+- [14:05.839] Heat.
+- [14:09.544] [music]
+- [14:14.129] [music]
+- [14:15.839] Heat.
+- [14:17.920] Heat. [music]
+- [14:26.574] [music]
+- [14:33.779] [music]
+- [14:42.950] >> [music]
+- [14:44.260] [bell]
+- [14:44.320] >> Heat. Heat.
+- [14:50.810] [music]
+- [15:09.920] Thank you very much,
+- [15:12.240] Vice President Vance, members of the
+- [15:15.199] cabinet,
+- [15:16.720] members of the House and Senate,
+- [15:18.959] distinguished guests, Darlene,
+- [15:22.639] and the entire Graeme
+- [15:24.720] family.
+- [15:26.480] We love you all.
+- [15:28.639] Today we gather in the deepest gratitude
+- [15:31.440] and profoundest sorrow to honor a
+- [15:35.760] beloved friend, a devoted brother, a
+- [15:39.519] respected statesman, a giant of the
+- [15:42.800] United States Senate, and a true
+- [15:45.839] American original who left us much too
+- [15:49.440] soon.
+- [15:51.440] And that can only be the one and only
+- [15:55.680] Lindsey Graham.
+- [15:57.839] By the strength of his steadfast
+- [16:00.160] convictions, the force of his magnetic
+- [16:03.680] personality and the goodness of his
+- [16:06.079] noble soul, Lindsey rose from a small
+- [16:08.720] town in rural South Carolina, place he
+- [16:12.639] loves so much to become a constant
+- [16:15.759] fixture of American politics at the
+- [16:18.000] highest level and a force to be reckoned
+- [16:20.720] with all over the world. For more than
+- [16:24.000] 30 years, nothing of consequence
+- [16:26.240] happened in this capital without Lindsey
+- [16:29.759] Graeme knowing about it. Nothing of
+- [16:32.639] significance happened anywhere in the
+- [16:34.560] world without Lindsey Graeme having a
+- [16:37.440] view on it. And no bill became law in
+- [16:40.639] the most exceptional republic in human
+- [16:42.720] history without Lindsey Graeme having a
+- [16:46.000] say in it.
+- [16:48.720] He was a man who gave America the full
+- [16:51.279] measure of his good and mighty heart
+- [16:54.000] until that heart itself just gave out.
+- [16:59.360] But even though Lindsay's life was cut
+- [17:02.320] short while he was still so full of vim
+- [17:05.679] and vigor, there can be no doubt that he
+- [17:08.880] lived absolutely to the fullest. He died
+- [17:13.280] doing the work he was born to do. He was
+- [17:16.160] truly a great politician,
+- [17:18.559] serving the country he loved to serve so
+- [17:22.720] deeply.
+- [17:24.240] He went out at the peak of his career
+- [17:26.240] and the top of his game as a legend that
+- [17:29.200] everyone of us, many of us here today,
+- [17:33.760] blessed to know him and a friend that
+- [17:36.080] none of us will ever forget.
+- [17:39.840] There was truly nobody like Lindsey
+- [17:42.880] Graham.
+- [17:44.480] It was his hometown of central South
+- [17:48.480] Carolina that Lindsay first learned the
+- [17:50.960] art of politics. His parents ran a bar
+- [17:54.880] and pool hall on Main Street with a room
+- [17:57.760] in the back where the family spent and
+- [18:01.039] slept and did everything that you had to
+- [18:03.200] do. As Lindsay said, his father taught
+- [18:06.480] him, the key to being a successful bar
+- [18:09.280] owner is that you have to be funny
+- [18:11.440] enough that people will keep coming back
+- [18:14.720] and that you have to be tough enough
+- [18:16.880] that you can stay in business and
+- [18:18.799] thrive. A very difficult combination.
+- [18:22.480] For his entire story career, that's
+- [18:25.280] exactly who Lindsey Graeme was. He was
+- [18:27.919] the first person to make you laugh and
+- [18:30.799] one of the last people that you've
+- [18:33.600] really ever wanted to fight.
+- [18:36.320] These were the traits that made him into
+- [18:38.880] one of the great figures in Senate
+- [18:40.880] history. Few like him. As a boy, Lindsay
+- [18:45.200] also learned his first lessons in
+- [18:47.120] diplomacy. When the wife of one regular
+- [18:50.000] patron called the bar asking for her
+- [18:52.799] husband,
+- [18:54.320] she demanded to know where is he. The
+- [18:57.120] man instructed Lindsay, "Tell her I'm
+- [18:59.840] not here." And young Lindsay nodded and
+- [19:03.120] said into the phone to the wife, "He
+- [19:06.160] said to tell you that he's not here."
+- [19:09.360] That was Lindsay.
+- [19:12.080] When Lindsay was just 20 years old, he
+- [19:14.240] lost his mom to cancer. 15 months later,
+- [19:17.280] he lost his dad. Their deaths left his
+- [19:20.320] 13-year-old sister, Darlene, an orphan.
+- [19:24.799] But in God's mercy, she had her
+- [19:26.799] wonderful brother to take care of her.
+- [19:29.600] On top of it all, Lindsay became her
+- [19:31.760] guardian while still in college and
+- [19:33.919] helped raise her. He later said that for
+- [19:36.960] all his achievements, and he had many,
+- [19:39.679] his single proudest accomplishment in
+- [19:41.919] life was how well Darlene turned out. He
+- [19:46.640] had total respect and love for Darlene.
+- [19:51.520] Nothing could be more fitting than that
+- [19:54.880] woman who was Lindsay's proudest legacy
+- [19:58.320] now continues his legacy of service in
+- [20:00.880] the US Senate, a place that he
+- [20:03.280] cherished. And I have no doubt that he
+- [20:06.400] is looking down today, beaming with
+- [20:08.320] pride at his sister, Senator
+- [20:12.000] Darlene Graeme. Thank you. Senator
+- [20:17.280] Lindsay first stormed into Washington
+- [20:19.280] with the Republican revolution of 1994,
+- [20:22.400] becoming the first Republican to win his
+- [20:24.559] House district in 120 years. That was
+- [20:28.159] Lindsay.
+- [20:29.840] In 2002, he ran for the Senate in what
+- [20:34.159] should have been a loss and he swept to
+- [20:38.240] an easy victory. Lindseay quickly became
+- [20:41.280] a master at maneuvering in one of the
+- [20:43.520] world's great legislative bodies. He
+- [20:46.720] secured record funding for our military
+- [20:49.039] as a budget committee chairman. He
+- [20:52.080] delivered the largest investment in
+- [20:53.760] border security in history. And last
+- [20:55.679] year he shephered the passage of the
+- [20:58.400] largest tax cuts in American history.
+- [21:01.600] The great big beautiful bill
+- [21:04.880] had a lot of Lindsay goodies in there
+- [21:07.440] too, I can tell you. And of course, he
+- [21:10.240] was also a great champion of the United
+- [21:12.320] States Supreme Court. His impassion
+- [21:15.280] defense of a wonderful person, a great
+- [21:18.720] gentleman,
+- [21:20.559] Justice Kavanaaugh,
+- [21:22.559] ended a disgraceful attack on this very
+- [21:25.120] good man and gave us one of the greatest
+- [21:28.559] moments the Senate has ever seen. It was
+- [21:30.960] a truly monumental moment in Senate
+- [21:35.280] history. I believe it was Lindsay's
+- [21:38.400] perhaps finest hour.
+- [21:41.280] But no matter how heated things got in
+- [21:43.840] Washington, virtually everyone,
+- [21:45.840] Republican or Democrat, liked Lindsay.
+- [21:49.600] Well, not everybody, but it sounds good.
+- [21:52.640] Not everybody. He was a tough cookie.
+- [21:55.360] Okay, I have to be I have to veer from
+- [21:57.600] this for a sec. He was a tough cookie,
+- [21:59.440] Darly. But he was beautiful. But he was
+- [22:02.960] also ready with a joke and a gleam in
+- [22:06.320] his eye. After being lectured on the
+- [22:08.640] excruciating details of patent law by a
+- [22:11.919] fellow senator during a flight, Lindseay
+- [22:16.240] declared that he had discovered a new
+- [22:18.159] form of enhanced interrogation and
+- [22:21.280] torture
+- [22:22.799] for the Guantanamo Bay area. He said,
+- [22:26.799] "This is really bad stuff and boring."
+- [22:30.960] And while he was an incredibly hard
+- [22:33.120] worker, he was not exactly an early
+- [22:35.760] riser, as many of you know. When Senator
+- [22:39.280] Tim Scott, a great gentleman in his own
+- [22:42.559] right, I can tell you, invited him to
+- [22:45.360] prayer breakfast at 8:30 a.m., Lindsay
+- [22:47.679] told him,"Tim, if Jesus himself comes
+- [22:50.960] back before 10:00 a.m., I ain't going."
+- [22:56.240] Yet, while he was always quick to laugh
+- [22:58.960] and no one ever doubted the gravity of
+- [23:00.880] his mission, above all, Lindsey Graeme
+- [23:03.280] believed in a strong America. Wanted a
+- [23:07.120] strong America. He had unwavering faith
+- [23:10.720] in the righteousness of American power
+- [23:13.760] and prayer. And he was extremely
+- [23:16.720] hawkish. I will tell you, he never saw a
+- [23:18.880] war that he didn't like. Only his true
+- [23:21.679] friends would understand that. But he
+- [23:23.360] wanted it for the good of our country.
+- [23:25.520] He felt in his bones that our destiny is
+- [23:28.159] to win and that his job was to do
+- [23:30.720] everything he could to ensure our
+- [23:32.480] enemies would lose.
+- [23:34.720] It was this conviction that led him to
+- [23:38.080] serve 33 years in uniform in the Air
+- [23:42.080] Force and Air Force reserves and Air
+- [23:44.880] National Guard even while he was in
+- [23:47.280] office. And it was this conviction that
+- [23:49.679] took him as a senator to almost every
+- [23:52.080] country on earth, confronting America's
+- [23:54.080] adversaries and standing up for
+- [23:56.960] America's friends. He had tremendous
+- [23:58.960] friendships all over the world. It's a
+- [24:01.919] testament to his towering impact that
+- [24:04.000] among those mourning him here today are
+- [24:07.039] leaders, presidents, prime ministers
+- [24:09.840] from all over the globe. They're sitting
+- [24:12.320] right here before you. Lindsay met
+- [24:15.200] countless world leaders. Yet wherever he
+- [24:18.159] went, he was always the same Lindsey
+- [24:20.159] Graeme. When he met Libyan dictator Moar
+- [24:24.960] Gaddafi in a tent in the desert, he told
+- [24:27.840] him, "I expected something out of the
+- [24:30.240] Arabian Knights. This looks more like a
+- [24:32.799] Winnebago." That was not a good
+- [24:34.480] statement to make at the time. And when
+- [24:37.279] he met the Daly Lama, Lindsay looked him
+- [24:40.720] straight in the eyes and said, "So,
+- [24:43.440] can you really levitate?"
+- [24:46.480] The Daly Lama was not happy with that.
+- [24:49.520] But no matter how high he rose, he never
+- [24:52.240] forgot where he came from. There's
+- [24:55.279] probably not a single town in South
+- [24:57.279] Carolina where Lindsay did not help
+- [24:59.200] repair a bridge, expand a school,
+- [25:01.600] improve a hospital, or recover from a
+- [25:04.240] disaster. He was a force of nature and I
+- [25:08.159] will miss him greatly.
+- [25:10.720] As you remember, Lindsay and I did not
+- [25:13.600] exactly get off to the best of starts.
+- [25:16.720] Running against each other
+- [25:19.279] back in 2016, Lindsay said something
+- [25:22.960] rather nasty on his flight to becoming
+- [25:26.080] the next president of the United States.
+- [25:29.279] So, naturally, I did something that I
+- [25:31.919] shouldn't have done. And I shared his
+- [25:33.840] personal cell phone number with the
+- [25:36.400] millions of people that happened to be
+- [25:37.919] watching that particular day. As I made
+- [25:39.760] a speech, a very important speech and I
+- [25:42.480] remember the number 20228
+- [25:45.440] 0292 if anybody wants to give it a shot.
+- [25:49.360] His phone exploded. He said I had that
+- [25:52.320] number for 20 years. His phone totally I
+- [25:54.720] don't know what he did with it but it
+- [25:57.279] exploded. That was the beginning of a
+- [25:59.200] friendship in a way. But it was Lindsay
+- [26:02.240] who had the last laugh because while I
+- [26:04.159] blew up his phone all for one day we
+- [26:08.640] became great friends and Lindsay did not
+- [26:10.799] stop calling me for the next 10 years.
+- [26:13.039] It was not easy.
+- [26:15.919] I always cherish the memories of our
+- [26:18.080] golf games and only because of his
+- [26:21.760] really uh and I will say this memorial
+- [26:25.120] service. It's so hard to say a memorial
+- [26:27.120] service for Lindsay. It's hard to say,
+- [26:29.440] but I'll admit that one time Lindsay
+- [26:32.000] Graeme and Anukica Sorenson actually
+- [26:35.039] beat me and Gary Player together. Can
+- [26:37.919] you believe that? Anukica played very
+- [26:39.840] well that day, actually.
+- [26:43.520] But right to the end, Lindsay carried in
+- [26:45.600] his golf bag the putter that once
+- [26:47.600] belonged to his dad, and he carried it
+- [26:50.320] with him with glass and with a ring that
+- [26:53.440] was so beautiful of his mother. And they
+- [26:57.600] were laying right at his bedside
+- [27:00.240] the night he died. They were there. He
+- [27:02.240] had them with him at all times. From
+- [27:05.200] that pool hall where his parents raised
+- [27:07.520] him to the halls of the United States
+- [27:09.520] Senate where he was respected and loved.
+- [27:12.880] This son of South Carolina became one of
+- [27:14.960] the most important men in the most
+- [27:17.360] important country on earth. In a city
+- [27:20.159] where politicians often become jaded and
+- [27:22.720] cynical, Lindsey Graeme never lost the
+- [27:25.520] old-fashioned American idealism
+- [27:28.640] that brought him to the highest levels
+- [27:31.279] of government and life. He took his duty
+- [27:34.960] seriously without taking himself too
+- [27:37.120] seriously. He was unwavering in his
+- [27:39.760] principles, but always willing to
+- [27:41.440] listen. He always wanted to listen. And
+- [27:45.200] one thing about Lindsay that we all
+- [27:47.039] know, he never quit. You wanted him to
+- [27:50.320] quit. You waited for him to quit. But he
+- [27:52.799] would never quit. Above all, Lindsey
+- [27:55.279] Graham loved America and he believed in
+- [27:57.440] the American people. If you shared that
+- [28:00.320] view, you had a friend in Lindsay. If
+- [28:02.880] you didn't share it, there was no
+- [28:05.039] fiercer or more constant opponent. Our
+- [28:08.720] nation needs more men and women like
+- [28:13.200] that great person sitting laying
+- [28:18.240] wherever he may be. I think I know where
+- [28:20.240] he is and I think he's up there. I think
+- [28:21.919] he's watching us. I'm pretty sure of it.
+- [28:26.240] Scripture tells us that blessed is the
+- [28:28.960] man who remains steadfast under trial.
+- [28:33.120] For when he has stood the test, he will
+- [28:36.320] receive the crown of life. For 71 years,
+- [28:40.399] Lindsey Graham was strong and steadfast.
+- [28:43.919] As a brother, a senator, a warrior, and
+- [28:46.880] a patriot, he withtood every last
+- [28:50.240] test, every single test that you can go
+- [28:52.960] through in every trial. And now he wears
+- [28:55.919] the crown of life in heaven. Reunited
+- [28:58.720] with his parents and reunited with his
+- [29:02.159] Lord.
+- [29:04.320] I end by saying something very, very
+- [29:07.520] special. Lindsay, we love you. God bless
+- [29:11.279] you. We will always be with you and you
+- [29:14.799] were very, very special. Thank you.
+- [29:16.960] Thank you very much.
+- [29:23.280] >> [applause]
