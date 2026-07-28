@@ -1,7 +1,52 @@
 # TruthSocial / RealDonaldTrump / 2026-07-28
 
-- Posts: 1
+- Posts: 16
 
+- [13:45 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997902816278620](116997904456604109/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997904456604109
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997902816278620
+- [13:45 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997900955280692](116997902816278620/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997902816278620
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997900955280692
+- [13:44 UTC - Truth Social post 116997900955280692](116997900955280692/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997900955280692
+  - _No text content captured._
+- [13:40 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997883102335738](116997884149863801/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997884149863801
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997883102335738
+- [13:40 UTC - Truth Social post 116997883102335738](116997883102335738/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997883102335738
+  - _No text content captured._
+- [13:39 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997880805050814](116997881553384817/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997881553384817
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116997880805050814
+- [13:39 UTC - Truth Social post 116997880805050814](116997880805050814/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997880805050814
+  - _No text content captured._
+- [13:35 UTC - ANDREW GIULIANI: How President Trump’s World Cup vision showed America at its very best: [...](116997864608476768/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997864608476768
+  - ANDREW GIULIANI: How President Trump’s World Cup vision showed America at its very best: [https://www. foxnews.com/opinion/andrew-giu liani-president-trumps-world-cup-vision-showed...
+- [13:35 UTC - Trump Rallies in Georgia, Touting the Trump Accounts, New Policies, and Key Economic Wins:...](116997863543813488/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997863543813488
+  - Trump Rallies in Georgia, Touting the Trump Accounts, New Policies, and Key Economic Wins: [https:// redstate.com/jenniferoo/2026/0 7/22/trump-campaigns-in-georgia-for-mike-collins...
+- [13:35 UTC - BIG CROWDS SHOW UP FOR PRESIDENT TRUMP IN MARIETTA, GEORGIA: [https://www. rsbnetwork.com/...](116997862617667443/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997862617667443
+  - BIG CROWDS SHOW UP FOR PRESIDENT TRUMP IN MARIETTA, GEORGIA: [https://www. rsbnetwork.com/news/big-crowds -show-up-for-president-trump-in-marietta-georgia/](https://www.rsbnetwork....
+- [13:34 UTC - Social Security Commissioner: ‘We’re Going to Stay at It’ After Latest $99 Million in Frau...](116997860600714900/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997860600714900
+  - Social Security Commissioner: ‘We’re Going to Stay at It’ After Latest $99 Million in Fraud Uncovered: [https://www. breitbart.com/politics/2026/07 /21/social-security-commissioner...
+- [13:34 UTC - Treasury stopped nearly $100M in taxpayer money from going to dead people after new gov’t ...](116997858987769069/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997858987769069
+  - Treasury stopped nearly $100M in taxpayer money from going to dead people after new gov’t measure implemented: [https:// nypost.com/2026/07/21/us-news/ treasury-stopped-nearly-100-...
+- [13:33 UTC - Trump’s IRS CEO reveals scrub of Social Security database found 10% of recipients erroneou...](116997857989413713/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997857989413713
+  - Trump’s IRS CEO reveals scrub of Social Security database found 10% of recipients erroneously listed: [https:// nypost.com/2026/07/22/us-news/ trumps-irs-chief-reveals-scrub-of-soc...
+- [13:33 UTC - IRS Chief Bisignano Touts $99M in Payments Stopped: [https://www. realclearpolitics.com/ar...](116997857033014116/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997857033014116
+  - IRS Chief Bisignano Touts $99M in Payments Stopped: [https://www. realclearpolitics.com/articles /2026/07/22/irs_chief_says_99m_in_payments_to_dead_people_stopped_154359.html](http...
+- [13:30 UTC - Truth Social post 116997843241379249](116997843241379249/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116997843241379249
+  - _No text content captured._
 - [02:00 UTC - Confirm Todd Blanche without delay: [https://www. washingtontimes.com/news/2026/ jul/23/co...](116995133068341490/)
   - Source: https://truthsocial.com/@realDonaldTrump/116995133068341490
   - Confirm Todd Blanche without delay: [https://www. washingtontimes.com/news/2026/ jul/23/confirm-todd-blanche-without-delay/](https://www.washingtontimes.com/news/2026/jul/23/confir...
