@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-07-27
 
-- Posts: 37
+- Posts: 40
 
+- [23:47 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Taking down the scaffoldi...](116994609827450671/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116994609827450671
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Taking down the scaffolding around the regilded Arts of War sculptures!
+- [23:47 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) BREAKING NEWS: The Failin...](116994609706579246/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116994609706579246
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) BREAKING NEWS: The Failing New York Times, after 10 years of harassment, slander, and libel, just failed again in t...
+- [23:47 UTC - [https://www. youtube.com/watch?v=m2FhDaxa2F o](https://www.youtube.com/watch?v=m2FhDaxa2F...](116994607783678326/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116994607783678326
+  - [https://www. youtube.com/watch?v=m2FhDaxa2F o](https://www.youtube.com/watch?v=m2FhDaxa2Fo)
 - [23:30 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) BREAKING NEWS: The Failin...](116994540958595788/)
   - Source: https://truthsocial.com/@realDonaldTrump/116994540958595788
   - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) BREAKING NEWS: The Failing New York Times, after 10 years of harassment, slander, and libel, just failed again in t...

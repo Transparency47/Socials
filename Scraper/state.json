@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=8ohyJYSjA94: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=8ohyJYSjA94! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=HqlzksD6UYo: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=HqlzksD6UYo! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -883,6 +883,17 @@
       "published": "2026-07-13T19:56:20+00:00",
       "title": "FREEDOM 250 GRAND PRIX IN AUGUST!",
       "url": "https://www.tiktok.com/@RealDonaldTrump/video/7662103805210791198"
+    },
+    "tiktok:realdonaldtrump:7667363758037044510": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-28T01:04:42.826312+00:00",
+      "path": "TikTok/RealDonaldTrump/2026/07/28/7667363758037044510",
+      "platform": "tiktok",
+      "post_id": "7667363758037044510",
+      "published": "2026-07-28T00:07:35+00:00",
+      "title": "A VERY EXCITING DAY, TIKTOK!",
+      "url": "https://www.tiktok.com/@RealDonaldTrump/video/7667363758037044510"
     },
     "tiktok:whitehouse:7540412027907362062": {
       "account": "WhiteHouse",
@@ -128231,6 +128242,39 @@
       "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) BREAKING NEWS: The Failin...",
       "url": "https://truthsocial.com/@realDonaldTrump/116994540958595788"
     },
+    "truthsocial:realdonaldtrump:116994607783678326": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-28T01:04:34.021492+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/27/116994607783678326",
+      "platform": "truthsocial",
+      "post_id": "116994607783678326",
+      "published": "2026-07-27T23:47:21.619000+00:00",
+      "title": "[https://www. youtube.com/watch?v=m2FhDaxa2F o](https://www.youtube.com/watch?v=m2FhDaxa2F...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116994607783678326"
+    },
+    "truthsocial:realdonaldtrump:116994609706579246": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-28T01:04:34.021062+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/27/116994609706579246",
+      "platform": "truthsocial",
+      "post_id": "116994609706579246",
+      "published": "2026-07-27T23:47:50.958000+00:00",
+      "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) BREAKING NEWS: The Failin...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116994609706579246"
+    },
+    "truthsocial:realdonaldtrump:116994609827450671": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-28T01:04:34.020441+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/27/116994609827450671",
+      "platform": "truthsocial",
+      "post_id": "116994609827450671",
+      "published": "2026-07-27T23:47:52.804000+00:00",
+      "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Taking down the scaffoldi...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116994609827450671"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -170724,6 +170768,17 @@
       "title": "One Big Beautiful Bill: NO TAX ON OVERTIME",
       "url": "https://www.youtube.com/watch?v=5pbMl0AvAgU"
     },
+    "youtube:whitehouse:5tfaGxzq7X0": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-28T01:04:51.841664+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/27/5tfaGxzq7X0",
+      "platform": "youtube",
+      "post_id": "5tfaGxzq7X0",
+      "published": "2026-07-27T20:47:21+00:00",
+      "title": "President Trump Speaks on Trump Account in Georgia",
+      "url": "https://www.youtube.com/watch?v=5tfaGxzq7X0"
+    },
     "youtube:whitehouse:5trQcqvODhY": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -171571,6 +171626,17 @@
       "title": "President Trump Presents Commander-in-Chief's Trophy to Navy Football",
       "url": "https://www.youtube.com/watch?v=8mpBEWQhz5g"
     },
+    "youtube:whitehouse:8ohyJYSjA94": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-28T01:04:50.801334+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/27/8ohyJYSjA94",
+      "platform": "youtube",
+      "post_id": "8ohyJYSjA94",
+      "published": "2026-07-27T22:45:07+00:00",
+      "title": "President Trump Delivers Remarks, Jul. 27, 2026",
+      "url": "https://www.youtube.com/watch?v=8ohyJYSjA94"
+    },
     "youtube:whitehouse:8r6c6McvHiE": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -172120,6 +172186,17 @@
       "published": "2025-06-26T15:41:13+00:00",
       "title": "Thomas Heyward Jr.",
       "url": "https://www.youtube.com/watch?v=ARzXq1PbZ9k"
+    },
+    "youtube:whitehouse:AU97gAouHa4": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-28T01:04:52.891114+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/27/AU97gAouHa4",
+      "platform": "youtube",
+      "post_id": "AU97gAouHa4",
+      "published": "2026-07-27T20:44:40+00:00",
+      "title": "The Ratepayer Protection Pledge",
+      "url": "https://www.youtube.com/watch?v=AU97gAouHa4"
     },
     "youtube:whitehouse:AcJC9jOJvk4": {
       "account": "WhiteHouse",
@@ -174552,6 +174629,17 @@
       "title": "IT'S NATIONAL CHAMPIONSHIP NIGHT",
       "url": "https://www.youtube.com/watch?v=IDxOfZMbJ2A"
     },
+    "youtube:whitehouse:IE0BXehX-8Q": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-28T01:04:54.671300+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/27/IE0BXehX_8Q",
+      "platform": "youtube",
+      "post_id": "IE0BXehX-8Q",
+      "published": "2026-07-27T20:36:22+00:00",
+      "title": "STANDING UP FOR AUTO WORKERS AND PUTTING AMERICA FIRST \ud83d\ude97\ud83c\uddfa\ud83c\uddf8",
+      "url": "https://www.youtube.com/shorts/IE0BXehX-8Q"
+    },
     "youtube:whitehouse:IGO2rpo3ABw": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -175926,6 +176014,17 @@
       "published": "2025-03-21T16:21:21+00:00",
       "title": "President Trump and Secretary of Defense Pete Hegseth Deliver Remarks",
       "url": "https://www.youtube.com/watch?v=MVyVfkL7PwM"
+    },
+    "youtube:whitehouse:MWF0LiEt4Fo": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-28T01:04:53.662705+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/27/MWF0LiEt4Fo",
+      "platform": "youtube",
+      "post_id": "MWF0LiEt4Fo",
+      "published": "2026-07-27T20:43:30+00:00",
+      "title": "This is what protecting American consumers looks like: The Ratepayer Protection Pledge",
+      "url": "https://www.youtube.com/shorts/MWF0LiEt4Fo"
     },
     "youtube:whitehouse:MXAATVvVw3c": {
       "account": "WhiteHouse",
