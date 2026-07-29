@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-29
 
-- Posts: 5
+- Posts: 6
 
+- [11:46 UTC - Many more people died of Covid under the Biden Administration than under the Trump Adminis...](117003098657536803/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117003098657536803
+  - Many more people died of Covid under the Biden Administration than under the Trump Administration. “Operation Warp Speed” was a SPECTACULAR SUCCESS, in fact, many say, one of the m...
 - [01:09 UTC - Senator Ron Johnson is working hard with Senate Republican Leadership to adopt a Budget Re...](117000591530452774/)
   - Source: https://truthsocial.com/@realDonaldTrump/117000591530452774
   - Senator Ron Johnson is working hard with Senate Republican Leadership to adopt a Budget Resolution before the August recess. This is the first step towards getting as much of THE S...
