@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=sCPQKhHlN9k: NoTranscriptFound: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=sCPQKhHlN9k! This is most likely caused by:\n\nNo transcripts were found for any of the requested language codes: ['en', 'en-US']\n\nFor this video (sCPQKhHlN9k) transcripts are available in the following languages:\n\n(MANUALLY CREATED)\n - und (\"root\")\n\n(GENERATED)\nNone\n\n(TRANSLATION LANGUAGES)\nNone\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=nhaI58kiwrI: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=nhaI58kiwrI! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -10805,6 +10805,17 @@
       "published": "2026-07-29T16:49:44+00:00",
       "title": "Fauci lied.",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7667993067000974605"
+    },
+    "tiktok:whitehouse:7668047127246851342": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-07-29T20:58:21.514655+00:00",
+      "path": "TikTok/WhiteHouse/2026/07/29/7668047127246851342",
+      "platform": "tiktok",
+      "post_id": "7668047127246851342",
+      "published": "2026-07-29T20:19:29+00:00",
+      "title": "POTUS announces the renovation of Washington Dulles International Airport! \ud83c\uddfa\ud83c\uddf8\u2708\ufe0f",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7668047127246851342"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -186816,6 +186827,17 @@
       "published": "2025-07-04T21:56:26+00:00",
       "title": "President Trump Gaggles with Press at Joint Base Andrews, July 04, 2025",
       "url": "https://www.youtube.com/watch?v=sA_YEKh4mVQ"
+    },
+    "youtube:whitehouse:sCPQKhHlN9k": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-29T20:58:24.626326+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/29/sCPQKhHlN9k",
+      "platform": "youtube",
+      "post_id": "sCPQKhHlN9k",
+      "published": "2026-07-29T19:44:27+00:00",
+      "title": "President Trump Makes an Announcement with the Secretary of Transportation",
+      "url": "https://www.youtube.com/watch?v=sCPQKhHlN9k"
     },
     "youtube:whitehouse:sFa_4J55w5o": {
       "account": "WhiteHouse",

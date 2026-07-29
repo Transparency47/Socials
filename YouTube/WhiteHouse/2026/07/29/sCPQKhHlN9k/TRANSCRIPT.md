@@ -1,0 +1,1053 @@
+<!-- source: https://www.youtube.com/watch?v=sCPQKhHlN9k -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: sCPQKhHlN9k -->
+<!-- date_published: 2026-07-29T19:44:27+00:00 -->
+<!-- date_accessed: 2026-07-29T20:58:24.626326+00:00 -->
+
+# Transcript: President Trump Makes an Announcement with the Secretary of Transportation
+
+- [00:04.319] Thank you very much everybody. This is
+- [00:06.160] very exciting to me as a builder,
+- [00:08.720] somebody that builds lots of big nice
+- [00:11.120] projects before I got here and we're
+- [00:14.000] doing some of the best in the world
+- [00:15.440] right now. This is all about the Dulles
+- [00:17.920] airport remodeling. It's considered one
+- [00:21.279] of the worst airports anywhere in the
+- [00:22.800] world. We're going to make it maybe the
+- [00:24.080] best with some hard work and some good
+- [00:27.359] thought process. But thank you for being
+- [00:29.760] here as we unveil exciting plans for a
+- [00:32.640] major and long overdue renovation and
+- [00:35.360] reconstruction of Washington's
+- [00:37.920] really horribly thought of Dulles
+- [00:40.800] International Airport. I want to thank
+- [00:42.879] Secretary of Transportation Sean Duffy.
+- [00:44.879] He's fantastic. He's doing a great job.
+- [00:47.200] doing a great job, including having to
+- [00:49.200] do with the safety of airlines and
+- [00:51.360] getting in with the control towers and
+- [00:52.960] all new equipment that we'll be ordering
+- [00:55.440] in the not too distant future. So that
+- [00:58.079] we'll have we'll go from again one of
+- [01:00.559] the worst countries in the world for
+- [01:02.879] that and we'll end up being one of the
+- [01:04.640] best countries in the world. That's
+- [01:05.840] automation
+- [01:07.520] having to do with landings, takeoffs and
+- [01:09.439] safety. But for his leadership at this
+- [01:12.159] important project and that's the Bellis
+- [01:14.000] project. Thanks as well to the CEO of
+- [01:16.720] United Airlines, Scott Kirby. Thank you,
+- [01:18.880] Scott. CEO of the Metropolitan
+- [01:21.360] Washington Airports Authority, Jack
+- [01:23.520] Potter. Thank you, Jack. And uh we have
+- [01:26.560] uh we've developed a great relationship
+- [01:28.720] with them. We're going to make this
+- [01:29.759] something special. As well as a member
+- [01:32.079] of the airport's authority board of
+- [01:34.079] directors, Trent Morris. Thank you,
+- [01:36.560] Trent. Thank you very much. Uh Dulles
+- [01:39.280] airport is the primary international
+- [01:41.280] gateway to our nation's capital which is
+- [01:43.439] now one of the safest cities in the
+- [01:45.840] country. It's one of the hottest cities
+- [01:47.759] in the country. We are the hottest
+- [01:49.360] country in the world. But uh our
+- [01:51.680] nation's capital has made tremendous
+- [01:54.000] improvements in the last year and a half
+- [01:56.240] since we got here. Uh crime is down by
+- [01:59.040] 84%. We've removed 8,000 almost 8,000
+- [02:04.560] careerh hardened criminals and uh
+- [02:08.239] amazing statistic 2% of the people
+- [02:10.879] caused 91% of the crime and we can
+- [02:13.920] handle that really easily. So they've
+- [02:15.840] done I just want to thank our great
+- [02:18.000] National Guard and the Metropolitan
+- [02:20.239] Police and others that worked with us.
+- [02:22.480] But uh the job in Washington, everyone's
+- [02:25.120] talking about it. I can also say in uh
+- [02:27.840] if you look at Memphis, Tennessee, where
+- [02:30.319] crime was rampant and it's down now 71%
+- [02:33.120] and it'll go down still further. And uh
+- [02:36.720] Louisiana, New Orleans, the governor
+- [02:39.599] called, he said, "We need help." And we
+- [02:41.760] gave him help and the crime is down 72%.
+- [02:44.720] And they just finished Marty GR and they
+- [02:46.800] said it was the safest Marty GR on
+- [02:49.120] record. So we have uh a modernization of
+- [02:52.400] Dulles that's sorely needed. Last year's
+- [02:54.400] JD Power ranked Dulles 23 out of seven
+- [02:58.560] 27 that's a very bad ranking large
+- [03:02.000] airports nationwide. So it ranks at the
+- [03:04.080] bottom of the list just about the bottom
+- [03:05.680] of the list after an extensive review of
+- [03:08.720] more than 30 proposals with the top
+- [03:11.120] architects anywhere in the world and I
+- [03:12.879] was involved with Sean and with a lot of
+- [03:15.680] other people actually but Scott was very
+- [03:17.519] much involved I can tell you. But we uh
+- [03:20.480] are announcing plans to add more than 5
+- [03:22.879] million square ft of new or renovated
+- [03:25.440] space. We'll replace the current C and D
+- [03:27.599] concourses which are basic disasters all
+- [03:30.480] the while preserving the iconic original
+- [03:32.640] terminal. That is one of the great
+- [03:35.200] architects of the world at the original
+- [03:37.120] terminal and it was uh very very
+- [03:39.280] important that it be left. It's one of
+- [03:41.519] the reasons it was both an asset and a
+- [03:43.360] liability. The liability is that nobody
+- [03:46.000] wanted to build anything near it. uh and
+- [03:48.640] people had to walk crazy distances and
+- [03:51.040] uh it's no good, not acceptable. So,
+- [03:53.440] we've addressed it all and we have a
+- [03:55.680] plan that's going to be phenomenal. But
+- [03:57.680] we're going to replace the CND
+- [03:59.599] concourses and preserve the iconic
+- [04:02.159] original terminal that first made the
+- [04:04.159] airport an architectural landmark. So,
+- [04:07.519] it's uh going to be something. You can
+- [04:09.360] sort of see a little example of it right
+- [04:11.519] here. That's your front. On the other
+- [04:14.000] side of the street, we're building a
+- [04:15.439] massive uh ninestory, eight story, 10
+- [04:18.959] story. We're not sure yet, but we're
+- [04:21.280] building a garage that parking garage
+- [04:23.360] that will be right next to the terminal.
+- [04:25.520] You'll walk right across the street and
+- [04:27.600] you'll have a glass bridge, a number of
+- [04:29.199] glass bridges that will go right into
+- [04:30.800] the terminal. Right now, you have to
+- [04:32.639] walk so far you have to walk blocks and
+- [04:34.800] blocks to get to your to get to the
+- [04:36.639] terminal. And we have an empty site
+- [04:39.360] right directly across the street that
+- [04:41.199] nobody wanted to tinker with, which was
+- [04:43.280] crazy. So, we're going to have a
+- [04:44.960] magnificent garage. What would you say,
+- [04:46.560] Sean? How many uh how many cars?
+- [04:48.240] >> 30 30 32,000 parking spaces.
+- [04:50.880] >> 32,000. It'll be actually the largest
+- [04:53.360] garage in the world. 32,000 is big.
+- [04:56.080] Mostly above ground. We don't like down.
+- [04:58.160] People don't like going down underneath.
+- [05:00.320] Uh mostly above ground. It'll be
+- [05:02.160] beautiful. But a central walking tunnel
+- [05:04.560] and a new airtra connections will
+- [05:06.720] provide travelers with e easy options.
+- [05:09.039] Really, it's it's an impossible airport.
+- [05:11.520] You get off a bus, you go into a train,
+- [05:13.199] you get from train, you get onto another
+- [05:14.960] bus, it's a worse airport. This plan
+- [05:18.000] also includes expanded options for
+- [05:20.080] parking, modern check-in areas, more
+- [05:22.560] efficient security screenings, hotels,
+- [05:24.800] etc., etc. They have a beautiful hotel
+- [05:27.759] right on the property but further away
+- [05:29.600] so that we can give the good location,
+- [05:31.360] frankly the best location to parking. So
+- [05:34.240] people literally will be able to park
+- [05:36.000] their car and walk 15 yards and they'll
+- [05:37.919] be in the terminal. In addition, many of
+- [05:40.560] the new restaurants and shops will be
+- [05:42.479] added, including plans for one of the
+- [05:44.479] largest United Polaris lounges anywhere
+- [05:47.120] in the world. And it'll be a beautiful
+- [05:49.039] level of luxury. This transformation is
+- [05:51.919] another step in our ongoing efforts to
+- [05:54.000] make Washington DC safe and beautiful
+- [05:56.720] again. Uh the safety aspects both in
+- [05:59.520] terms of the airlines and in terms of
+- [06:01.199] crime uh are unparalleled for what we're
+- [06:04.479] doing. For years, the United States has
+- [06:06.880] watched other major cities around the
+- [06:08.639] globe welcome travelers with grand and
+- [06:11.039] modern airports. yet. Last the last
+- [06:13.520] major airport built in the United States
+- [06:15.440] was Denver in 19 95 and it hasn't gotten
+- [06:19.199] very great reviews. That's more than 30
+- [06:21.840] years ago. So, we're doing something
+- [06:23.360] with Dulles that's going to make it uh I
+- [06:26.400] think the top maybe the top anywhere in
+- [06:28.160] the world. And by the way, Palm Beach is
+- [06:30.160] going to be one of the top two. Palm
+- [06:31.520] Beach is going to be incredible what the
+- [06:33.759] plans are. The people Joe and all the
+- [06:36.000] people working in Palm Beach that have
+- [06:37.440] such meg that have done such an
+- [06:39.600] incredible job. That's going to be an
+- [06:41.919] unbelievable airport very shortly. So,
+- [06:44.639] it's time to ensure that the United
+- [06:46.240] States has the greatest airports
+- [06:47.840] anywhere in the world. And we're
+- [06:48.880] starting right here with the capital
+- [06:50.160] city. And uh you can see just before
+- [06:53.360] Sean goes up, if you take a look, this
+- [06:56.000] is this is only showing the terminal in
+- [06:58.240] one room, but you have numerous of them.
+- [07:00.639] You have here, here, here, and you have
+- [07:04.160] a spine coming here's your main
+- [07:05.919] entrance. You have a spine coming right
+- [07:08.000] through the building into these massive
+- [07:11.039] uh massive ports. Now, the planes won't
+- [07:14.240] have to be bothered because we drop down
+- [07:16.240] a little bit and our walkway is
+- [07:18.160] underneath. Uh we have uh systems,
+- [07:21.039] walking systems that go very quickly or
+- [07:23.360] you can walk because it's very close.
+- [07:25.199] But this is it. So, you enter here, you
+- [07:28.240] have a parking garage which will be
+- [07:29.759] built right here. This whole thing is
+- [07:32.319] parking garage. 32 probably 32,000 cars.
+- [07:36.000] That'll be that'll be a world record and
+- [07:39.360] very convenient. And then you'll have
+- [07:41.039] glass tunnels that go into the airport
+- [07:43.840] right from here. So you're you'll be one
+- [07:45.919] story above this road stays beautified
+- [07:48.639] and stays. Uh we keep this this is your
+- [07:52.080] landmark. This is all new. This is your
+- [07:54.800] first tunnel and then you drop down from
+- [07:56.720] there on. And so that when you have the
+- [07:59.599] planes we'll be able to go right across
+- [08:01.280] without having to go back make turns or
+- [08:03.840] anything else. It's going to be amazing.
+- [08:05.680] It'll be one of the largest airports
+- [08:07.520] anywhere in the world and uh I think
+- [08:09.360] it'll be actually one of the most
+- [08:10.879] efficient and the best. So uh I'd like
+- [08:13.280] to ask Secretary Duffy to say a few
+- [08:15.919] words and then Jack Potter and I'd like
+- [08:18.400] to welcome a very great gentleman to our
+- [08:21.919] midst uh Jensen Wong who's here
+- [08:24.319] someplace and he's if we can do with an
+- [08:27.039] airport like he does with chips it'll be
+- [08:28.800] the greatest airport anywhere in the
+- [08:30.319] world. He looks at this problem as being
+- [08:32.640] a very simple he looks at this as speak
+- [08:35.120] a very simple problem to solve because
+- [08:37.519] his chips are a little bit more
+- [08:38.880] complicated but uh it's important that
+- [08:41.760] he's able to travel nicely along with
+- [08:43.680] everybody else and right now this is not
+- [08:45.839] a very good airport. We're going to make
+- [08:47.200] it a great airport. Uh Sean, please.
+- [08:49.680] >> Thank you, Mr. President. So to your
+- [08:51.360] point, uh the president has worked
+- [08:52.560] incredibly hard to make DC safe and
+- [08:54.959] beautiful. I think this is the cherry on
+- [08:56.880] the top, Mr. President. This is the
+- [08:58.959] gateway to the world from our nation's
+- [09:00.720] capital. And uh any of you who've
+- [09:02.720] traveled through Dallasos um it is it is
+- [09:06.000] dark. It is dated. A little dank maybe.
+- [09:09.440] It's uh it's not a great airport. Um and
+- [09:11.760] so uh we we had multiple architects come
+- [09:15.680] in and present to the president. uh and
+- [09:18.080] we are blessed that not only does he
+- [09:20.160] give his time to really important
+- [09:21.600] matters but he gave his building skill
+- [09:23.920] to take the best of all the designs and
+- [09:26.560] come up with this concept. So just if I
+- [09:28.240] could quickly point out we keep uh the
+- [09:31.279] Sarin building so that's going to be the
+- [09:33.600] foyer uh a whole new head house. Um we
+- [09:37.279] are going to get rid of the people
+- [09:38.640] movers Mr. President. So, if you don't
+- [09:40.320] know what these are, these are like
+- [09:41.440] elevated buses. Um, it's kind of like it
+- [09:44.320] looks like it's from Star Wars, um, if
+- [09:46.320] you will and they're slow and people are
+- [09:48.880] angry about them. We are going to get
+- [09:50.560] rid of those. We are going to have a
+- [09:51.600] horseshoe train system throughout the
+- [09:54.240] airport. And as you mentioned, right
+- [09:56.000] down the spine of the airport is going
+- [09:57.519] to be a walkway. So, easy access to all
+- [10:00.399] of your gates, fast movement. And, uh,
+- [10:02.959] what I like the president, he was like,
+- [10:04.240] listen, we have to have great parking.
+- [10:06.160] So when you pull up to the airport, you
+- [10:08.640] have easy access uh to the concourses,
+- [10:11.120] to the terminal. Um and so I think this
+- [10:13.680] is one of the best designs, Mr.
+- [10:14.880] President, probably because you were uh
+- [10:16.640] you actually did it uh that you'll see
+- [10:18.880] in the country as a whole. Uh and uh
+- [10:21.760] we've had this just to this is
+- [10:23.920] bipartisan, Mr. President. A lot of
+- [10:26.000] people, whether you're Republican or
+- [10:27.279] Democrat, you you hate the way Dallasos
+- [10:29.360] operates. So everyone's come together
+- [10:31.680] and we're building for America and
+- [10:33.360] building for the future. Um, and it's
+- [10:35.040] your vision that made this happen. So,
+- [10:36.480] thank you uh for doing this and it's
+- [10:38.720] going to be, I think, one of the it's
+- [10:40.160] going to be the premier airport in our
+- [10:41.680] country um when you're done with it.
+- [10:43.760] >> Well, thus far, what John said about
+- [10:45.440] bipartisan really is bipartisan. And I
+- [10:48.399] don't know if that's because it's the
+- [10:50.000] right thing to do, which it is, but it's
+- [10:51.600] also that whether you're a Republican or
+- [10:53.680] Democrat, you don't want to go and be
+- [10:56.000] subjected to this airport because this
+- [10:57.839] airport is a it's a terrible place to
+- [10:59.920] be. And it's going to be I believe it's
+- [11:01.920] going to go it'll be rated within a few
+- [11:04.160] years it'll be rated the best airport in
+- [11:06.079] the country. So it's going to be so
+- [11:07.600] efficient right now it's totally
+- [11:09.760] inefficient uh between the trams and the
+- [11:12.640] Star War thing that they call it the
+- [11:14.079] Star Wars and elevated buses and nobody
+- [11:17.360] knows what's going on. It's a it's a
+- [11:18.959] real mess and uh as you know United uh
+- [11:22.800] is subjected to it. It doesn't doesn't
+- [11:25.360] help United very much. He's been very
+- [11:27.680] much involved with what we've done and
+- [11:30.320] other airlines too and and I have to say
+- [11:32.399] that uh we've had over 30 architects and
+- [11:35.279] 30 different designs and we did a little
+- [11:38.480] cherrypicking and we spoke to a lot of
+- [11:40.959] people about it and we've come up with a
+- [11:43.440] plan that's efficient and really
+- [11:46.000] beautiful and I think it's going to give
+- [11:47.279] you one of the most beautiful keeping
+- [11:48.720] the Sarinin. So Sarin was one of the
+- [11:51.040] great architects of the world and when
+- [11:52.560] he built this 30 years ago I guess or
+- [11:55.120] about that this was considered one of
+- [11:56.959] the like the eighth wonder of the world.
+- [11:59.120] This was considered the greatest
+- [12:00.480] terminal uh anywhere in the country and
+- [12:02.880] it is it needs some work. It needs some
+- [12:04.560] fix up but it'll be uh architecturally
+- [12:07.519] amazing. The rounded glass and the whole
+- [12:09.360] thing massive massive sheets of glass
+- [12:12.480] cost was no object unfortunately or
+- [12:14.720] fortunately. And uh we will we're going
+- [12:17.120] to be using that in it's going to be
+- [12:18.639] fixed. We're using it again as the
+- [12:20.880] primary entrance and almost that's about
+- [12:23.519] it because essentially this is a brand
+- [12:25.360] new airport and yet uh we're going to be
+- [12:27.600] able to work it well enough that it'll
+- [12:29.440] work at least as efficiency efficiently
+- [12:32.560] as it works right now and in the end
+- [12:34.880] you're going to end up with I think
+- [12:36.000] maybe the best airport and one of the
+- [12:37.600] biggest airports anywhere in the world
+- [12:39.440] and it's going to be a great thing for
+- [12:40.800] Washington DC. So could I ask uh Jack to
+- [12:43.920] say a few words please?
+- [12:45.279] >> Yes Jack.
+- [12:46.000] >> Thank you Mr. President. Thank you for
+- [12:47.600] your inspiration here and challenge. You
+- [12:49.360] challenged all of us to step into the
+- [12:51.440] issues that you just described. We're
+- [12:53.440] very proud of the process that we've
+- [12:55.360] gone through. We're very happy that
+- [12:57.120] United Airlines uh the Air Force
+- [12:59.360] Authority uh and the other airlines have
+- [13:01.760] agreed to step up and fund this thing.
+- [13:04.160] So, this is not requiring uh federal
+- [13:06.480] dollars. This is going to be airport
+- [13:08.560] generated dollars, airline
+- [13:10.399] contributions, which is phenomenal. Uh
+- [13:13.040] means that we're off to a fast start
+- [13:14.720] here. We're engaging with the Sarin
+- [13:16.720] family to make sure that they stay
+- [13:18.720] intimately involved with this, all the
+- [13:20.880] aspects that were just described. I
+- [13:22.480] think we'll make this a worldclass
+- [13:24.320] airport. And you challenge us to do
+- [13:26.079] this. We're building off of growth
+- [13:28.000] though. I have to tell you, our airport
+- [13:30.240] was the fastest growing airport in 24
+- [13:32.560] and 25 of any large airport in the
+- [13:34.639] country. So, you know, we're going to
+- [13:36.560] continue to build on the momentum that
+- [13:38.160] we have. uh and we're excited about
+- [13:40.079] taking on this challenge and it will be
+- [13:41.839] a challenge to construct this and our
+- [13:43.760] goal is to construct it and make sure
+- [13:45.600] that the traveling public is min
+- [13:47.839] there'll be minimal impact to them as
+- [13:50.000] they transit through our airport. So
+- [13:51.920] again, Mr. President, thank you for your
+- [13:53.519] inspiration and we look forward to
+- [13:55.279] continued participate in this uh in the
+- [13:57.920] coming years because we're going to
+- [13:58.959] bring designs to you and other things.
+- [14:00.880] So uh we very much look forward to
+- [14:02.480] working with you.
+- [14:03.040] >> Thank you very much. Great job, Tim.
+- [14:05.760] Scott, would you like to say so?
+- [14:07.040] >> Well, thank you, Mr. President. Thank
+- [14:08.320] you, Mr. Secretary and Jack and
+- [14:10.560] everyone. Uh we're really at United were
+- [14:12.720] really excited to have this project get
+- [14:14.639] off the ground. The terminal that's out
+- [14:16.320] there today was built 45 years ago and
+- [14:18.160] was meant to be temporary. Uh and so
+- [14:20.000] I've spent my whole career at United
+- [14:22.000] Airlines waiting for this day and all
+- [14:23.519] the people of United Airlines have spent
+- [14:25.120] even longer waiting for the day that we
+- [14:26.959] could have really the best airport uh in
+- [14:29.360] the world. And this design is one that
+- [14:31.839] works great for the airlines. president
+- [14:33.360] talked about how it works great for the
+- [14:35.680] on the outside for the airline, but it's
+- [14:37.920] going to be a beautiful airport inside
+- [14:39.760] for customers. It's something that all
+- [14:41.680] of us at United, but really all
+- [14:43.680] Americans will be able to be proud of
+- [14:45.360] having an airport when people come into
+- [14:47.120] the capital uh that really represents
+- [14:49.120] what the United States of America stands
+- [14:51.279] for. So, I'm proud of it as a CEO of
+- [14:53.839] United, but proud of it as an American
+- [14:55.680] as well. That's right.
+- [14:56.720] >> It's going to be a great one. Thank you.
+- [14:58.079] In fact, thank you for your help. And
+- [14:59.760] Trent, would you like to say so?
+- [15:01.360] >> Yeah. Thank you, Mr. president for your
+- [15:02.800] leadership on this on behalf of the MWA
+- [15:04.880] board. Um, this is something that
+- [15:06.560] everyone's tried to do for decades and
+- [15:08.800] no one's been able to get it done and
+- [15:10.320] without the president's leadership on
+- [15:11.680] it, we'd be back in square one. So,
+- [15:13.600] thank you for your leadership on this
+- [15:14.959] project. Thank you to United and the
+- [15:16.560] Department of Transportation for moving
+- [15:17.920] this along as quickly as possible.
+- [15:20.160] >> One of the things that is interesting,
+- [15:21.760] they were going to build this over a
+- [15:23.040] 60-year period. They were going to start
+- [15:25.120] with a little section here, a little
+- [15:26.560] section there, little and that wouldn't
+- [15:28.800] have worked. it wasn't designed like
+- [15:30.480] this, but it wouldn't have worked. Uh,
+- [15:32.560] so we're doing it all at one time. It'll
+- [15:34.240] all be completed and it'll be beautiful
+- [15:35.839] and it'll be uh something very special.
+- [15:38.880] I'd like to say something.
+- [15:40.320] >> Thank you, Mr. President. I I really
+- [15:41.839] want to thank the airport authority and
+- [15:43.600] United Airlines for your partnership,
+- [15:45.680] the board of the airport authority. Your
+- [15:48.160] partnership is critical to make this
+- [15:50.079] happen. I know you had a plan to improve
+- [15:53.120] the airport, but as the president said,
+- [15:54.800] it was a long-term plan. We thought it
+- [15:57.680] was too modest, too slow, too modest.
+- [16:00.240] And
+- [16:00.720] >> 60 years, isn't it?
+- [16:02.480] >> Decades. And but with the president's
+- [16:04.399] attention and focus on this, it's
+- [16:07.040] accelerated. It's expanded and we're
+- [16:10.000] actually going to realize the vision and
+- [16:12.240] a much greater vision now. So, it's very
+- [16:14.240] exciting day for Washington, for the
+- [16:15.839] whole nation. Well, these people have
+- [16:17.120] all been fantastic and they've really
+- [16:19.440] they want to see it get done and get
+- [16:20.959] done properly and it should be done as
+- [16:22.959] one airport, not being built in chunks,
+- [16:26.079] which would have been frankly a
+- [16:27.680] catastrophe, I think. So, uh, thank you
+- [16:30.320] very much. You have any questions?
+- [16:32.639] >> President, thank you, Mr. President. Um,
+- [16:34.079] very quickly on this issue, did you just
+- [16:35.759] say two years? It would take two years
+- [16:37.120] to finish.
+- [16:37.519] >> I think we can get it started fairly
+- [16:39.199] quickly. Uh, it's largely financed and,
+- [16:43.199] uh, yeah, go. We need some approvals
+- [16:45.360] from Congress probably, but generally
+- [16:47.519] speaking, it's been very bipartisan.
+- [16:49.519] >> And on the um attack, the drone attack
+- [16:51.519] on the LG tanker off of Egypt. Yeah.
+- [16:54.160] >> Um what can you tell us about that? And
+- [16:56.480] is there any indication it's Iran
+- [16:58.480] related? Does it represent?
+- [17:00.079] >> Let me give you a report. We've I've
+- [17:01.759] been briefed. Uh it's a little more of
+- [17:04.000] the same, but it's uh going to be
+- [17:06.720] straightening out. It's going to be
+- [17:08.240] straightening out. In the meantime, uh,
+- [17:11.520] we're going to be hitting them very hard
+- [17:13.439] because it's our term to hit them. They
+- [17:15.199] know it's coming. They're asking us not
+- [17:16.880] to do it, but uh, you know, they tried
+- [17:19.360] shooting at last night. So, we had five
+- [17:21.679] rocket shot going 8,500 mph and all five
+- [17:25.839] rockets were knocked down to the ground,
+- [17:28.160] but they nevertheless took a shot. So,
+- [17:30.400] it's our turn, and we'll see if we get
+- [17:33.039] there with an agreement at some point,
+- [17:34.880] but we're going to hit them very hard.
+- [17:36.720] >> Mr. President first on this is this
+- [17:38.799] expected to affect any incoming or
+- [17:41.919] outgoing flight?
+- [17:42.960] >> No, we think we could do it without a
+- [17:44.480] lot of disruption. Very little.
+- [17:45.840] >> And then um
+- [17:46.559] >> it might even be better.
+- [17:47.840] >> On leader Zoom, he What's your reaction
+- [17:50.880] to him saying that there's no evident
+- [17:53.440] path to success on killing the
+- [17:54.880] filibuster or passing the Safe America
+- [17:57.280] Act?
+- [17:57.600] >> Well, that's too bad for him. I mean,
+- [17:59.039] that's too bad for him and too bad for
+- [18:01.120] the Republican party.
+- [18:02.400] >> Do you believe that?
+- [18:03.120] >> He's got the votes. He should get it
+- [18:04.400] done. You should be able to get Mr.
+- [18:06.799] President. Mr. President, thank you. Dr.
+- [18:08.320] Fouchy invoked the fifth amendment more
+- [18:10.160] than 100 times today. Ran Paul said he's
+- [18:12.799] going to hold a vote on holding him in
+- [18:14.320] contempt of Congress. Do you think Dr.
+- [18:16.240] Fouchy should face repercussions for
+- [18:17.919] this?
+- [18:18.400] >> Well, I watched the whole thing today,
+- [18:19.919] but more importantly, I was a part of
+- [18:21.840] the whole Fouchy. I inherited Fouchy. He
+- [18:24.880] was here from the 1980s, so I had him
+- [18:26.799] for a period of time, and I I disagreed
+- [18:29.440] with him on a lot. I would have had it
+- [18:31.120] closed down the whole country if I
+- [18:32.559] listened to him. I wait I went the
+- [18:34.559] federalist way, which is basically let
+- [18:36.640] the governors decide. And generally
+- [18:38.720] speaking, the Republican governors did
+- [18:40.400] very well. The Democrat governors did
+- [18:42.559] not very well, but Fouchy wanted to have
+- [18:45.280] nobody wearing masks if you remember.
+- [18:47.200] And then everybody had to wear five
+- [18:49.120] masks, as many masks as you could get. I
+- [18:51.360] mean, made a lot of mistakes. And uh he
+- [18:54.400] wasn't a big factor for me. He was a
+- [18:56.240] very big factor for Biden. And if you
+- [18:58.640] remember, even though we were uh sort of
+- [19:01.679] uh prime time in terms of that whole
+- [19:04.880] disaster of CO, far people died fewer in
+- [19:09.919] the Trump administration than in the
+- [19:12.080] Biden administration. We ran we ran it
+- [19:15.840] well. Operation Warp Speed was talked
+- [19:18.400] about as being one of the great success
+- [19:19.919] stories anywhere in the world, actually.
+- [19:22.480] and we did a good job. But many more
+- [19:24.640] people died under Biden than died in the
+- [19:26.799] Trump administration from CO. CO was a
+- [19:29.360] disaster, but Fouchy did not help. Mr.
+- [19:33.520] >> Do you think that the DOJ should reopen
+- [19:35.120] the investigation to the autopen
+- [19:36.880] specifically pertaining to Fouchy?
+- [19:39.120] >> Well, the only thing you can really
+- [19:40.640] think about is the autopen because uh
+- [19:43.039] the most powerful thing the president
+- [19:45.360] has, they say, is the power of pardon.
+- [19:47.679] So, uh, he was pardoned by Biden and I I
+- [19:51.600] respect that. I I know how powerful it
+- [19:53.919] is. It's a very powerful, uh, they say
+- [19:56.480] it's literally the most powerful thing a
+- [19:58.320] president has. Now, whether or not I
+- [20:00.880] sign my things directly, always, almost
+- [20:04.080] everything I sign directly. You witness
+- [20:06.240] to many of them. Uh, he signed very few.
+- [20:09.280] The only thing I know that he signed was
+- [20:10.799] Hunter Biden's pardon, but I'm not sure
+- [20:13.120] that he signed uh he probably didn't
+- [20:15.520] sign uh this one. So, I I can't tell you
+- [20:19.200] what the law is. I've heard that you
+- [20:20.880] have to have a lot of proof. You need to
+- [20:23.360] have letters. You need to have all sorts
+- [20:25.039] of things that the person operating the
+- [20:27.360] autopen has to know exactly what it's
+- [20:29.600] all about. He didn't know what it was
+- [20:31.440] about because I saw him testify. So,
+- [20:33.679] maybe there's something on the autopen.
+- [20:35.360] Other than that, uh the power of pardon
+- [20:37.760] is very powerful.
+- [20:40.080] A question briefly on the on the
+- [20:42.640] >> Thank you. Beth, GB News. We've just
+- [20:44.880] heard you talking about another example
+- [20:46.880] of American excellence. That's really
+- [20:48.960] what this is, is a project where you're
+- [20:50.559] striving to be the best in the world. As
+- [20:52.640] a Brit, that's really striking to me.
+- [20:55.679] You've had a couple of weeks to get to
+- [20:57.520] know our new prime minister. Have you
+- [20:59.679] spoken to him much? And do you think he
+- [21:01.760] is the man to lead us to excellency?
+- [21:04.320] >> Well, he did say one very good thing. He
+- [21:06.159] said he's going to open up North Sea
+- [21:08.799] oil. If he does that, you're going to be
+- [21:10.720] a wealthy country. If he does it
+- [21:12.480] reasonably.
+- [21:14.000] I was telling Prime Minister Starmer,
+- [21:16.000] "Open up the North Sea. Open it up.
+- [21:18.480] You'll be okay. Open it up." They have
+- [21:20.720] two problems. They have a huge
+- [21:21.840] immigration problem. People coming from
+- [21:23.760] all over the world and just camping out
+- [21:25.520] in your country. And we've taken a very
+- [21:27.840] tough stand. In fact, for 14 months,
+- [21:29.600] nobody has come into our country. Zero.
+- [21:32.240] Which is almost hard to believe. That's
+- [21:34.159] what the report says. Uh we our border
+- [21:36.720] has become very strong and your border
+- [21:38.159] is very weak. He's got that problem and
+- [21:40.240] he's got energy problem. Yeah. He's got
+- [21:41.919] windmills all over the place and every
+- [21:43.919] anytime you see windmills you see a
+- [21:45.679] failing country and they're made in
+- [21:47.919] China. Not used by China but they're
+- [21:49.919] made in China. Uh and you have a thing
+- [21:52.480] called the North Sea. And you buy a lot
+- [21:54.799] of your energy as you know from the
+- [21:56.960] North Sea. You buy from Norway. And
+- [21:59.120] Norway gets it from the North Sea. They
+- [22:00.960] get their uh their oil from the North
+- [22:04.159] Sea. And Norway's got trillions of
+- [22:07.039] dollars in the bank, trillions. It sells
+- [22:09.760] its oil from the North Sea. And Scotland
+- [22:12.640] has a better part of the North Sea. And
+- [22:15.200] you have 500, 600, 700 years. You have
+- [22:18.080] areas of the North Sea that haven't even
+- [22:19.840] been explored yet. You have one of the
+- [22:22.240] most valuable oil fines anywhere in the
+- [22:24.559] world. And if uh the United Kingdom
+- [22:27.840] would use it, they'd be a wealthy
+- [22:29.760] country again. And I tell you what, I
+- [22:32.080] could not get Star to use it. It was
+- [22:34.080] incredible. Every oil company that I
+- [22:36.000] meet, and these are all big giants,
+- [22:38.880] every person that I know in the oil
+- [22:41.520] business said, "Please, could you open
+- [22:43.120] up the North Sea? Could you get them to
+- [22:44.720] open it?" They're dying to do it. And if
+- [22:47.520] you open up the North Sea to the oil
+- [22:49.440] companies, uh, Scotland, Ireland, uh,
+- [22:52.880] the UK as a as a whole, but it's I mean
+- [22:55.520] it's right in Aberdeene, Scotland. It's
+- [22:58.080] right in Aberdine. And that would be one
+- [23:01.919] of the most vibrant, you know, it used
+- [23:03.360] to be called the oil capital of Europe.
+- [23:06.640] Aberdine was the capital of Europe. And
+- [23:09.760] now it's uh, they don't drill oil. And
+- [23:12.960] nobody can understand why. You have
+- [23:14.960] among the it's among the finest oil.
+- [23:16.720] It's the best oil anywhere on the planet
+- [23:19.039] and it's unbelievable plunder. You don't
+- [23:21.440] have to pay Norway triple what it costs
+- [23:24.159] them to take out. You have your own oil
+- [23:26.480] and gas. If you use the North Sea, the
+- [23:29.280] UK will be a really rich country. I
+- [23:32.159] cannot get the point across. The new
+- [23:34.240] gentleman when I spoke to him, he said
+- [23:36.080] he's going to open up the North Sea.
+- [23:37.360] Let's see if that
+- [23:40.159] >> the Fed today voted to keep interest
+- [23:42.080] rates unchanged. Are you surprised by
+- [23:44.400] that? Are you disappointed in any way
+- [23:46.640] with Kevin Worsh not being able?
+- [23:50.159] >> Yeah, Kevin's got a board. He's
+- [23:51.520] fantastic. He's a brilliant guy. Smart.
+- [23:54.320] >> I know he'd love to see lower interest
+- [23:56.000] rates, but uh he's got a board and it's
+- [23:59.520] a political board and they want to keep
+- [24:01.360] rates up. But we fight through rates. We
+- [24:03.520] have the greatest we have the strongest
+- [24:05.760] investment ever made in a country of any
+- [24:08.320] country. It was China about 13 14 years
+- [24:12.960] ago. We have far greater 19 point. Even
+- [24:16.799] Jensen would say that's a lot. 19 and
+- [24:19.279] Jensen spending a tremendous amount of
+- [24:20.960] money by hundreds of billions of
+- [24:22.320] dollars. He happens to be in the room.
+- [24:23.840] He's spending more than United actually.
+- [24:26.080] >> Well, he's he's spending 10 billion. You
+- [24:28.320] know, Jensen's spending hundreds of
+- [24:30.080] billions, right? I don't know. That's
+- [24:32.000] not a bad business idea. But, uh, no,
+- [24:35.279] no, we have 19.2 trillion. It's a it's
+- [24:37.760] the biggest number ever spent in any
+- [24:39.840] country by far. And that's over a period
+- [24:42.159] of one year. As an example, as you know,
+- [24:44.320] the Biden administration for four years
+- [24:47.200] did much less than 1 trillion. We're
+- [24:49.600] doing 19.2 trillion in one year. So, we
+- [24:52.799] have things that are happening in our
+- [24:54.240] country the likes of which nobody's ever
+- [24:55.919] seen. Plants and factories are moving
+- [24:58.080] in. Toyota just announced they're
+- [25:00.320] building one of the largest uh car
+- [25:02.080] plants anywhere in the world and truck
+- [25:03.760] plants anywhere in the world. Uh we are
+- [25:06.480] building more automobile plants now than
+- [25:08.640] at any time in the history of our
+- [25:10.080] country in particular. This is just one
+- [25:12.880] of several projects that you have
+- [25:14.320] underway in the DMV. Why would you say
+- [25:16.799] that you're so focused on transforming
+- [25:18.799] the Washington region right now?
+- [25:20.480] >> Well, this is an important one. You
+- [25:22.080] know, this is travel. So, in terms of
+- [25:24.000] the importance, I think the arc is going
+- [25:25.520] to be incredible. I think the protected
+- [25:27.919] ballroom and military center that we're
+- [25:29.760] building at the White House is going to
+- [25:31.120] be unbelievable. It's very important.
+- [25:33.279] But you know this is uh the airport.
+- [25:36.240] This is sort of the lifeblood of a city
+- [25:38.320] or a capital certainly a capital and
+- [25:41.360] this will go from one of the worst just
+- [25:43.120] like Washington. Washington was one of
+- [25:45.360] the worst places in this country and now
+- [25:47.279] it's one of the best. You couldn't get
+- [25:49.840] into a restaurant because all the
+- [25:51.360] restaurants were closing or closed. They
+- [25:53.200] were afraid to have it open. Now you
+- [25:55.120] can't if you're a restaurant tour you
+- [25:56.720] can't even find space to have a
+- [25:58.080] restaurant. The restaurants are booming.
+- [26:01.120] So, you know, it's a it's a great
+- [26:03.039] thrill. And by the way, if you look,
+- [26:04.880] Washington is clean. It's safe. People
+- [26:07.840] walk to work. Every day a young man or a
+- [26:10.080] young woman comes up and says, "Thank
+- [26:11.440] you, sir. I know exactly what he's
+- [26:12.720] talking about." They couldn't wait. They
+- [26:14.400] were afraid to walk to work. Now, they
+- [26:16.240] literally walk to the White House.
+- [26:18.159] Washington is now a beautiful and clean.
+- [26:20.320] We got rid of the graffiti. 78 uh
+- [26:23.279] monuments and and different things have
+- [26:25.919] been uh cleaned. They were strewn with
+- [26:29.279] graffiti. We had 28 fountains that not
+- [26:32.559] one of them worked for years, for
+- [26:34.559] decades they haven't worked. Uh they're
+- [26:36.799] all up in service and nobody's seen
+- [26:39.200] anything like it. We have a clean uh
+- [26:41.039] we're changing all the grass in all the
+- [26:42.960] parks. That's going to be changed very
+- [26:44.640] shortly. The parks are because the grass
+- [26:46.880] is very, you know, grass is like human
+- [26:49.279] beings. Grass has a life also. And we're
+- [26:52.159] changing, we're raking, cleaning, and
+- [26:54.000] changing all of the parks. Uh we don't
+- [26:56.400] have people, we don't have the tents
+- [26:57.840] anymore. We don't have all the bobb wire
+- [26:59.600] up. We don't have the wire up.
+- [27:01.600] Washington's become a beautiful city.
+- [27:03.360] It's become a hot city. But you know,
+- [27:06.240] even more importantly, the United States
+- [27:07.919] right now is the hottest country
+- [27:09.760] anywhere in the world.
+- [27:10.720] >> Mr. President, Mr. President, just a
+- [27:12.720] point of clarity on the the airport. Um,
+- [27:15.120] no federal funding will be required.
+- [27:16.880] What did you mean when you said Congress
+- [27:18.159] may need to approve?
+- [27:20.080] >> So, it's going to be bonded for $22.5
+- [27:22.080] billion. uh United is going to partake
+- [27:25.200] uh in uh part of the payment but the
+- [27:27.679] airlines who participate in the project
+- [27:29.679] are going to pay for it. If I can just
+- [27:31.120] make one point of clarification
+- [27:32.880] >> we have some permitting we have to do
+- [27:34.720] but we think in the spring we this will
+- [27:37.440] be this is both concourse A uh we think
+- [27:41.120] we can start construction in the spring
+- [27:43.279] of next year. So we're trying to move at
+- [27:44.960] the speed of President Trump. It's never
+- [27:46.720] fast enough,
+- [27:47.919] >> but we're we're going as quickly as
+- [27:49.600] possible so we can give a deliverable to
+- [27:51.520] the American people.
+- [27:53.120] >> And the other thing Sean's doing, which
+- [27:54.559] I think is so important, maybe more
+- [27:56.480] important, I don't think can be more
+- [27:57.760] important than this, but he's working on
+- [28:00.000] air traffic control. We have an obsolete
+- [28:03.600] system. It's 50 years old. Uh you saw
+- [28:06.159] the helicopter crash a year ago into a
+- [28:08.559] plane. That was a disaster. And uh
+- [28:12.240] things like that would never happen.
+- [28:13.600] bells would have gone off in four or
+- [28:15.760] five minutes before it happened. You
+- [28:17.120] would have heard the bells and whistles
+- [28:19.039] would have gone off and a thing like
+- [28:20.799] that couldn't have happened if you had
+- [28:22.240] proper uh proper air control. So what's
+- [28:25.600] happened is uh we are working very hard
+- [28:28.720] on getting the finest in the country now
+- [28:31.520] in in the world. uh we've examined the
+- [28:34.320] systems of almost every good country in
+- [28:37.600] terms of air traffic control all over
+- [28:39.919] the world and we have the best people
+- [28:43.039] working on it in the world and it'll
+- [28:45.760] make I mean so often you'll see somebody
+- [28:47.600] even bunking into each other at an
+- [28:49.360] airport but where planes come too close
+- [28:52.159] where planes in the case of the
+- [28:53.520] helicopter hit they hit the helicopter
+- [28:55.600] hits the plane uh we are working on air
+- [28:58.559] traffic control to redo the entire
+- [29:01.039] system including the new tower towers
+- [29:02.720] because the towers are obsolete. You
+- [29:04.720] know, you don't think of it. You see a
+- [29:06.000] tower and it looks fine. You go into
+- [29:07.840] those towers, they're literally falling
+- [29:09.360] down. So, we're talking about new towers
+- [29:11.760] and all new air traffic control which
+- [29:14.960] will give us the safest anywhere in the
+- [29:17.200] world.
+- [29:17.520] >> Mr. President,
+- [29:20.399] why do you, Mr. President, why do you
+- [29:21.679] think Dr. Fouchy invoked the fifth
+- [29:23.520] amendment so many times today um when he
+- [29:25.919] has the pardon? And why couldn't what's
+- [29:28.000] what was stopping him from just giving
+- [29:29.360] an honest testimony this morning? Well,
+- [29:31.600] look, I've never been a big fan of
+- [29:32.960] Fouchy. Uh, why he did that was very
+- [29:35.279] simple. His lawyer told him to, you
+- [29:36.960] know, I don't know if he would have been
+- [29:38.080] better off not doing it. Uh, there were
+- [29:40.640] a lot of questions that I guess he could
+- [29:42.240] have answered and some maybe he didn't
+- [29:44.880] feel comfortable in answering, but his
+- [29:46.799] lawyer told him to do that.
+- [29:49.840] >> Prime Minister Andy Burnham hasn't
+- [29:51.600] mentioned publicly migration at all
+- [29:54.720] since he's gone into number 10. Did you
+- [29:56.880] did you discuss it with him? Uh, I did
+- [29:59.679] briefly. He's gonna have to mention it
+- [30:02.240] because it's killing your country.
+- [30:04.159] >> Mr. Mr.
+- [30:06.240] >> Killing
+- [30:06.880] >> He won't talk to G.
+- [30:08.159] >> He's killing your country.
+- [30:09.360] >> He won't talk to
+- [30:10.159] >> And not him. I mean, we'll have to see.
+- [30:11.760] I know Sarm did very little about it.
+- [30:14.080] And they're coming from all over the
+- [30:15.440] world. They're coming from Africa.
+- [30:16.880] They're coming from South America.
+- [30:18.480] They're coming from different parts of
+- [30:19.840] Asia. And they're invading Europe. I
+- [30:23.279] mean, they're invading Europe. It's an
+- [30:24.799] invasion. Uh, and the UK is a prime
+- [30:28.000] suspect. Mr.
+- [30:30.559] President, um, on Todd Blanch, Senator
+- [30:32.880] John Cornet of Texas has been hesitant
+- [30:35.200] to back the confirmation. Seems to be
+- [30:37.200] some sort of deal that he's talked
+- [30:38.799] about. What is your reaction to his
+- [30:40.159] hesitancy?
+- [30:40.880] >> Well, all I can say is Todd Blanch is
+- [30:42.720] outstanding and I thought he's I thought
+- [30:45.919] it was pretty routine because he's so
+- [30:47.679] good. He's you just wouldn't find a
+- [30:49.279] better person. Uh, so I don't know.
+- [30:51.360] Maybe John Cornin's upset with me
+- [30:53.520] because I didn't endorse him. I don't
+- [30:54.880] know what it is, but uh I haven't heard
+- [30:56.960] that there's a problem. I heard he's
+- [30:58.960] going through quite nicely.
+- [31:00.399] >> And do you think Senate Majority Leader
+- [31:02.159] John Foon after the comments you heard
+- [31:04.000] regarding Save America and some other
+- [31:05.520] stuff, do you think he's still the man
+- [31:06.960] for the job?
+- [31:08.320] >> Well, we're going to find out and I'll
+- [31:09.840] let you know. Mr. Beautiful,
+- [31:12.399] >> it was a beautiful service yesterday for
+- [31:14.320] Senator Graham. Beautiful eulogy that
+- [31:15.919] you delivered. As far as Senator Darlene
+- [31:18.399] Graham is concerned, based upon your
+- [31:20.159] conversations, is she going to focus
+- [31:22.640] primarily on foreign affairs like her
+- [31:24.799] brother? Uh, or will she focus more on
+- [31:26.880] domestic issues?
+- [31:27.679] >> I think domestic really. I've spoken to
+- [31:29.600] her a lot and she's much more focused on
+- [31:32.000] domestic including costs and pricing.
+- [31:34.720] >> I think she'll I think she'll be
+- [31:35.919] outstanding.
+- [31:37.679] >> On Jay Clayton, uh, he was just
+- [31:39.600] confirmed by the Senate. He's great.
+- [31:41.279] Would you like to see him continue with
+- [31:42.640] Bill P's work exposing election?
+- [31:44.720] >> Oh, yeah, sure. I'm sure he will. Bill
+- [31:46.159] did a great job and Jay is uh just has
+- [31:49.200] just been confirmed and you know he's
+- [31:51.200] outstanding. He was a head of Solomon
+- [31:52.640] and Cromwell for many years and he's
+- [31:54.399] very outstanding and I think he's going
+- [31:56.159] to do a fantastic job and Bill was
+- [31:57.840] great. Yeah, please.
+- [31:58.480] >> Mr. President, in light of advanced chat
+- [32:00.240] GBT AI models escaping their lab and
+- [32:02.720] conducting cyber attacks, are you
+- [32:04.320] considering stronger controls on AI and
+- [32:07.120] would you consider negotiating?
+- [32:08.640] >> Well, we're looking at AI, we're looking
+- [32:09.919] at controls. We're also making sure that
+- [32:11.760] we lead. So, we're leading China in AI
+- [32:14.240] by a lot. China has virtually no
+- [32:16.640] controls. It's freewheeling a little
+- [32:19.120] bit. So we have to be careful in both
+- [32:22.000] ways. We don't want to restrict them
+- [32:23.440] where all of a sudden we come in second
+- [32:25.120] to China. Whoever wins with AI is going
+- [32:28.559] to win. That's how big it is. So it's
+- [32:30.480] bigger than the internet ever was. It's
+- [32:32.240] bigger than anything ever was. So I
+- [32:34.080] don't want to restrict I know many of
+- [32:35.440] these people. I don't want to restrict
+- [32:36.799] them from doing great work. Yeah.
+- [32:39.120] Under what scenario do you see Iran
+- [32:41.919] attacking US installations and personnel
+- [32:45.279] overseas and you withdraw or
+- [32:48.720] >> Oh, I don't see that. No, we're not. No,
+- [32:50.320] we're going to we're going to hit them
+- [32:51.600] very hard.
+- [32:52.880] >> I mean, I can actually say that because
+- [32:54.640] they're not there's very little they can
+- [32:56.240] do about it. Uh it was a different group
+- [32:58.960] than we're dealing with. They've already
+- [33:00.960] apologized,
+- [33:02.480] but you know, we got to smack them a
+- [33:04.559] little bit.
+- [33:05.600] >> Mr. President, hit back when they
+- [33:08.640] strike.
+- [33:09.519] >> Will I always hit back?
+- [33:10.720] >> Yes,
+- [33:11.039] >> pretty much. Mr.
+- [33:11.919] >> President, clarity on that, sir. Is that
+- [33:14.399] in response to uh the attempted
+- [33:17.120] ballistic missile [clears throat] strike
+- [33:18.559] uh on Jordan last night? When you say
+- [33:20.880] it's our turn to hit that?
+- [33:22.159] >> Yeah, I think more so that. Yeah,
+- [33:23.919] because it was another smaller event.
+- [33:26.080] But no, they sent five 8,000 mph
+- [33:28.640] missiles at us. And fortunately, we had
+- [33:31.519] our people operating the greatest
+- [33:33.039] equipment in the world, namely the
+- [33:34.480] Patriot system. Think of it. Five
+- [33:36.720] missiles going 8,600 miles an hour, big
+- [33:39.760] ones, coming right at us, and all five
+- [33:42.320] were shot down. How about that, right?
+- [33:44.720] Pretty good. Only Only We Nobody else
+- [33:47.200] could do that us. Yeah.
+- [33:48.320] >> Mr. How was your How was your meeting
+- [33:50.159] with President Vladimir Zalinski
+- [33:52.159] yesterday? Do you see a time scale for
+- [33:54.720] getting
+- [33:55.200] >> It was good. Look, you know, he's out
+- [33:56.399] doing his thing. I'd like him to end the
+- [33:58.000] war. So, it's very simple. Uh, I get
+- [34:00.640] along with both. I get along with
+- [34:02.799] President Putin. I get along with
+- [34:04.159] President Zilinski. Like I told him, I
+- [34:06.000] wanted end the war. Get the war ended.
+- [34:08.000] Thousands of people, 25,000 people died
+- [34:10.879] last month. That's standard and uh it's
+- [34:14.720] not acceptable. So, I said just end the
+- [34:16.960] war.
+- [34:17.280] >> Mr.
+- [34:18.879] Mr. President. Um, on the war, do you
+- [34:21.119] want the House to come back before
+- [34:22.800] August 31st to act on the Russia and
+- [34:25.119] Iran sanctions bill after its
+- [34:26.960] >> necessary? I mean, it shouldn't be
+- [34:28.159] necessary to be honest, but if it's
+- [34:30.159] necessary, I'd like to Are you talking
+- [34:32.000] about the Lindsey Graham?
+- [34:33.040] >> Yeah.
+- [34:33.599] >> So, I'd like them to add Iran as
+- [34:36.480] tariffs, not just as sanctions. I think
+- [34:39.119] it's important. That's what Lindsay
+- [34:40.560] wanted because I heard that they have
+- [34:43.040] tariffs on Russia, but not on those five
+- [34:45.839] countries with having to do with Iran.
+- [34:48.560] Uh, I'd like to see tariffs on Iran. It
+- [34:50.800] would make it much stronger. So perhaps
+- [34:53.200] you're very good at this. You can maybe
+- [34:54.800] tell them. I think they should put in
+- [34:56.560] for Russia, but I think they should put
+- [34:58.320] in for Iran. And that's really what
+- [35:00.320] Lindsay wanted. Yeah.
+- [35:01.359] >> And on one more, sir. Sorry.
+- [35:02.880] >> And good job at the dinner the other
+- [35:04.160] night.
+- [35:04.400] >> Thank you. Did a great job.
+- [35:05.359] >> Thank you. I appreciate that. Um,
+- [35:07.440] President Xi told you that um, China
+- [35:10.240] would not give or sell Iran any weapons.
+- [35:13.040] There's a new report that Iran's about
+- [35:14.960] to get 400 rocket launchers from China
+- [35:18.480] going through Pakistan to Iran.
+- [35:20.560] >> Well, that would be surprising. I mean,
+- [35:22.240] things like that happen, but that would
+- [35:24.240] be surprising. He told me very strongly
+- [35:26.160] he wouldn't partake. Uh, and he knows
+- [35:29.359] I'd be quite disappointed.
+- [35:31.280] >> Yeah, please.
+- [35:32.079] >> Mr. President,
+- [35:32.720] >> and he's coming here, I think, on
+- [35:33.920] September 24th.
+- [35:35.359] >> Um, two questions. First, we're coming
+- [35:37.200] up on the 25th anniversary of 911 and a
+- [35:40.000] good number of 911 families have called
+- [35:42.400] on New York Mayor Zoran Mambdani to not
+- [35:45.280] attend a number of these memorial
+- [35:47.520] services. What are your thoughts on
+- [35:49.200] that?
+- [35:49.520] >> Well, I think they're having a hard time
+- [35:50.960] with Mandami. Uh the people having to do
+- [35:54.000] with anybody having to do with 9/11
+- [35:56.240] right now on the victim side and there
+- [35:58.960] are a lot of them. They're very unhappy
+- [36:01.200] with what's going on in New York and
+- [36:02.800] they're very unhappy with the mayor. I
+- [36:04.400] understand that. Yeah, please. Thank
+- [36:05.920] you, Mr. President. Um, Senate
+- [36:07.760] Republicans are underway negotiating the
+- [36:09.599] budget. Would you sign a CR without the
+- [36:11.680] Save America Act detached? Is that
+- [36:13.040] something you want to see?
+- [36:13.760] >> I'll have to look at it, but they should
+- [36:15.200] get the Save America. How simple can it
+- [36:17.040] be? Voter identification, proof of
+- [36:20.000] citizenship. I mean, now you have to
+- [36:22.400] understand the the Democrats, not one
+- [36:24.720] Democrat will sign because they want to
+- [36:26.400] cheat. There's no way they can get
+- [36:28.160] elected if they don't if that happens.
+- [36:30.800] But we should have unanimous Republican
+- [36:32.800] support. And if we don't, people should
+- [36:34.400] look at those Republicans. But but think
+- [36:37.040] of it, who would not sign voter
+- [36:40.000] identification with photo? And who would
+- [36:42.880] not sign proof of citizenship?
+- [36:45.839] Only people that want to cheat. Thank
+- [36:47.680] you very much everybody. Thank you.
+- [36:49.839] Thank you.
+- [36:50.560] >> Thank you everybody.
+- [36:52.720] >> Thank you. Thank you.
+- [36:56.240] >> Go this way as well.
+- [36:57.119] >> Hey, thank you guys. We can head out
+- [36:58.480] this morning.

@@ -1,7 +1,10 @@
 # YouTube / WhiteHouse / 2026-07-29
 
-- Posts: 2
+- Posts: 3
 
+- [19:44 UTC - President Trump Makes an Announcement with the Secretary of Transportation](sCPQKhHlN9k/)
+  - Source: https://www.youtube.com/watch?v=sCPQKhHlN9k
+  - [00:04.319] Thank you very much everybody. This is - [00:06.160] very exciting to me as a builder, - [00:08.720] somebody that builds lots of big nice - [00:11.120] projects befo...
 - [17:58 UTC - President Trump Visits General Motors Plant, Michigan](evHwsRHerYA/)
   - Source: https://www.youtube.com/watch?v=evHwsRHerYA
   - [00:00.240] I'm honored to be the first sitting - [00:02.320] president to visit one of the most - [00:04.720] storied places in the history of - [00:06.400] American auto making...
