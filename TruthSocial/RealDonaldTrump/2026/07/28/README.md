@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-07-28
 
-- Posts: 44
+- Posts: 46
 
+- [23:51 UTC - Congratulations to the Great Jay Clayton on his confirmation by the United States Senate, ...](117000284640096040/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117000284640096040
+  - Congratulations to the Great Jay Clayton on his confirmation by the United States Senate, to be the next Director of National Intelligence. Jay is outstanding in every way, and wil...
+- [23:50 UTC - THE MASSIE MASSACRE in the Great Commonwealth of Kentucky has had a really great impact on...](117000281218088963/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117000281218088963
+  - THE MASSIE MASSACRE in the Great Commonwealth of Kentucky has had a really great impact on Senator Rand Paul who will be running in two years. He’s been terrific, lately! President...
 - [17:30 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) We’re going to bring this...](116998787858683666/)
   - Source: https://truthsocial.com/@realDonaldTrump/116998787858683666
   - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) We’re going to bring this heroic young man, and his family, into the White House with, perhaps, the boy he saved, t...

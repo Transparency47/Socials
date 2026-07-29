@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=nhaI58kiwrI: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=nhaI58kiwrI! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=nhaI58kiwrI: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=nhaI58kiwrI! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -128791,6 +128791,72 @@
       "published": "2026-07-28T17:30:24.504000+00:00",
       "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) We\u2019re going to bring this...",
       "url": "https://truthsocial.com/@realDonaldTrump/116998787858683666"
+    },
+    "truthsocial:realdonaldtrump:117000281218088963": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-29T01:08:06.280489+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/28/117000281218088963",
+      "platform": "truthsocial",
+      "post_id": "117000281218088963",
+      "published": "2026-07-28T23:50:11.360000+00:00",
+      "title": "THE MASSIE MASSACRE in the Great Commonwealth of Kentucky has had a really great impact on...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117000281218088963"
+    },
+    "truthsocial:realdonaldtrump:117000284640096040": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-29T01:08:06.280186+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/28/117000284640096040",
+      "platform": "truthsocial",
+      "post_id": "117000284640096040",
+      "published": "2026-07-28T23:51:03.578000+00:00",
+      "title": "Congratulations to the Great Jay Clayton on his confirmation by the United States Senate, ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117000284640096040"
+    },
+    "truthsocial:realdonaldtrump:117000461200836192": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-29T01:08:06.279860+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/29/117000461200836192",
+      "platform": "truthsocial",
+      "post_id": "117000461200836192",
+      "published": "2026-07-29T00:35:57.679000+00:00",
+      "title": "Fauci told everyone he was a great basketball player, so I assumed that he would be easily...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117000461200836192"
+    },
+    "truthsocial:realdonaldtrump:117000535893705645": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-29T01:08:06.279537+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/29/117000535893705645",
+      "platform": "truthsocial",
+      "post_id": "117000535893705645",
+      "published": "2026-07-29T00:54:57.403000+00:00",
+      "title": "Great Honor to meet with President Zelenskyy of Ukraine. Many things were discussed. The m...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117000535893705645"
+    },
+    "truthsocial:realdonaldtrump:117000544407681188": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-29T01:08:06.279232+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/29/117000544407681188",
+      "platform": "truthsocial",
+      "post_id": "117000544407681188",
+      "published": "2026-07-29T00:57:07.316000+00:00",
+      "title": "Prime Minister Bibi Netanyahu of Israel, along with myself and Representatives. Had a very...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117000544407681188"
+    },
+    "truthsocial:realdonaldtrump:117000553480023765": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-29T01:08:06.278870+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/29/117000553480023765",
+      "platform": "truthsocial",
+      "post_id": "117000553480023765",
+      "published": "2026-07-29T00:59:25.751000+00:00",
+      "title": "It is my Great Honor to endorse Amir Hassan, who is running to represent the fantastic peo...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117000553480023765"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
