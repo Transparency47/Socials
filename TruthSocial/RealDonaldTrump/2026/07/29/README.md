@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-29
 
-- Posts: 6
+- Posts: 7
 
+- [17:03 UTC - Truth Social post 117004345604552506](117004345604552506/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117004345604552506
+  - _No text content captured._
 - [11:46 UTC - Many more people died of Covid under the Biden Administration than under the Trump Adminis...](117003098657536803/)
   - Source: https://truthsocial.com/@realDonaldTrump/117003098657536803
   - Many more people died of Covid under the Biden Administration than under the Trump Administration. “Operation Warp Speed” was a SPECTACULAR SUCCESS, in fact, many say, one of the m...

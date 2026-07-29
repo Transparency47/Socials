@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=xGEDhJk0Q4U: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=xGEDhJk0Q4U! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=xGEDhJk0Q4U&ei=piVqat-ID_DN0_wP6p3L0Aw&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1785366550&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=1517A9D3E1152358E5D75785DDBAA6BA16E63DED.0B0E9D5545764D4953AB78DA98899C33FEA9E39D&key=yt8&kind=asr&lang=en&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=nhaI58kiwrI: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=nhaI58kiwrI! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -10794,6 +10794,17 @@
       "published": "2026-07-29T02:58:32+00:00",
       "title": "Finish the fight.",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7667778881209830669"
+    },
+    "tiktok:whitehouse:7667993067000974605": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-07-29T17:36:39.950525+00:00",
+      "path": "TikTok/WhiteHouse/2026/07/29/7667993067000974605",
+      "platform": "tiktok",
+      "post_id": "7667993067000974605",
+      "published": "2026-07-29T16:49:44+00:00",
+      "title": "Fauci lied.",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7667993067000974605"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -128891,6 +128902,17 @@
       "title": "Many more people died of Covid under the Biden Administration than under the Trump Adminis...",
       "url": "https://truthsocial.com/@realDonaldTrump/117003098657536803"
     },
+    "truthsocial:realdonaldtrump:117004345604552506": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-29T17:36:28.182814+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/29/117004345604552506",
+      "platform": "truthsocial",
+      "post_id": "117004345604552506",
+      "published": "2026-07-29T17:03:48.979000+00:00",
+      "title": "Truth Social post 117004345604552506",
+      "url": "https://truthsocial.com/@realDonaldTrump/117004345604552506"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -188169,6 +188191,17 @@
       "published": "2026-04-06T18:37:42+00:00",
       "title": "President Trump Holds a Press Conference, Apr. 6, 2026",
       "url": "https://www.youtube.com/watch?v=xFO-SY9ykdA"
+    },
+    "youtube:whitehouse:xGEDhJk0Q4U": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-29T17:36:42.706274+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/29/xGEDhJk0Q4U",
+      "platform": "youtube",
+      "post_id": "xGEDhJk0Q4U",
+      "published": "2026-07-29T12:17:35+00:00",
+      "title": "Vice President JD Vance Delivers Remarks at Congressional Tribute to the Honorable Lindsey Graham",
+      "url": "https://www.youtube.com/watch?v=xGEDhJk0Q4U"
     },
     "youtube:whitehouse:xHhlrvRwGt8": {
       "account": "WhiteHouse",

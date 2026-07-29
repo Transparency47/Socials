@@ -1,0 +1,720 @@
+<!-- source: https://www.youtube.com/watch?v=xGEDhJk0Q4U -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: xGEDhJk0Q4U -->
+<!-- date_published: 2026-07-29T12:17:35+00:00 -->
+<!-- date_accessed: 2026-07-29T17:36:42.706274+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks at Congressional Tribute to the Honorable Lindsey Graham
+
+- [04:00.000] Would
+- [04:05.519] you pray with me?
+- [04:09.920] God of the ages, it is your almighty
+- [04:12.239] hand that guides our lives and directs
+- [04:15.280] our steps.
+- [04:17.600] Often it takes the suddeness of death to
+- [04:20.079] see how your divine love shapes and
+- [04:23.040] leads each one of us on life's journey.
+- [04:26.880] And in these moments of mourning, we
+- [04:29.840] necessarily take the time to give thanks
+- [04:32.800] for those whose lives have left a
+- [04:34.800] lasting and significant impact on us and
+- [04:38.880] on so many along the way.
+- [04:42.080] We invite your divine presence with us
+- [04:44.240] in this ceremony that you would bless
+- [04:46.880] our efforts to honor appropriately the
+- [04:49.600] influence and effect Senator Lindsey
+- [04:51.840] Graham has had on each one gathered here
+- [04:55.520] and on this country and on the world.
+- [04:59.759] Give us eyes to see how you led a boy
+- [05:01.840] from central South Carolina
+- [05:04.720] through a life marked by personal
+- [05:06.560] hardship
+- [05:08.560] and legendary public service,
+- [05:11.520] placing upon him the mantle of
+- [05:13.280] leadership that Lindsey Graham bore
+- [05:14.960] faithfully and courageously for decades
+- [05:18.400] in service to this nation as airman,
+- [05:21.360] congressman, and senator.
+- [05:24.720] It was you, oh Lord, who brought him
+- [05:26.400] through adversity, shaping within him an
+- [05:29.199] enduring sense of responsibility.
+- [05:32.320] It was you who throughout his noteworthy
+- [05:34.720] career equipped him with his assertive
+- [05:37.039] spirit, a force to be reckoned with,
+- [05:40.639] while also instilling in him a pragmatic
+- [05:43.120] determination to get things done, even
+- [05:46.720] when it required negotiating with the
+- [05:49.039] other side.
+- [05:51.120] It was you who emboldened him with both
+- [05:53.680] courage and grace, so that while many
+- [05:57.360] would know no tougher adversary,
+- [06:00.400] most would realize no better friend.
+- [06:04.160] And now, as this patriot rests from his
+- [06:06.479] labors and stands before you, may
+- [06:09.919] Lindsey Graham hear your own well done,
+- [06:12.960] good and faithful servant. It is in your
+- [06:16.639] eternal name we pray. Amen.
+- [06:31.919] Please be seated.
+- [06:44.960] Senator Darlene Graham, members of the
+- [06:48.080] Graham family, Vice President Vance,
+- [06:52.080] Majority Leader Thun, and other
+- [06:54.960] distinguished guests.
+- [06:57.680] I'm incredibly honored to offer on
+- [07:00.400] behalf of the people of South Carolina
+- [07:03.360] our immeasurable gratitude for the
+- [07:06.400] statesman and even better friend Senator
+- [07:09.840] Lindsey Graham.
+- [07:12.560] When people talk about Lindsey Graham,
+- [07:14.720] they often talk about the titles he has
+- [07:17.039] held. The congressman, the senator, the
+- [07:21.840] chairman, the colonel.
+- [07:24.960] But titles only tell a small part of the
+- [07:27.919] story.
+- [07:29.440] To truly understand Lindsay, you have to
+- [07:32.479] understand his deep love for South
+- [07:35.280] Carolina and his family and his belief
+- [07:38.880] that public service is a responsibility,
+- [07:42.880] not simply a position.
+- [07:46.319] To say he loved South Carolina is an
+- [07:49.120] understatement.
+- [07:50.800] He loved every every city in our small
+- [07:55.360] but very powerful state
+- [07:58.240] and he always carried South Carolina
+- [08:00.800] traditions with him.
+- [08:03.199] He understood the people of our state,
+- [08:06.639] our independence,
+- [08:08.479] our values, our willingness to work
+- [08:11.520] hard, and our desire for leaders who
+- [08:14.879] will stand up for what they believe is
+- [08:16.879] right.
+- [08:18.800] Whether walking the streets of his
+- [08:20.639] hometown,
+- [08:22.160] meeting with locals, or representing
+- [08:25.039] South Carolina on the world stage, he
+- [08:28.000] never forgot where he came from.
+- [08:31.440] Like most South Carolinian South
+- [08:33.680] Carolinians, family meant everything to
+- [08:36.399] Lindsay. It drove his passion for
+- [08:39.839] service. It drove his fight for policy.
+- [08:44.480] and it kept him grounded.
+- [08:47.600] Here in Washington, a town where many
+- [08:50.399] lose sight of who sent them here and why
+- [08:53.519] they're here at all, Lindsay never
+- [08:56.000] forgot where he came from or who he was
+- [08:58.880] here to serve.
+- [09:02.080] What made Lindsay exceptional was his
+- [09:04.640] ability to work on difficult issues
+- [09:07.440] while maintaining personal relationships
+- [09:10.080] with people who disagreed with him. He
+- [09:13.440] believed that conversations mattered. He
+- [09:16.480] believed that showing up mattered.
+- [09:19.600] And he believed that leadership meant
+- [09:22.000] finding a way forward even when the path
+- [09:25.200] was complicated.
+- [09:28.640] And he he was also very good at
+- [09:30.560] outsmarting the trolls, the armchair
+- [09:33.600] critics, and the keyboard warriors.
+- [09:38.720] Everyone can recount stories of
+- [09:40.640] Lindsay's quick wit, his unforgettable
+- [09:43.839] sense of humor, and his ability to make
+- [09:46.399] people laugh when you least expected it.
+- [09:50.000] He was authentic. He never tried to be
+- [09:52.720] someone he wasn't.
+- [09:55.839] A legacy is not built only through
+- [09:58.320] votes, legislation, or headlines.
+- [10:02.560] A legacy is built through the lives
+- [10:04.640] touched, the relationships formed, and
+- [10:08.000] the focused mission to make a difference
+- [10:10.399] over time.
+- [10:13.040] Lindsey Graham's legacy is one of
+- [10:15.360] service to South Carolina, to our
+- [10:19.040] nation, and to the cause of making the
+- [10:22.000] world a safer and better place.
+- [10:25.600] He spent his life standing for something
+- [10:27.839] larger than himself. And that commitment
+- [10:30.880] will continue to be remembered by those
+- [10:32.959] who had the privilege of knowing him and
+- [10:35.839] by generations who will benefit from his
+- [10:38.320] service.
+- [10:40.560] Perhaps what I'll remember most was his
+- [10:43.120] love for our military.
+- [10:45.920] Lindsay proudly served for 33 years in
+- [10:48.640] the United States Air Force, retiring as
+- [10:51.120] a colonel. He deeply understood the
+- [10:54.320] sacrifices made by the men and women who
+- [10:58.000] wear our nation's uniform because he
+- [11:00.160] wore it himself.
+- [11:02.880] I am the congresswoman for the upstate
+- [11:05.440] and a lieutenant colonel for the South
+- [11:07.440] Carolina Air National Guard. But Lindsay
+- [11:10.959] never missed an opportunity to remind me
+- [11:13.920] that he outranked me not only in service
+- [11:18.079] but also in his office in the upper
+- [11:20.480] chamber.
+- [11:22.640] And you know what? He had earned that
+- [11:25.040] right.
+- [11:26.800] He loved our service members. He loved
+- [11:29.600] our veterans. And he never stopped
+- [11:32.240] fighting for him.
+- [11:34.640] Just last week, I received a call from a
+- [11:37.680] friend that I had served with. He was a
+- [11:40.480] colonel, a pilot. He told me years ago
+- [11:44.160] he was on an aircraft and Senator Graham
+- [11:47.120] happened to be on that plane.
+- [11:49.920] He said he thought he never would get
+- [11:51.600] him out of the cockpit because he was
+- [11:54.079] right in the middle almost the entire
+- [11:56.000] flight talking to the pilots and
+- [11:58.880] learning more about them.
+- [12:02.079] That's just who Lindsay was. He wanted
+- [12:04.640] to be right there alongside our fighters
+- [12:07.279] and our veterans. I was proud to call
+- [12:10.160] Lindsey Graham my constituent and
+- [12:12.800] honored to have called him my friend.
+- [12:17.120] Service is not celebrity nor comfort.
+- [12:20.639] And public service is never accomplished
+- [12:23.519] by one person alone. Every member knows
+- [12:27.200] it takes a team. And he built one of the
+- [12:30.160] best teams who faithfully served
+- [12:32.959] alongside him.
+- [12:36.720] To every member of his Senate staff,
+- [12:40.000] both past and present,
+- [12:42.800] thank you for your service. to Lindsay,
+- [12:46.480] to South Carolina,
+- [12:48.560] and the United States of America.
+- [12:51.519] Your professionalism,
+- [12:53.600] your loyalty, and your sacrifice, and
+- [12:57.200] your loss is recognized.
+- [13:01.200] Having served under the Department of
+- [13:03.040] the Air Force, Lindsay and I both knew
+- [13:05.360] the Airman's Creed, which partly reads,
+- [13:08.399] "My mission is to fly, fight, and win.
+- [13:13.120] I am faithful to a proud heritage, a
+- [13:16.560] tradition of honor, and a legacy of
+- [13:19.200] valor.
+- [13:21.040] Those words describe Lindsey Graham's
+- [13:23.120] life through triumph and hardship,
+- [13:27.040] victory and criticism, a legacy of
+- [13:30.560] service.
+- [13:33.040] I remember so well one of my last joint
+- [13:35.519] events with Senator Graham.
+- [13:38.399] We shared a stage together at a church
+- [13:40.880] in our district to discuss our shared
+- [13:43.120] support for the people of Israel and to
+- [13:46.399] talk about our faith. Those were two
+- [13:48.880] topics that were very important to both
+- [13:50.800] of us.
+- [13:54.000] Sinister Graham's death was unexpected.
+- [13:58.320] He had a full schedule.
+- [14:00.800] He had plans.
+- [14:03.680] And in this time of mourning, we're
+- [14:05.839] reminded of God's comfort and that his
+- [14:09.199] plan is perfect.
+- [14:12.079] None of us know when it's our time, but
+- [14:16.000] we're reminded that our only eternal
+- [14:19.040] hope is found in our savior.
+- [14:23.519] As the Bible reads in the book of Romans
+- [14:27.279] chapter 10 verse 13,
+- [14:30.079] for whosoever shall call upon the name
+- [14:32.000] of the Lord shall be saved.
+- [14:37.199] To the Graham family, may God bless you
+- [14:40.240] and keep you. And may God continue to
+- [14:43.920] show each of us the grace that we do not
+- [14:47.040] deserve.
+- [15:17.360] Mr. Vice President, Darlene, Senator
+- [15:20.160] Graham, Larry,
+- [15:23.199] members of the Graham family. Ladies and
+- [15:24.959] gentlemen, good morning. It's difficult
+- [15:27.680] to believe that we're here today to say
+- [15:29.279] a final farewell to Lindsay as he leaves
+- [15:31.199] the Capitol for the last time.
+- [15:33.839] My heart is heavy. I feel his absence
+- [15:36.639] every day and I know so many of my
+- [15:38.320] colleagues do as well.
+- [15:40.959] Senators on both sides of the aisle
+- [15:43.360] counted him as a friend and Republicans
+- [15:46.959] and Democrats alike, including the
+- [15:48.560] Democrat leader, are here to say
+- [15:50.880] farewell.
+- [15:52.959] Lindseay was a towering figure here in
+- [15:55.199] the Senate
+- [15:57.199] and on the international stage. His
+- [16:00.000] leadership on national security and on
+- [16:03.600] our national defense is well known.
+- [16:06.800] I travel with Lindsay all over the world
+- [16:08.480] as part of congressional delegations and
+- [16:10.240] I saw firsthand just how much he was
+- [16:14.399] respected by our allies and just how
+- [16:16.959] well he was able to connect with foreign
+- [16:19.279] leaders around the globe.
+- [16:22.800] Striking too was the instant connection
+- [16:24.959] he had with the military men and women
+- [16:28.720] that we met.
+- [16:30.720] They recognized him immediately as one
+- [16:32.399] of their own.
+- [16:34.399] Lindsay's work on these issues would be
+- [16:36.240] enough to cement his place as a leader
+- [16:39.120] in the Senate.
+- [16:41.440] But he was a leader on many other
+- [16:44.160] issues, too. As chairman of the Senate
+- [16:47.040] Judiciary Committee in the 116th
+- [16:48.880] Congress, he fought tirelessly
+- [16:51.199] to advance well-qualified judges.
+- [16:54.560] He was serving as chair of the budget
+- [16:56.000] committee at the time of his death and
+- [16:57.600] was responsible for getting important
+- [16:59.759] tax relief legislation to the floor.
+- [17:03.279] And no tribute to Lindseay's work is
+- [17:07.039] complete without mentioning that he was
+- [17:08.720] a powerful voice for the pro-life
+- [17:11.760] movement. Until my last breath, I will
+- [17:15.439] be fighting for this cause, he said.
+- [17:19.039] And he was.
+- [17:21.439] He was a fierce defender of Ukraine.
+- [17:24.880] He was a fierce defender of the unborn.
+- [17:29.039] And on the surface, these might seem
+- [17:30.799] like two completely separate issues.
+- [17:35.360] But it strikes me that in another way,
+- [17:37.120] they are both of a piece.
+- [17:39.919] In both cases,
+- [17:42.000] Lindsey Graham saw injustice
+- [17:44.720] and he spoke up
+- [17:47.120] and was as typical of Lindsay, he spoke
+- [17:50.640] up fearlessly.
+- [17:52.880] "I don't apologize for being pro-life,"
+- [17:55.120] he said in an interview in 2022
+- [17:58.000] and probably on a number of other
+- [17:59.600] occasions.
+- [18:01.360] It didn't matter to Lindsay whether an
+- [18:02.799] issue was popular or unpopular.
+- [18:06.480] Whether he had the full support of his
+- [18:08.000] colleagues or whether he was standing
+- [18:09.200] alone,
+- [18:11.919] if he if he believed he was in the
+- [18:13.600] right, he spoke up.
+- [18:17.679] He told things the way he saw them
+- [18:20.480] and he didn't mince words.
+- [18:23.600] But lest anyone think it was all work
+- [18:26.480] and no levity with Lindsay,
+- [18:29.280] let me just say that there was no one no
+- [18:32.880] one who took his job more seriously than
+- [18:35.600] Lindsey Graham.
+- [18:38.960] But also no one was more capable of
+- [18:42.000] cracking up a room.
+- [18:45.039] During the work week here in Washington,
+- [18:46.720] a lot of us are away from our family, so
+- [18:49.520] we often get together in groups for
+- [18:51.360] dinner.
+- [18:53.200] And let me tell you, Lindsay was always
+- [18:55.840] the first call.
+- [18:58.080] The conversation and the laughs always
+- [19:00.799] flowed at any meal where Lindsey Graham
+- [19:03.679] was present.
+- [19:06.320] He was entertain entertaining always
+- [19:10.480] and pretentious never.
+- [19:14.480] There are a lot of so-called self-made
+- [19:16.480] people in the world, he once said. I'm
+- [19:19.280] not one of them.
+- [19:21.600] My family, friends, neighbors, and my
+- [19:23.600] faith picked me up when I was down.
+- [19:26.559] Believed in me when I had doubts.
+- [19:29.840] You made me
+- [19:32.000] the man I am today, he said.
+- [19:37.120] Ladies and gentlemen, Lindsay will be
+- [19:38.640] remembered
+- [19:40.240] as a senator
+- [19:42.320] and as a statesman,
+- [19:44.720] but for me most of all, I will remember
+- [19:46.640] him as my friend.
+- [19:48.720] It's hard to think that there will be no
+- [19:51.200] more Senate dinners with Lindsay,
+- [19:54.080] that he won't be dropping by my office
+- [19:56.000] to discuss some piece of legislation or
+- [19:59.120] make me laugh with his witty commentary.
+- [20:02.960] But I cling to the same faith that
+- [20:04.400] Lindsay had, to the sure and certain
+- [20:08.400] hope of the resurrection
+- [20:11.919] and the knowledge that death is not the
+- [20:13.520] end.
+- [20:15.600] I am the resurrection and the life, says
+- [20:17.280] the Lord.
+- [20:19.520] The one who believes in me will live
+- [20:22.000] even though they die.
+- [20:24.240] And whoever lives by believing in me
+- [20:27.200] will never die.
+- [20:30.000] To Darlene and the Graham family,
+- [20:32.880] to Lindsay's beloved staff members,
+- [20:37.360] be assured of the prayers of my wife
+- [20:41.520] Kimberly and I
+- [20:43.600] and the prayers
+- [20:45.679] of so many in this room.
+- [20:49.440] And to Lindsay,
+- [20:52.000] rest in peace, my friend.
+- [20:59.840] I look forward to the days
+- [21:04.640] when you make us all laugh again.
+- [21:23.120] Well, first to Darlene and to the Graham
+- [21:26.559] family, all of you. I know you loved
+- [21:28.799] Lindsay and were proud of him and he was
+- [21:30.720] proud of you and I'm very, very sorry.
+- [21:33.120] It's good to see you all here among his
+- [21:35.200] friends and his colleagues. And I also,
+- [21:37.039] of course, have to issue my condolences
+- [21:38.720] to them. I know so many of you loved
+- [21:40.799] Lindsay like I did. So many of you
+- [21:43.280] argued with Lindsay, laughed with
+- [21:44.880] Lindsay, relied on Lindsay, and I also,
+- [21:47.520] of course, want to give condolences to a
+- [21:50.400] group of people you sometimes don't hear
+- [21:52.159] as often mentioned in the same breath,
+- [21:54.480] but I know who loved him, which is his
+- [21:56.000] staff. I know all of you worked for him
+- [21:57.760] for a long time. Many of you worked for
+- [21:59.440] him for longer than you know, I've been
+- [22:01.919] in public service certainly longer. Some
+- [22:04.240] of you even than I've been graduated
+- [22:06.159] from high school. Don't mean to age any
+- [22:08.000] of you, but what a testament to a man
+- [22:11.200] that he has so much loyal and devoted
+- [22:14.080] staff. And I think that's the first
+- [22:16.159] thing I want to tell about Lindsey
+- [22:18.080] Graham. I want to tell some stories, but
+- [22:20.240] I also want to make an observation,
+- [22:22.960] which is that Lindsey Graham loved
+- [22:25.200] people from all walks of life. I think
+- [22:28.159] in part because of the way that he grew
+- [22:29.840] up, because of the fact that he wasn't
+- [22:31.840] handed everything,
+- [22:33.840] he was fascinated in everybody. He was a
+- [22:36.720] fascinated in the weight staff in the
+- [22:39.679] Senate dining room. He was fascinated in
+- [22:41.520] the people who made the food. He was
+- [22:43.120] fascinated in the lowest staffer who had
+- [22:46.400] been hired three days earlier. He was
+- [22:48.159] fascinated by, of course, the very
+- [22:50.720] leadership of our country. And I think
+- [22:52.720] he was fascinated in people because he
+- [22:55.280] loved people and he was interested in
+- [22:57.280] them. He was the kind of guy who would
+- [22:59.440] walk into the Senate. And when he walked
+- [23:01.200] into the Senate, this was a guy who
+- [23:03.360] couldn't have stood more than 5 foot six
+- [23:05.520] or 5 foot seven, but he'd swashbuckle in
+- [23:08.400] with his jacket open like he was 6'5. He
+- [23:11.280] had an attitude to him, and it's one of
+- [23:13.840] the reasons why Lindsey Graham was
+- [23:15.520] Lindsey Graham. But he would walk into
+- [23:17.679] the United States Senate and he would he
+- [23:19.840] would slap you on the back. He would
+- [23:21.360] greet the person who served his food. He
+- [23:23.440] treated everybody the same because he
+- [23:25.919] was fascinated and he loved every single
+- [23:28.480] person in this chamber. And that's a
+- [23:30.640] great testament to the man. You know, I
+- [23:33.360] first got to know Lindsey Graham when I
+- [23:36.240] was on the Senate campaign trail for my
+- [23:38.400] own Senate race in 2022. And I remember
+- [23:41.679] riding in the back of the car with him.
+- [23:43.200] You know, the during these campaigns,
+- [23:44.720] you go from one event to the next and to
+- [23:46.880] the next event. And I remember learning
+- [23:48.880] a lot from him. I had a lot of people
+- [23:50.720] who campaigned with me during that time.
+- [23:53.039] But I learned something from Lindsey
+- [23:55.120] Graham. the way that he interacted with
+- [23:56.799] people, the way that he was so
+- [23:58.480] interested in what was going on and what
+- [24:00.480] was moving people and what was
+- [24:02.080] motivating them and what they were
+- [24:03.600] interested in. That affection and love
+- [24:05.760] of people was obvious even on the
+- [24:08.080] campaign trail, but so too was Lindsey
+- [24:11.520] Graham's worldclass sense of humor. And
+- [24:14.799] in one event in particular, we had just
+- [24:16.799] left one event. We were riding in the
+- [24:18.400] back of the car going to the next event.
+- [24:20.400] Lindsey Graham told me a story about his
+- [24:23.279] time in the house. And if I repeated
+- [24:26.320] exactly what he told me, Darlene, it
+- [24:28.640] would be the end of my political career
+- [24:30.480] forever. But what I can say is that I
+- [24:33.039] was laughing so hard that by the time we
+- [24:35.520] got to the next event, I had abdominal
+- [24:37.440] cramps and I was barely able to speak
+- [24:39.840] because Lindsey Graham could make
+- [24:42.000] anybody laugh and he could make anybody
+- [24:44.640] feel at home. I was talking to, you
+- [24:46.880] know, a mutual friend of ours, a person
+- [24:48.799] who didn't always agree with Lindsey
+- [24:50.400] Graham's politics just shortly after his
+- [24:52.960] death, and I expected the person maybe
+- [24:55.279] to say something critical, but he said,
+- [24:56.880] "You know what? Even though we sometimes
+- [24:58.640] disagreed, I loved Lindsey Graham. It
+- [25:02.159] was impossible not to like him." That
+- [25:04.640] swashbuckling, infectious laugh, that
+- [25:07.679] attitude, that passion that so many
+- [25:10.320] others have talked about. Lindsey Graham
+- [25:12.159] was impossible not to like as a human
+- [25:15.279] being and of course as a United States
+- [25:17.840] senator.
+- [25:19.760] You know, I remember on that campaign
+- [25:21.840] trail where, you know, you're trying to
+- [25:23.679] raise money and one of the ways that you
+- [25:26.080] raise money is you send people to your
+- [25:28.400] campaign website and I said, Lindsay,
+- [25:31.279] before one of these Fox hits on the
+- [25:34.080] campaign trail, I said, Lindsay, could
+- [25:36.480] you maybe mention the website
+- [25:38.240] jdvance.com?
+- [25:40.480] And over a four-minute interview, he
+- [25:42.640] must have mentioned jdvance.com close to
+- [25:45.120] a dozen times. The host would ask, "How
+- [25:48.159] was the weather?" And Lindsay would say,
+- [25:49.919] "Well, before I check the weather, I
+- [25:51.520] always go to jdvance.com."
+- [25:55.840] And in a four or five minute TV
+- [25:58.000] appearance, Lindsey Graham raised us
+- [25:59.840] over $100,000.
+- [26:02.240] And that campaign stop was a critical
+- [26:04.880] part of me getting elected to the United
+- [26:07.120] States Senate and of course going on
+- [26:08.720] this incredible journey. That was who
+- [26:10.799] Lindsey Graham was. I remember once I
+- [26:13.919] got to the Senate getting in this
+- [26:16.159] argument with Lindsay and as John said,
+- [26:18.480] as as leader Thun said, he was a fierce
+- [26:20.799] defender of Ukraine. And he and I got
+- [26:22.720] into this intense argument at a Senate
+- [26:25.279] lunch. I think some of our colleagues
+- [26:26.720] probably remember this about a funding
+- [26:28.799] bill for Ukraine. And I remember at the
+- [26:31.200] end of it going back to my staff and I
+- [26:33.679] was at the time working on a rail
+- [26:36.080] legislation that I really really cared
+- [26:38.240] about. And I remember going back to my
+- [26:40.080] staff and saying, "Well, that's probably
+- [26:42.000] the end of Lindsay's vote on the railway
+- [26:44.400] bill because he is never going to
+- [26:46.559] support anything I support after the
+- [26:48.720] argument that he and I just had." And of
+- [26:51.679] course, I found out a couple of weeks
+- [26:53.440] later from another Senate colleague that
+- [26:55.679] the fiercest advocate of that bill
+- [26:57.679] behind the scenes was Senator Lindsey
+- [27:00.080] Graham. Now, Lindsay was who he was. And
+- [27:04.159] I knew that Lindsay couldn't even
+- [27:06.080] pretend to care about rail policy. It
+- [27:08.480] was something I really cared about, but
+- [27:10.240] it wasn't something Lindsay was
+- [27:11.679] particularly focused on. And so, I went
+- [27:13.919] to Lindsay and I said, "Why are you
+- [27:16.080] helping me? Why are you helping this
+- [27:18.320] legislation?" And I expected him to do
+- [27:20.559] what so many politicians would do. I
+- [27:22.480] expected him to lie and say, "Well, I
+- [27:26.000] really care about rail legislation." And
+- [27:28.320] he said, "Oh, I don't care about that at
+- [27:30.320] all." I said, "Why are you helping me?"
+- [27:33.039] And he said, "Well, I don't care about
+- [27:34.320] it, but you do." And that was the kind
+- [27:37.200] of colleague he could be. person you
+- [27:39.039] argued with and fought with in one
+- [27:41.120] minute but behind the scenes without
+- [27:43.200] collecting an ounce of credit was
+- [27:46.320] working for you and working for the
+- [27:48.400] things that you cared about in the next.
+- [27:50.960] That was who Lindsey Graham was.
+- [27:54.799] You know, before I knew Lindsay,
+- [27:58.240] one of the most enduring parts of his
+- [28:00.399] legacy is I I do believe that Justice
+- [28:03.840] Kavanaaugh would not be on the Supreme
+- [28:05.760] Court were it not for his fierce
+- [28:08.000] advocacy during a critical moment.
+- [28:10.240] Remember that Senate confirmation
+- [28:11.760] hearing where Lindsay, and by the way,
+- [28:14.880] he got criticism from the Republican
+- [28:17.360] side of the aisle for this. He would
+- [28:18.880] always vote for qualified Democrat
+- [28:21.200] judicial nominations. He came to the
+- [28:23.279] judicial nomination process in a spirit
+- [28:26.159] of bipartisanship. Again, he was
+- [28:27.840] criticized sometimes from our side of
+- [28:30.159] the aisle for that. But what he saw
+- [28:32.399] happening to Kavanaaugh was not a policy
+- [28:34.960] disagreement. It was character
+- [28:36.880] assassination. And Lindsay got as fiery
+- [28:39.919] and as passionate as I have ever seen a
+- [28:42.480] human being get during a judicial
+- [28:44.320] confirmation. And I believe that he
+- [28:46.320] saved that nomination.
+- [28:48.640] Now, that moment of course went viral.
+- [28:51.039] But Lindsay didn't do it for social
+- [28:52.640] media clicks. He did it to do something
+- [28:55.679] at the very highest part of the Senate,
+- [28:59.200] which was to persuade his colleagues.
+- [29:01.840] And persuade his colleagues. He did. I
+- [29:04.240] remember there were a few people who
+- [29:05.760] were waffling at that moment, a few
+- [29:07.520] people who were unsure what they were
+- [29:09.279] going to do. Lindsay didn't just earn a
+- [29:11.760] lot of headlines.
+- [29:13.520] He actually persuaded people. And that
+- [29:16.640] maybe is how I will choose most to
+- [29:19.760] remember my friend Lindsey Graham.
+- [29:23.919] He saw that the Senate at its very worst
+- [29:26.960] could be a venue for character
+- [29:28.720] assassination.
+- [29:30.559] But because he loved people, he saw that
+- [29:33.200] the Senate at its very best could be a
+- [29:36.000] deliberative body geared towards
+- [29:38.559] persuading people.
+- [29:41.039] And that's what Lindsey Graham did in
+- [29:43.039] that case and in so many others. So I
+- [29:46.720] choose to remember Lindsey Graham as a
+- [29:48.960] man who could disagree with you without
+- [29:51.440] being disagreeable. I choose to remember
+- [29:54.080] Lindsey Graham as a person who could
+- [29:56.399] fight with you on one issue but fight
+- [29:59.039] for you on another issue. I remember
+- [30:02.399] Lindsey Graham as a man who loved
+- [30:04.720] people. And because he loved people, he
+- [30:07.919] was willing to reason with them, to
+- [30:10.159] respect them, and ultimately to persuade
+- [30:14.159] them.
+- [30:16.799] May God comfort all of those who loved
+- [30:20.159] Lindsey Graham, particularly his
+- [30:22.159] beautiful family.
+- [30:24.240] And may God rest the soul of Senator
+- [30:26.720] Lindsey Graham, a true American
+- [30:28.640] original.
+- [30:42.320] Lord God, [singing]
+- [30:45.760] the ones [music]
+- [30:47.760] who fly [singing]
+- [30:50.880] through the great spacees [music]
+- [30:53.671] [singing]
+- [30:55.200] of the sky.
+- [31:00.159] Be [singing] with and [music]
+- [31:04.000] see
+- [31:05.679] the air
+- [31:08.736] [singing] in our new storms
+- [31:12.480] or [music] sunshine
+- [31:15.679] fair.
+- [31:19.520] The [singing] Lord keep
+- [31:25.766] [music]
+- [31:27.520] our heart. [singing]
+- [31:31.006] [music]
+- [31:37.440] How of the temper
+- [31:41.200] winds
+- [31:42.796] [singing] be near
+- [31:45.840] that [music]
+- [31:47.381] [singing]
+- [31:49.679] they know
+- [31:52.240] no fear
+- [31:57.440] control [singing]
+- [31:58.640] their minds
+- [32:01.120] within
+- [32:03.840] fears. [music]
+- [32:06.640] But time [singing] and natural
+- [32:16.857] [singing]
+- [32:20.787] [music]
+- [32:21.442] [singing]
+- [32:22.720] land
+- [32:25.360] grant steadfast
+- [32:27.600] life
+- [32:29.360] and still
+- [32:31.600] for
+- [32:37.162] [singing]
+- [32:42.320] us
+- [32:45.022] [singing]
+- [32:47.360] with thy saving
+- [32:51.572] [singing] grace.
+- [32:56.080] Oh God proath
+- [33:00.087] [singing]
+- [33:02.052] [music]
+- [33:05.982] [singing]
+- [33:06.637] [music]
+- [33:11.279] the [music] sky.
+- [33:12.532] >> [singing]
+- [33:16.960] >> Amen.
+- [33:21.703] [singing and music]
+- [33:23.919] Amen.
+- [33:26.943] [music]
+- [36:41.040] Sh [singing]
+- [36:53.040] river.
+- [36:56.720] Sh
+- [37:06.800] we're [singing] bound away.
+- [37:12.265] [singing]
+- [37:20.079] I long to see
+- [37:22.960] your [singing] smiling valley
+- [37:26.020] [music]
+- [37:27.760] and hear
+- [37:31.040] your [singing] rolling river.
+- [37:36.160] I long to [singing] see
+- [37:39.119] your smiling valley
+- [37:44.079] where
+- [37:47.119] we're bound [singing] away.
+- [37:52.560] across the [singing] Wor.
+- [38:04.011] >> [singing and music]
+- [38:06.240] >> Since last
+- [38:09.251] [music and singing]
+- [38:17.111] [singing and music]
+- [38:23.661] [music]
+- [38:24.320] I should
+- [38:26.936] >> [singing]
+- [38:26.960] >> your holy
+- [38:31.839] without the way
+- [38:34.796] [music]
+- [38:37.359] cross [singing]
+- [38:39.040] the
+- [38:41.520] vis.
+- [38:43.520] The wide is
+- [38:47.760] the wide [singing]
+- [38:50.516] [music]
+- [38:51.280] shall. And
+- [38:53.440] our voice
+- [38:56.411] [music]
+- [39:05.581] [singing]
+- [39:11.477] [singing]
+- [39:19.280] of
+- [39:24.000] across the world [singing]
+- [39:29.359] is
+- [39:31.127] [singing]
+- [39:33.920] your soul shine.
+- [39:38.240] Your soul shall shine.
+- [39:42.640] Your soul [music]
+- [39:44.800] will shine.
+- [39:49.467] >> [music]
+- [40:14.079] >> Let us pray. Our
+- [40:18.400] father
+- [40:20.079] in heaven,
+- [40:22.480] we thank you for the inspiration
+- [40:26.240] of the life and legacy
+- [40:29.839] of Senator
+- [40:31.839] Lindsey Graham.
+- [40:34.560] We proclaim your generosity to this
+- [40:37.760] nation and world
+- [40:40.640] by giving us the gift
+- [40:43.520] of someone who sought
+- [40:46.800] to leave the world
+- [40:49.520] better than he found it.
+- [40:53.839] Inspired by his great life,
+- [40:58.000] teach us all
+- [41:00.160] to see you more clearly.
+- [41:03.760] to love you more dearly
+- [41:07.280] and to follow you more nearly each day.
+- [41:14.560] Continue
+- [41:16.079] to bless and keep us.
+- [41:21.040] Make your face shine upon us and be
+- [41:24.960] gracious
+- [41:26.720] unto us.
+- [41:29.520] Lift the light of your countenance upon
+- [41:33.280] us
+- [41:34.880] and give us
+- [41:37.040] your shalom, your holiness,
+- [41:41.280] your peace.
+- [41:44.240] We pray
+- [41:46.160] in the name of the prince of peace.
+- [41:52.640] Amen.
+- [43:35.280] Wow. Hallelujah.
+- [45:34.656] >> [music]
