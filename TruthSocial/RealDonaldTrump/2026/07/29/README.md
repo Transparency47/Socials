@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-29
 
-- Posts: 4
+- Posts: 5
 
+- [01:09 UTC - Senator Ron Johnson is working hard with Senate Republican Leadership to adopt a Budget Re...](117000591530452774/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117000591530452774
+  - Senator Ron Johnson is working hard with Senate Republican Leadership to adopt a Budget Resolution before the August recess. This is the first step towards getting as much of THE S...
 - [00:59 UTC - It is my Great Honor to endorse Amir Hassan, who is running to represent the fantastic peo...](117000553480023765/)
   - Source: https://truthsocial.com/@realDonaldTrump/117000553480023765
   - It is my Great Honor to endorse Amir Hassan, who is running to represent the fantastic people of Michigan’s 8th Congressional District! From bravely fighting for our incredible U.S...
