@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-29
 
-- Posts: 7
+- Posts: 8
 
+- [22:13 UTC - Does anybody have any idea how much Money and Prestige the United States Supreme Court has...](117005562901056692/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117005562901056692
+  - Does anybody have any idea how much Money and Prestige the United States Supreme Court has cost our Nation with their negative Rulings on Birthright Citizenship and TARIFFS? The an...
 - [17:03 UTC - Truth Social post 117004345604552506](117004345604552506/)
   - Source: https://truthsocial.com/@realDonaldTrump/117004345604552506
   - _No text content captured._
