@@ -1,0 +1,518 @@
+<!-- source: https://www.youtube.com/watch?v=coFYdHAjdXs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: coFYdHAjdXs -->
+<!-- date_published: 2026-07-30T17:53:48+00:00 -->
+<!-- date_accessed: 2026-07-31T12:18:03.797139+00:00 -->
+
+# Transcript: President Trump Makes an Announcement on Freedom Haulers
+
+- [00:08.515] [music]
+- [00:12.040] >> Ladies and gentlemen, the president of
+- [00:13.960] the United States, Donald J. Trump.
+- [00:18.995] >> [music]
+- [00:25.545] [music and singing]
+- [00:35.370] [music]
+- [00:43.230] [music]
+- [00:48.560] >> What a nice song.
+- [00:51.000] We thank Lee, right? Lee has been with
+- [00:53.240] us from the beginning, so
+- [00:55.240] it's great.
+- [00:56.560] And thank you all for being here as we
+- [00:58.800] take action to get illegal alien truck
+- [01:01.760] drivers off the American roadways. We're
+- [01:04.239] doing a very strong
+- [01:06.080] movement and we have had such support
+- [01:08.280] for this and replace them with
+- [01:10.440] proud American veterans.
+- [01:15.600] And it's about time. [applause]
+- [01:18.440] I want to thank Secretary of
+- [01:19.920] Transportation Sean Duffy. He's doing a
+- [01:21.960] fantastic job. Secretary of Veterans
+- [01:24.640] Affairs Doug Collins, likewise really
+- [01:27.520] doing a good job. 92% approval. That's
+- [01:30.080] not bad, Doug. You'll get it up a little
+- [01:31.720] bit.
+- [01:32.720] Acting Secretary of Labor Keith
+- [01:35.280] Sonderling and along with president of
+- [01:38.720] Werner Enterprises Nathan Meisner. Thank
+- [01:42.480] you very much, Nathan, and
+- [01:43.600] representatives from the American
+- [01:45.240] Trucking Association and the
+- [01:47.280] Owner-Operators Independent Drivers
+- [01:49.560] Association. They're all behind us 100%.
+- [01:52.880] I'm behind it 100%. We got to stop it.
+- [01:55.880] It's dangerous. It's horrible what's
+- [01:57.560] happening? Every day you see another
+- [01:59.160] story. We're not going to let that
+- [02:00.960] happen. That won't happen with our great
+- [02:02.640] vets.
+- [02:03.760] But above all, thank you to the amazing
+- [02:05.720] veterans with the uh with with us. I
+- [02:08.920] mean, they've just been with us from the
+- [02:10.920] day they were born, I suspect. They're
+- [02:12.680] great patriots and we love them and we
+- [02:15.640] want to thank UPS, FedEx, and Werner
+- [02:19.120] for the job they've done. Thanks as well
+- [02:21.280] to the national
+- [02:23.000] commander of AMVETS, Paul Shipley,
+- [02:26.520] chief operating officer of the
+- [02:27.959] Independence Fund, Doug Ackerman, and
+- [02:31.040] the great patriots from the Wounded
+- [02:33.040] Warrior Project,
+- [02:34.920] American Legion, Blue Star Families,
+- [02:37.880] Gary Sinise Foundation, Vietnam Veterans
+- [02:41.040] of America, and Paralyzed Veterans of
+- [02:43.640] America. We thank you all and thank you
+- [02:45.680] all for being with us. Very special.
+- [02:47.681] >> [applause]
+- [02:48.000] >> Thank you, fellas.
+- [02:49.680] Thank you, everybody.
+- [02:52.280] For many years, American highways and
+- [02:54.280] roadways have been terrorized by
+- [02:56.080] unqualified illegal aliens dangerously
+- [02:58.640] driving big rigs. Rigs like that, you
+- [03:01.480] got to know something to drive. Wow.
+- [03:04.239] That sucker is a big one. That's big
+- [03:06.440] stuff.
+- [03:07.880] But they're uh
+- [03:09.400] you got to you have you have to have a
+- [03:10.920] knowledge, you have to have a talent for
+- [03:12.680] it, and these people don't have that.
+- [03:14.640] They are driving big rig semi-trucks and
+- [03:17.200] tractor trailers all because radical
+- [03:19.560] left maniacs at the state level have
+- [03:22.880] issued them commercial driver's
+- [03:24.680] licenses, even though they're not
+- [03:26.880] entitled to have them. They don't speak
+- [03:29.160] the language for the most part. Many of
+- [03:31.560] these illegal aliens don't even come
+- [03:34.160] close. They don't want to learn the
+- [03:35.720] language. They don't care about the
+- [03:37.040] language and they don't speak it. They
+- [03:39.000] don't speak English. They cannot read
+- [03:41.320] basic road signs. In many cases, they've
+- [03:44.160] engaged in reckless driving that has
+- [03:46.040] caused
+- [03:47.200] many, many preventable deaths. Many, too
+- [03:50.160] many to even talk about.
+- [03:52.200] Last August, three innocent people were
+- [03:54.600] killed in Florida when an illegal alien
+- [03:56.880] from India
+- [03:58.280] made an unlawful U-turn, blocking all
+- [04:00.720] the lanes of the highway, and causing a
+- [04:03.320] catastrophic crash. It was a disaster.
+- [04:06.800] Just a few weeks ago, a Pennsylvania
+- [04:08.520] state trooper was killed by an illegal
+- [04:10.959] alien from Haiti driving a semi-truck.
+- [04:14.640] He was let in by Joe Biden and the open
+- [04:17.040] border policy of the Biden
+- [04:18.480] administration. By the way, today we
+- [04:20.480] have the safest border in the history of
+- [04:22.640] our country.
+- [04:23.967] >> [applause]
+- [04:28.160] >> AND I DON'T EVEN SAY THIS USUALLY, but
+- [04:30.200] for the last 14 months, cuz it's almost
+- [04:32.520] unbelievable to say,
+- [04:34.480] but the media will correct me if I give
+- [04:36.280] anything that's even slightly off. As of
+- [04:39.040] 14 months, in the last 14 months, zero
+- [04:42.400] illegal aliens were able to come through
+- [04:45.360] our southern border. Zero.
+- [04:47.548] >> [applause]
+- [04:50.919] >> Last year alone, illegal aliens with
+- [04:53.000] commercial driver's licenses caused at
+- [04:55.320] least 30 deaths, and many, many very
+- [04:58.520] seriously injured. As president, I made
+- [05:01.480] it our official policy to enforce
+- [05:04.240] English language requirements for truck
+- [05:06.360] drivers and support American truckers on
+- [05:09.120] American roadways.
+- [05:11.800] We've already removed more than 24,000
+- [05:14.840] non-English speakers from behind the
+- [05:16.800] wheel.
+- [05:17.800] We've also forced states to cancel more
+- [05:19.919] than 28,000 commercial driver's licenses
+- [05:23.880] unlawfully issued to illegal aliens.
+- [05:26.680] They were They were given illegally.
+- [05:29.919] As we get illegal aliens off the roads
+- [05:32.080] today, we're also taking action to
+- [05:33.919] replace these unqualified migrant truck
+- [05:36.440] drivers with highly qualified American
+- [05:40.919] veterans.
+- [05:43.878] >> [applause]
+- [05:47.600] >> Under our brand new Freedom Hall, as we
+- [05:49.640] call it, Freedom Haulers initiative, any
+- [05:52.520] American who has driven a heavy truck
+- [05:54.480] for our military will automatically be
+- [05:57.160] eligible for a commercial driver's
+- [05:59.640] license. And it's good-paying jobs, too.
+- [06:02.600] Any veteran
+- [06:04.120] with a heavy vehicle experience from the
+- [06:06.920] military will now be eligible to skip
+- [06:09.680] redundant road tests to obtain a
+- [06:11.640] commercial driver's licenses. We're
+- [06:13.440] going to make it as easy as possible for
+- [06:16.000] the veterans within 2 years following
+- [06:18.440] their active duty service. And for the
+- [06:20.760] veterans where no truck where you have a
+- [06:24.160] situation where you have not truck
+- [06:26.880] drivers in the military, where you don't
+- [06:28.880] have truck drivers, they're going to be
+- [06:31.000] given a very quick pass. We're going to
+- [06:32.880] teach them. They're going to learn. If
+- [06:35.080] they didn't drive a truck in the
+- [06:36.280] military, but weren't, they're going to
+- [06:37.720] learn and they're going to learn very
+- [06:38.880] quickly, and they'll be licensed in a
+- [06:41.800] matter of a few weeks, I think it is.
+- [06:44.200] They're going to take about three or
+- [06:45.960] four weeks of training. 34 states have
+- [06:49.080] joined this initiative, including
+- [06:51.160] Indiana, Wyoming, Louisiana, Arkansas,
+- [06:53.800] Alabama, Florida, and Maryland who are
+- [06:56.560] joining us yesterday. Many of the
+- [06:58.880] representatives and leaders from those
+- [07:00.720] states are with us. It's actually a very
+- [07:02.960] big deal. This is a big deal. We believe
+- [07:05.880] that all 50 states and Washington, D.C.
+- [07:09.080] should join us in supporting these great
+- [07:11.080] veterans.
+- [07:12.280] And frankly, some of the states didn't
+- [07:14.280] know about it. They heard about it
+- [07:15.680] today, and they're all I think they're
+- [07:17.600] all going to be signing up. Data shows
+- [07:19.360] that truck drivers who are veterans
+- [07:21.680] account for 42%
+- [07:23.880] fewer accidents. Think of that. 42%,
+- [07:27.440] and that number they say is a very
+- [07:28.960] minimal
+- [07:30.360] number.
+- [07:31.520] Even as they drive the double double the
+- [07:34.120] number of miles of non-veteran drivers.
+- [07:37.320] So,
+- [07:38.600] to end this very simply, the radical
+- [07:41.640] left wants more jobs for illegal aliens
+- [07:44.040] and more migrants in 18-wheelers. And
+- [07:47.360] Trump administration wants safer roads
+- [07:49.880] and more jobs for the American veteran.
+- [07:53.240] Now, I'd like to ask a man who's done a
+- [07:55.520] fantastic job on this subject and many
+- [07:58.040] others, Secretary Duffey, to say a few
+- [08:00.520] words, followed by Secretary Collins,
+- [08:02.720] Nathan, and a great veteran truck
+- [08:04.880] driver, Ricky Washington. And I'll just
+- [08:07.880] stand here and watch. Thank you very
+- [08:09.560] much. Y'all go ahead.
+- [08:11.255] >> [applause]
+- [08:15.720] >> So, thank you, Mr. President. And to
+- [08:18.400] underscore your point, President Biden
+- [08:21.200] let in millions of illegals into this
+- [08:23.680] country.
+- [08:24.880] And he thought it would be a good good
+- [08:26.840] idea that when they come in, they get a
+- [08:28.280] job. And they get a job driving a
+- [08:30.760] commercial motor vehicle.
+- [08:33.200] They didn't have the training. They
+- [08:34.240] didn't have the skill. We didn't do
+- [08:36.360] background checks in the last
+- [08:37.800] administration. So, they could have had
+- [08:40.000] a a mile-long rap sheet of crimes or
+- [08:43.120] drunk driving or speeding violations,
+- [08:46.240] but we didn't know who they were.
+- [08:48.400] And we saw that when those illegals were
+- [08:50.600] driving these big rigs, they were
+- [08:52.760] killing American citizens.
+- [08:54.760] Uh you're a family that was on the way
+- [08:56.240] to Walmart, or you're going to church on
+- [08:58.080] a Sunday, you could lose your life on an
+- [09:00.600] American road. So, uh because of the
+- [09:03.920] President's initiative, he signed an
+- [09:06.120] executive order over a year ago. It was
+- [09:08.360] the common sense rules of the road. And
+- [09:11.920] uh since you signed that executive
+- [09:13.200] order, we all have been working overtime
+- [09:15.120] to make sure we take illegals off
+- [09:17.680] American roads, and we give those jobs
+- [09:20.520] to great Americans, including great
+- [09:22.600] American veterans.
+- [09:24.839] So, that's right. These these
+- [09:27.236] >> [applause]
+- [09:31.839] >> These are great-paying jobs. They're
+- [09:33.839] anywhere from 80 to a
+- [09:36.640] plus dollars a year. And it's important
+- [09:40.160] because you have men and women who drove
+- [09:42.720] big rigs in the military who would then
+- [09:45.240] get out and have to go through
+- [09:48.320] months-long training for their skills
+- [09:50.760] and their knowledge test to drive this
+- [09:52.280] vehicle over here.
+- [09:54.080] Well, if Secretary Pete Hegseth thinks
+- [09:56.720] that you can drive a vehicle like this,
+- [09:59.200] Donald Trump and Sean Duffy think that
+- [10:00.840] you can drive a vehicle like that.
+- [10:03.960] So,
+- [10:05.226] >> [applause]
+- [10:09.720] >> So, we have illegals are out, American
+- [10:12.560] patriots are in in this administration.
+- [10:15.840] We've had more people,
+- [10:18.000] trucking companies call us
+- [10:20.240] and try to find how do I hire more
+- [10:22.520] veterans? How do I bring the men, the
+- [10:24.960] great men and women who served this
+- [10:26.480] country, how do I bring them into my to
+- [10:29.560] my company? So, you can go to
+- [10:31.920] freedomhaulers.dot.gov
+- [10:35.760] to get more information, but we are we
+- [10:39.520] are clearing the deck for you to get a a
+- [10:42.600] great job job in trucking.
+- [10:45.440] Mr. President,
+- [10:47.080] there's a lot of things that the radical
+- [10:49.080] left, as you mentioned, get angry about
+- [10:51.480] because they're radical.
+- [10:53.080] But safety for the American citizenry is
+- [10:56.080] bipartisan. This this is not a political
+- [10:58.400] issue. This is an American issue. Let's
+- [11:01.280] make sure American roads are safe.
+- [11:03.760] Let's make sure we put great patriots
+- [11:05.680] who served this country on American
+- [11:07.839] roads, well trained with great skills,
+- [11:11.280] and I think this is one of the great
+- [11:12.600] legacies of your administration. I am
+- [11:14.600] grateful for your leadership, putting
+- [11:16.440] America first, American veterans first,
+- [11:19.000] American roads first over the illegals
+- [11:21.560] who the last administration prioritized.
+- [11:24.120] It has been just an honor to work with
+- [11:26.880] you and and
+- [11:28.280] to me, he's a he's a master class. To
+- [11:30.160] see how this president operates, Uh, to
+- [11:32.320] watch him and learn from him uh is
+- [11:34.560] amazing. So, thank you. I appreciate it,
+- [11:36.040] Mr. President.
+- [11:37.582] >> [applause]
+- [11:42.360] >> Thank you, Sean. Mr. President, I can't
+- [11:44.320] think of anything else. This is freedom
+- [11:46.680] more in our country than an open road
+- [11:49.280] truck and a veteran. Because you have
+- [11:51.880] veterans, they said one thing. When they
+- [11:53.400] raised their right hand, they pledged
+- [11:55.120] what others would not do. They said, "I
+- [11:56.920] will go and do what others will not do."
+- [11:59.200] And it is this country when you told me
+- [12:00.800] and I asked you that question. I said,
+- [12:01.800] "Mr. President, what do you want me to
+- [12:02.600] do?" He said, "Just take care of my
+- [12:04.400] veterans." So, every day now, since the
+- [12:06.640] last year and a half, veterans at the VA
+- [12:08.720] are first and only in what we do. And
+- [12:11.920] this
+- [12:12.953] >> [applause]
+- [12:16.480] >> So, when Sean and I, we heard about
+- [12:18.520] this, when we started looking at this,
+- [12:19.840] some things that we have done, Mr.
+- [12:20.960] President, you're behind this and
+- [12:22.280] working to get veterans on the road. I
+- [12:24.040] can't think of anything more American. I
+- [12:25.760] can't think of anything that puts us
+- [12:27.680] first instead of the illegals who want
+- [12:29.120] to come take jobs. Let's put veterans in
+- [12:31.080] the seats, making jobs safer and better
+- [12:33.440] for all Americans as we go along.
+- [12:35.320] Because veterans, look, you proved once
+- [12:37.360] you can do it. I know for a fact you can
+- [12:39.440] do it every single day.
+- [12:42.160] As we look at this, some of the other
+- [12:43.800] questions that's come, the wild west is
+- [12:45.680] over. So, what do we do? How do we get
+- [12:47.440] our veterans into this? Well, one of the
+- [12:48.760] things that I want to emphasize is is
+- [12:50.480] that we're now not only taking you as
+- [12:52.400] veteran to GI bill is going to be able
+- [12:54.040] to pay for this. You're going to be able
+- [12:55.160] to actually get and use the money to go
+- [12:57.240] get your CDL license. You're able to get
+- [12:59.400] this. We're going to make it a lot
+- [13:00.600] easier and a lot quicker. Like I said,
+- [13:02.160] for those of us who rode in these,
+- [13:04.920] this will be a thrill.
+- [13:07.319] >> [laughter]
+- [13:08.320] >> So, we do that. We're going to use the
+- [13:09.400] GI bill. The DO Lackt also did something
+- [13:11.440] that's really important. That was the
+- [13:12.600] CDL programs. It used to take almost two
+- [13:15.160] years to get in. We're now waving that
+- [13:17.040] where the CDL and disability service
+- [13:18.720] connected disabilities can get in that
+- [13:20.360] instead of having to wait the two years.
+- [13:22.360] So, we're actually putting into place
+- [13:24.160] what is already there and saying, "You
+- [13:25.440] know what? We're going to make it easier
+- [13:26.880] for our veterans to do this." Our VR&E
+- [13:28.840] programs are already ready to train
+- [13:30.360] veterans to go take these jobs as we go
+- [13:32.520] forward. But as we go forward, let me
+- [13:34.280] just emphasize one thing. Already, Mr.
+- [13:35.920] President, one in 10 of our truck
+- [13:38.120] drivers across the country are veterans
+- [13:39.600] already. One in 10.
+- [13:41.920] Why don't we make it two in 10? Why
+- [13:43.840] don't we make it three in 10? For those
+- [13:44.920] who want to get out and serve this
+- [13:46.120] country, who want to be the leaders and
+- [13:48.560] be the safety experts who drove these to
+- [13:51.640] drive these will drive us as Americans
+- [13:54.600] in the future. We couldn't do this
+- [13:56.200] without a great partnership with the
+- [13:57.400] cabinet and our partners in the business
+- [13:59.120] community as we go forward, but I'm here
+- [14:00.840] to also tell you you can't do it without
+- [14:02.960] a president who doesn't look at the what
+- [14:05.040] can't be, he looks at what can be. And
+- [14:07.440] Donald Trump has said when it comes to
+- [14:08.880] transportation and safety and keeping
+- [14:10.800] illegals off the road, but also putting
+- [14:12.960] our veterans first, you have a president
+- [14:14.840] who not only says it, but he does it,
+- [14:16.800] and we're here today to prove it. God
+- [14:18.560] bless you.
+- [14:20.024] >> [applause]
+- [14:26.200] >> I would like to thank President Trump
+- [14:27.480] for inviting us all here today.
+- [14:29.440] It is a profound honor to stand with you
+- [14:31.839] here at the White House along with the
+- [14:33.680] brave veterans, the military leaders,
+- [14:36.080] and cabinet members
+- [14:37.600] in the same month that we celebrated the
+- [14:39.480] 250th anniversary of our great country.
+- [14:42.520] If I could take a moment for those of
+- [14:44.200] you that are out of camera and and
+- [14:46.440] facing this way, there are hundreds of
+- [14:48.640] veterans here today. And I feel like we
+- [14:50.920] owe it to the veterans who have
+- [14:52.160] sacrificed The saying is that all gave
+- [14:54.880] some and some gave all, and I would like
+- [14:56.760] to take a moment to for all of us to
+- [14:58.720] thank the people behind the camera and
+- [15:00.560] the men here for their service.
+- [15:03.255] >> [applause]
+- [15:10.280] >> As President Trump said, I'm Nathan
+- [15:11.720] Meiskyer. I'm the president of Werner
+- [15:13.880] Enterprises.
+- [15:15.160] Werner is one of the America's largest,
+- [15:17.320] safest, and most successful
+- [15:18.960] transportation companies.
+- [15:20.760] This year Werner proudly celebrates
+- [15:22.840] seven decades of keeping the American
+- [15:25.040] economy moving. And after all, 75% of
+- [15:28.720] all freight in America moves by a truck.
+- [15:31.600] At Werner, 15% of our 14,000 associates
+- [15:35.360] nationwide are veterans and military
+- [15:37.800] spouses, a statistic that we're proud
+- [15:39.880] of.
+- [15:42.555] >> [applause]
+- [15:44.520] >> Today I am proud to announce a new
+- [15:46.080] strategic initiative for our company. In
+- [15:48.600] tandem with the Trump administration's
+- [15:50.760] Freedom Haulers program, Werner
+- [15:52.720] Enterprises is officially committing to
+- [15:55.000] hire 1,400
+- [15:56.880] veterans in the coming year.
+- [16:01.550] >> [applause]
+- [16:05.240] >> This administration's Freedom Haulers
+- [16:06.840] campaign will have a direct and powerful
+- [16:09.080] impact on our ability to bring even more
+- [16:12.120] veterans into our workforce and into
+- [16:14.160] this great trucking economy.
+- [16:16.560] Cutting through red tape and translating
+- [16:18.280] a veteran's military driving experience
+- [16:20.200] directly into a civilian commercial
+- [16:22.200] driver's license.
+- [16:23.680] Veterans at Werner often move up the
+- [16:25.400] ranks into roles as driver leaders, and
+- [16:28.040] many serve as premier road team
+- [16:30.280] captains, mentoring the next generation
+- [16:32.680] of drivers, and representing the
+- [16:34.600] absolute best of American trucking.
+- [16:37.280] We should all commit to ensure that
+- [16:39.640] every veteran returning home is met not
+- [16:42.240] just with handshakes and hugs and
+- [16:44.520] applause, but real opportunities to
+- [16:47.440] lead, drive, and succeed.
+- [16:50.480] Thank you again to President Trump and
+- [16:52.000] all of the members of the Trump
+- [16:53.160] administration who support our heroes
+- [16:55.760] and these pro-veteran initiatives. May
+- [16:58.160] God bless our veterans. May God bless
+- [17:00.960] our leaders. And may God bless America.
+- [17:03.520] Thank you.
+- [17:04.431] >> [applause]
+- [17:11.040] >> My fellow Americans, Mr. President, and
+- [17:13.120] distinguished guests,
+- [17:14.800] it is an honor to stand with you today.
+- [17:17.560] For 30 years of service, I have the
+- [17:18.800] privilege of wearing the uniform of the
+- [17:20.120] United States Army and the Army National
+- [17:21.959] Guard.
+- [17:23.120] Like so many who have answered the call,
+- [17:25.120] my service took me through moments of
+- [17:26.959] hardships
+- [17:28.360] and sacrifices.
+- [17:29.960] I reflect on which I carry with me every
+- [17:31.560] day.
+- [17:32.800] Serving this nation was an honor.
+- [17:34.840] But when the time came to take the
+- [17:35.880] uniform off,
+- [17:37.320] I faced the question veterans confront.
+- [17:40.920] How do I continue serving?
+- [17:43.000] For me, the answer was
+- [17:45.000] on the open road.
+- [17:46.880] Transition from military life behind the
+- [17:48.560] wheel of a commercial truck has brought
+- [17:50.680] a renewed sense of mission for me.
+- [17:54.240] Veterans
+- [17:56.040] make exceptional truck drivers
+- [17:58.480] because they have the core values of the
+- [18:00.520] military aligned seamlessly with the
+- [18:02.800] trucking industry.
+- [18:04.600] With discipline, we have vigilant, we're
+- [18:06.760] adaptable, and with unwavering
+- [18:08.960] commitment to getting the job done
+- [18:11.240] safely and on time.
+- [18:13.440] The
+- [18:15.172] >> [applause]
+- [18:19.720] >> Thank you, Donald.
+- [18:20.800] >> Well,
+- [18:22.200] the trucking industry is more than just
+- [18:23.720] a sector of our economy.
+- [18:26.160] It is the backbone of our commerce.
+- [18:28.960] It is a place where service members,
+- [18:31.200] veterans,
+- [18:32.400] military spouse,
+- [18:34.120] can find a purpose, a community,
+- [18:36.800] and a way to continue keeping our great
+- [18:39.280] nation moving forward.
+- [18:41.520] Thank you, Mr. President.
+- [18:43.720] God bless our service members and their
+- [18:45.360] family,
+- [18:46.520] and God bless the United States of
+- [18:48.160] America.
+- [18:50.543] >> [applause]
+- [18:58.360] >> Anyone like to say anything?
+- [19:00.368] >> [laughter]
+- [19:02.120] >> I just want to thank everybody for being
+- [19:03.760] here. This is going to be a big day for
+- [19:05.880] our wonderful patriots, our great
+- [19:08.800] veterans. Uh they're going to produce
+- [19:10.840] like nobody else can produce, and thank
+- [19:13.240] you very much and I want to thank you
+- [19:14.720] and especially all those people you're
+- [19:16.880] going to be hiring but I know a lot of
+- [19:18.720] your competitors are also doing the same
+- [19:20.960] thing. So it's going to be really
+- [19:22.680] fantastic. Sean, thank you. Thank you,
+- [19:24.960] Doug. Thank you everybody for the job
+- [19:26.800] you've done. Very much. Bye. Thank you.
+- [19:31.808] >> [applause]
+- [19:36.393] [applause]
+- [19:39.013] [music]
