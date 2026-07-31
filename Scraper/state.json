@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/6yKXrC_fPgs: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=6yKXrC_fPgs! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=6yKXrC_fPgs&ei=KBttatSeG_7Hy_sPx8-T2Q0&caps=asr&opi=112496729&xoaf=4&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1785560472&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=8560B60A59BB4FFB3C9A06FD177988C792E0F3CE.EA0BF91727D6EAAAB1865526FAEC230A89CFC280&key=yt8&kind=asr&lang=en&variant=gemini&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/U-KkyBGvAdM: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=U-KkyBGvAdM! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -171901,6 +171901,17 @@
       "title": "President Trump Delivers Remarks at the America Business Forum Miami",
       "url": "https://www.youtube.com/watch?v=6xVpv3kfvv8"
     },
+    "youtube:whitehouse:6yKXrC_fPgs": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-31T23:14:56.823243+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/31/6yKXrC_fPgs",
+      "platform": "youtube",
+      "post_id": "6yKXrC_fPgs",
+      "published": "2026-07-31T17:38:11+00:00",
+      "title": "Illegal aliens driving commercial big rigs have killed far too many Americans.That ends now",
+      "url": "https://www.youtube.com/shorts/6yKXrC_fPgs"
+    },
     "youtube:whitehouse:71GdCJcurV8": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -179480,6 +179491,17 @@
       "title": "This Iranian warship thought it was safe in international waters. It wasn't.",
       "url": "https://www.youtube.com/watch?v=V3OeAze7Iqk"
     },
+    "youtube:whitehouse:V6vuYip9SWo": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-31T23:14:57.837996+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/31/V6vuYip9SWo",
+      "platform": "youtube",
+      "post_id": "V6vuYip9SWo",
+      "published": "2026-07-31T16:33:04+00:00",
+      "title": "President Trump Hosts a Cabinet Meeting, Jul. 31, 2026",
+      "url": "https://www.youtube.com/watch?v=V6vuYip9SWo"
+    },
     "youtube:whitehouse:VAm-zyIpUUM": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -181745,6 +181767,17 @@
       "published": "2026-01-15T21:43:04+00:00",
       "title": "President Trump Participates in a Visit of the 2025 Stanley Cup Champions The Florida Panthers",
       "url": "https://www.youtube.com/watch?v=bauj7YDTNVk"
+    },
+    "youtube:whitehouse:bbFQdKYSqjg": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-31T23:14:58.731513+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/31/bbFQdKYSqjg",
+      "platform": "youtube",
+      "post_id": "bbFQdKYSqjg",
+      "published": "2026-07-31T16:24:17+00:00",
+      "title": "President Donald J. Trump Convenes the Cabinet at Camp David \ud83c\uddfa\ud83c\uddf8",
+      "url": "https://www.youtube.com/shorts/bbFQdKYSqjg"
     },
     "youtube:whitehouse:bbaKBOZX2-U": {
       "account": "WhiteHouse",

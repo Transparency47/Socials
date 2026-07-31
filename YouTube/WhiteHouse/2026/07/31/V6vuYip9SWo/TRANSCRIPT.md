@@ -1,0 +1,1550 @@
+<!-- source: https://www.youtube.com/watch?v=V6vuYip9SWo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: V6vuYip9SWo -->
+<!-- date_published: 2026-07-31T16:33:04+00:00 -->
+<!-- date_accessed: 2026-07-31T23:14:57.837996+00:00 -->
+
+# Transcript: President Trump Hosts a Cabinet Meeting, Jul. 31, 2026
+
+- [00:07.120] Thank you very much. This is something
+- [00:08.559] very unique. It's Camp David and this
+- [00:11.200] room is a very, very special room. I
+- [00:14.240] don't believe the press has ever come
+- [00:16.240] anywhere near it. But we are the party
+- [00:19.279] of transparency and we believe in
+- [00:21.039] transparency. I think it's good for you
+- [00:22.720] to see certain aspects of Camp David.
+- [00:25.119] It's a very special place. But uh it was
+- [00:28.320] not I guess the last visit was with
+- [00:31.119] Eisenhower where they allowed you onto
+- [00:32.960] the actual campus and it's a long time
+- [00:35.120] ago but never into this room. I want to
+- [00:38.239] thank all of you for being here and
+- [00:40.800] again this is a cabinet meeting. It's
+- [00:42.960] open. We have done a lot of open cabinet
+- [00:46.239] meetings and I feel it works out very
+- [00:48.399] well. Everybody can
+- [00:50.960] ask certain questions. We'll let you
+- [00:53.199] talk about certain things. certain
+- [00:54.559] things we can't answer because they're
+- [00:56.000] ongoing and very important. But this is
+- [00:58.879] one of the most talented teams ever to
+- [01:01.199] serve the United States and in the
+- [01:03.280] United States government. This is a
+- [01:04.799] talented group of people. Let's see.
+- [01:07.119] I'll go one after another.
+- [01:09.840] Yeah. A couple of steps, but that's
+- [01:11.520] okay. [laughter]
+- [01:14.159] It's a it's an amazing group and America
+- [01:16.240] is safer and stronger and far more
+- [01:18.720] successful than it was two years ago.
+- [01:21.439] And I think frankly than it ever was. I
+- [01:23.439] don't think it's ever been anything like
+- [01:26.000] this. We're building more factories and
+- [01:29.840] plants in this country than we've ever
+- [01:31.520] built before. And uh we're going to be
+- [01:34.400] uh at some point we'll be leaving this
+- [01:36.560] position and we're going to leave this
+- [01:38.240] country in very very good shape, better
+- [01:41.040] shape than it's ever been. When we took
+- [01:43.280] office, we inherited a total
+- [01:45.360] catastrophe. The last administration
+- [01:47.920] created the worst inflation in 48 years,
+- [01:50.240] the most dangerous and insecure border
+- [01:52.240] in history, and exploding trade deficits
+- [01:55.200] like we have never seen before, rampant
+- [01:58.320] crime, men and women sports, transgender
+- [02:02.479] mutilization of your children, and chaos
+- [02:05.360] and bedum all over the world. Other than
+- [02:07.520] that, they did quite a good job.
+- [02:10.080] In less than 18 months, we've turned
+- [02:12.800] around four years of disaster. We now
+- [02:15.200] have the strongest border in American
+- [02:17.200] history. We went from the worst border I
+- [02:18.959] believe of any country in history. 25
+- [02:20.959] million people came through in four
+- [02:23.120] years. And these are people that in many
+- [02:25.440] cases you don't want. They were
+- [02:26.800] murderers. They were drug dealers. They
+- [02:29.040] were people that you do not want. But
+- [02:31.599] now we have the strongest border in
+- [02:33.599] American history. And for the last 15
+- [02:35.840] months, the report just came out again.
+- [02:38.400] We've had no people coming in through
+- [02:40.560] our southern border. Zero. And it's
+- [02:42.640] almost hard to say because you'd say,
+- [02:44.239] "Is that even possible?" They had 25
+- [02:46.959] million people came in. We have no
+- [02:48.560] people coming in through illegally
+- [02:50.239] through our southern border. And that's
+- [02:52.400] in history. So think of that zero, a big
+- [02:54.720] beautiful zero. The murder rate saw it
+- [02:57.040] single largest drop ever recorded to the
+- [02:59.760] lowest in 125 years. That goes back to
+- [03:03.120] uh think of it, it goes back to 1900.
+- [03:06.640] Lowest murder rate in the history of our
+- [03:09.360] country. So that's something. And uh
+- [03:11.440] today I just want to mention that we
+- [03:14.080] heard in Minnesota there was an cyber
+- [03:16.959] attack and they blame it on Iran. I
+- [03:19.120] don't think so. I think I blame it on
+- [03:20.959] Minnesota because they're grossly
+- [03:22.239] incompetent. There was a cyber attack of
+- [03:24.400] 30 water plants and I would blame it on
+- [03:28.400] Minnesota and the governor, the corrupt
+- [03:30.560] governor of Minnesota. They like to say,
+- [03:32.720] "Oh, it was Iran. Iran should be so
+- [03:34.720] lucky." Irran's got bigger problems than
+- [03:36.720] worrying about Minnesota. This month it
+- [03:39.440] was announced that inflation is dropping
+- [03:41.760] at the fastest rate in more than six
+- [03:43.760] years. Walmart, Sam's Club, Giant Eagle,
+- [03:47.040] and others are slashing prices by by
+- [03:49.680] hundreds of grocery stores and all of
+- [03:52.319] the stores. I mean, throughout the
+- [03:53.680] country, they're slashing prices.
+- [03:55.840] Something that you haven't seen for a
+- [03:57.519] long time since my last administration.
+- [04:00.560] The stock market has set 73 all-time
+- [04:02.879] record highs since the election. That
+- [04:04.959] means all-time record highs. 73 days out
+- [04:09.040] of a very short period of time. And the
+- [04:11.920] typical 401k is up by more than $30,000.
+- [04:15.840] And uh when you think of that, uh if you
+- [04:18.639] add another uh $1,000 to it, uh it will
+- [04:23.520] be we set the record in the last
+- [04:25.520] administration, a record still standing,
+- [04:28.560] this administration is going to blow my
+- [04:30.479] last administration
+- [04:32.320] away. When the factories that we're
+- [04:34.639] building at record, we're not building
+- [04:36.479] them all over the world. They're
+- [04:38.240] building, they're coming from all over
+- [04:40.000] the world. They're coming from Germany
+- [04:41.360] with the cars. They're coming from
+- [04:43.120] Germany. They're coming from Japan,
+- [04:45.360] South Korea, Canada, Mexico. From all
+- [04:48.080] over the world, they're building auto
+- [04:49.440] plants here because otherwise they have
+- [04:50.960] to pay tariffs. The tariffs have made
+- [04:53.120] our country rich and successful. And all
+- [04:56.960] of this, I mean, I'd like to say it was
+- [04:58.560] the election on November 5th. It was the
+- [05:01.040] election. and that's fine. But without
+- [05:03.280] the election, you wouldn't have what
+- [05:04.720] I've done economically. So, we have the
+- [05:07.680] most successful environment that we've
+- [05:10.240] ever had. There's never been anything
+- [05:11.840] like it from the standpoint of
+- [05:13.360] investment into our country. It's five
+- [05:16.000] to six times higher than anybody has
+- [05:18.080] ever seen, than any other country, any
+- [05:20.320] other country, not just us, has ever
+- [05:22.639] had. On July 4th, we launched Trump
+- [05:25.120] accounts, a key provision of our great
+- [05:27.360] big beautiful bill. And these tax-free
+- [05:30.000] investment savings accounts have already
+- [05:32.479] been activated by over 7 million
+- [05:34.479] children. These are uh investments made
+- [05:37.039] in our future, which is our children.
+- [05:38.720] Our children are the most important
+- [05:40.960] aspect of our future with more being
+- [05:43.360] added each day. So, it's a tremendous
+- [05:45.360] hit over 7 million and really it really
+- [05:48.320] just got going I would say Scott about
+- [05:51.120] two weeks ago when it was uh we got the
+- [05:53.440] final approvals and we have over 7
+- [05:56.160] million actually there's never been
+- [05:57.840] anything quite like that but millions of
+- [06:00.639] accounts are preunded with $1,000 from
+- [06:03.199] the US Treasury or generous gifts from
+- [06:05.759] private donors like Michael and Susan
+- [06:08.160] Dell and others who have given billions
+- [06:10.479] of dollars billions. People are putting
+- [06:12.479] up hundreds of millions and billions of
+- [06:14.400] dollars into it and buying really a a
+- [06:17.759] great future for children. When they
+- [06:19.440] turn 18 or when they turn 21, instead of
+- [06:22.160] having no hope, no future, they will end
+- [06:24.880] up with hundreds of thousands of dollars
+- [06:26.880] and maybe even more than that. So, it's
+- [06:29.120] going to be something to see. With
+- [06:30.560] modest additional contributions, they'll
+- [06:33.120] grow uh by numbers that should be it
+- [06:36.240] could be over $200,000. We're looking at
+- [06:39.280] uh the timeline. We're looking I wish we
+- [06:40.960] had an economy like we have now with the
+- [06:43.280] stock markets going up, but they will
+- [06:45.360] benefit by our country being successful
+- [06:48.160] and we're going to give every child a
+- [06:50.240] head start on the American dream. So go
+- [06:52.880] to trumpacc accounts.gov. They're really
+- [06:55.680] something the whole world's talking
+- [06:57.039] about it and it's far ahead of schedule.
+- [06:59.680] Nobody thought it would be as successful
+- [07:02.000] as it's been, but it should be. It
+- [07:03.840] should be. And we start them off with
+- [07:05.199] $1,000. And this was part of the great
+- [07:07.520] big beautiful bill with my most favorite
+- [07:10.160] nation policy. You could say this is
+- [07:12.800] even a bigger thing if that's possible
+- [07:15.039] on drug prices. We're achieving record
+- [07:17.440] discounts on prescription drugs. The
+- [07:19.919] prescription drugs uh were going through
+- [07:21.919] the roof for many years and now we're
+- [07:24.160] getting record discounts with price
+- [07:26.160] differences of 300, 400, 500, 600%.
+- [07:32.160] Nobody's ever heard of a thing like
+- [07:33.840] that. And what this is all about is that
+- [07:37.120] we were the highest. We had the highest
+- [07:39.120] prices anywhere in the world by far.
+- [07:41.599] Most expensive drugs, prescription
+- [07:43.919] drugs, and and others, the highest in
+- [07:46.720] the world. The whole world was laughing
+- [07:48.160] at us. We paid for the rest of the
+- [07:49.680] world. We subsidized the whole world.
+- [07:51.759] And I said, "We're not going to do
+- [07:52.880] that." And I started it in the first
+- [07:55.599] administration. I took it up. Uh
+- [07:58.000] obviously Biden wasn't able to do
+- [07:59.840] anything about it because you had to get
+- [08:01.680] the consent of the drug companies and
+- [08:03.280] you had to get the consent more
+- [08:05.039] difficult would be the consent of other
+- [08:07.520] nations. The other nations had to agree
+- [08:09.440] but they were paying a fraction
+- [08:11.360] sometimes 10% 20% 40% 70% less. So I had
+- [08:18.000] to call them and I had to get them on
+- [08:19.520] and I said if you don't do it we're
+- [08:20.720] going to have to charge you tariffs. And
+- [08:23.039] uh they all said no at first very
+- [08:24.800] politely said sir we can't do that.
+- [08:26.720] we're not going to double our prices.
+- [08:28.639] They had to double their prices and in
+- [08:30.879] some case triple their price and we
+- [08:33.120] would come down. So a a pill that sold
+- [08:35.919] for $10 in Germany would sell for $130
+- [08:41.599] in New York, same pill from the same
+- [08:43.440] company, the same factory, the same
+- [08:45.200] plant, same laboratory from $10 and we
+- [08:49.200] pay $130. They say, "No, no. Now the
+- [08:52.399] world is a bigger place, so it's not as
+- [08:54.399] bad as it sounds to them." So they went
+- [08:56.480] up to 20 and we came down to 20. So we
+- [08:59.920] now have the lowest drug prices anywhere
+- [09:02.240] in the world. We're tied with the
+- [09:04.080] lowest, but we're basically its favorite
+- [09:05.760] nation. So we have the lowest drug
+- [09:07.760] prices anywhere in the world from the
+- [09:09.680] highest drug prices anywhere in the
+- [09:11.920] world. Now what that does to your health
+- [09:13.680] care, I mean, I see these fake polls
+- [09:15.680] where the Democrats have wonderful n
+- [09:18.320] numbers on this stuff and they are
+- [09:20.240] horrible what they've done. Obamacare is
+- [09:22.399] a total disaster. It's a costly wreck.
+- [09:25.120] It's unaffordable. We call it the
+- [09:26.720] unaffordable care act. It's a disgrace.
+- [09:29.760] They never even thought of being able to
+- [09:31.519] do something like this. They didn't even
+- [09:33.040] try. They didn't even try. So, I got the
+- [09:35.519] drug companies first and then I got the
+- [09:39.279] countries and the drug companies agreed
+- [09:41.760] because they knew the countries wouldn't
+- [09:43.360] agree. And when I called Germany,
+- [09:45.279] France, when I called the UK, when I
+- [09:48.320] called all of these countries, I said,
+- [09:50.480] "You got to do it. It's unfair. we're
+- [09:52.240] paying 10 times more than you're paying
+- [09:54.720] for the same drug. You can't do this."
+- [09:56.800] And they said, "Well, we're not going to
+- [09:58.080] do that because we're going to have to
+- [09:59.200] double our price to in order to make you
+- [10:01.040] happy." I said, "No, maybe you're going
+- [10:02.240] to have to triple your price." They
+- [10:04.240] said, "Well, we can't do it." I said,
+- [10:05.440] "That's all right. If you can't do it,
+- [10:07.279] then I can't do something also, and I'm
+- [10:09.760] going to charge you very substantial
+- [10:12.240] tariffs, which are far more than we're
+- [10:14.000] talking about." And they all said, "We'd
+- [10:16.160] love to do it. We would love to do it.
+- [10:17.839] It would be our great honor to do it."
+- [10:19.279] So, nobody else would do this. this
+- [10:20.959] would have never happened. So your drug
+- [10:23.200] prices have gone down by numbers not
+- [10:25.040] even thinkable. My first term I had the
+- [10:27.519] privilege of having lower drug prices
+- [10:29.600] from the beginning of the year till the
+- [10:31.279] end for the first time in 28 years. You
+- [10:33.920] remember and I called a news conference
+- [10:36.480] to announce it. So the year it ended and
+- [10:39.279] I was turned out 1/8 of a percent 1/8 of
+- [10:43.600] a percent little tiny this much. It went
+- [10:46.399] down that much during one year. First
+- [10:49.120] time in 28 years it went down. It was
+- [10:50.880] always like this, just up, more
+- [10:53.360] expensive. And I called the news
+- [10:56.079] conference. I was so proud of myself and
+- [10:57.760] I said, "Ladies and gentlemen, the first
+- [11:00.079] time in 28 years drug prices have gone
+- [11:03.440] down from January till the end of
+- [11:06.320] December." And I want to just
+- [11:08.959] congratulate everybody for being a part
+- [11:11.519] of this wonderful experiment.
+- [11:13.920] And 1/8 of a point. Now we're talking
+- [11:16.480] about 400, 500, 600%.
+- [11:20.160] Coming down. We pay the lowest drug
+- [11:22.000] prices anywhere in the world from the
+- [11:23.600] highest. So, uh, you know, and I'll say
+- [11:25.760] it again and again because the press
+- [11:27.200] doesn't want to report it. The fake news
+- [11:28.720] doesn't want to report it. They don't
+- [11:30.320] want to talk about it. What that does
+- [11:32.079] for health care, Bobby, is unbelievable
+- [11:34.320] because medicine's a big part of
+- [11:36.079] healthcare. So, I wish that uh people
+- [11:38.560] would understand that and I hope they're
+- [11:40.399] going to vote for us in the midterms
+- [11:42.079] because you'll see some stuff that will
+- [11:43.760] be horrible because they can blow it
+- [11:45.680] very fast if they don't know what
+- [11:47.040] they're doing. So, your drug prices are
+- [11:49.120] great. You know, I saw Spain uh
+- [11:52.240] yesterday and I watched the catastrophe
+- [11:55.120] that took place. It was a it looks like
+- [11:56.959] an invasion of a country by hundreds of
+- [12:00.399] thousands of people. And that same
+- [12:02.880] thing's going to happen to us if the
+- [12:04.320] Republicans don't get elected, except
+- [12:06.560] worse, much bigger, much easier to get
+- [12:09.839] into. Despite the fact that we have
+- [12:12.160] built thousands of miles of wall, which
+- [12:15.519] I said we were going to do, but we
+- [12:17.920] didn't have that. Forget it. But we have
+- [12:19.920] the safest border in the world. If we're
+- [12:22.639] not in office, our country will be
+- [12:25.279] invaded at levels that made Spain look
+- [12:29.200] small. And when I watched it, I said,
+- [12:31.680] "Boy," I said, "I'm going to say it
+- [12:34.160] because I knew you're going to be at
+- [12:35.279] Camp David." And I say, "That's going to
+- [12:37.279] be a talking point for the midterms
+- [12:40.399] because when you look at what happened
+- [12:42.000] to Spain, they don't know what to do."
+- [12:43.920] And it's happening again today. They're
+- [12:45.519] coming in by the thou tens of thousands.
+- [12:47.920] They're just they're just invading the
+- [12:50.480] country.
+- [12:51.839] And what that is is weak
+- [12:55.200] law, bad management, but very liberal
+- [12:59.760] law. They passed a couple of laws and
+- [13:02.959] people read, you know, people are smart.
+- [13:04.560] They read from other countries and they
+- [13:06.800] swam that three mile swim or however
+- [13:09.440] they got in, but nobody's seen anything
+- [13:11.600] like it. That will look good compared to
+- [13:14.079] what's going to happen to the United
+- [13:15.600] States. The biggest thing, the worst
+- [13:17.760] thing that Biden did is allowing 25
+- [13:19.600] million people into our country because
+- [13:21.519] many of those people are criminals.
+- [13:23.680] They're murderers. A lot of mur 11,888.
+- [13:27.680] A lot of them are gone now. We got them
+- [13:29.279] out. But they allowed people to come
+- [13:31.920] into this country that you can't allow
+- [13:33.519] to come into a country. We're also
+- [13:35.920] making an unprecedented investment in
+- [13:38.000] the United States armed forces where
+- [13:40.560] we're doing great. And we rebuilt the
+- [13:43.440] armed forces. We rebuilt our military.
+- [13:45.760] my first term, but we are doing great
+- [13:48.000] with our military. They spent a lot of
+- [13:49.839] money in our military. They gave away
+- [13:52.399] $300 billion dollar worth of ammo and
+- [13:55.760] everything else in the in Biden's term,
+- [13:58.639] but we're building it up fast and we
+- [14:00.320] have a we're we just have a great
+- [14:02.160] military and that's all there is to it.
+- [14:04.240] But we rebuilt it in the in my first
+- [14:06.480] term and we're using it in my second
+- [14:09.680] term with Venezuela and other places and
+- [14:12.079] Iran. Now, Iran is doing very poorly.
+- [14:14.720] Just in case you read incorrect stories,
+- [14:16.959] they're doing very, very poorly. They're
+- [14:18.320] having a hard time. They've been very
+- [14:20.480] dishonest. They've been very
+- [14:21.600] dishonorable to deal with. But, uh, that
+- [14:24.320] makes no difference. They're doing very,
+- [14:25.839] very poorly. Uh, we're also making that
+- [14:29.120] investment and looking forward to
+- [14:30.639] getting Pete 1.5 trillion dollars next
+- [14:34.240] year. People see now how important it
+- [14:36.000] is. We want to keep a safe country. We
+- [14:38.160] have to keep a safe country. And the
+- [14:39.519] good news is all of that equipment is
+- [14:41.680] made in the USA. So we're making it
+- [14:44.079] here. It's jobs. Uh and each one of our
+- [14:47.600] uh defense groups are building literally
+- [14:50.639] at least four new massive plants as we
+- [14:54.639] speak because we want them to do we want
+- [14:57.760] them to move faster. We have the best
+- [14:59.279] equipment in the world, but we want them
+- [15:01.360] to move faster. We don't want to wait a
+- [15:02.959] year or a year and a half. We want to
+- [15:04.560] wait a week maybe. So, that's happening
+- [15:07.120] and I think the results are very good.
+- [15:08.880] They're all they're building uh at
+- [15:11.760] levels that nobody's ever seen before
+- [15:14.560] and we've had tremendous success and our
+- [15:16.880] military was just proud of it. Again,
+- [15:19.040] Venezuela
+- [15:20.639] was a one-day war and we have a great
+- [15:24.079] relationship with Venezuela. We're
+- [15:25.760] working, we're partners with Venezuela
+- [15:27.440] now, taking out tens of millions of
+- [15:30.000] barrels of oil and going to Houston,
+- [15:33.279] going to Alaska, going to Louisiana,
+- [15:35.760] going to different places for
+- [15:37.279] refinement, refineries, and uh it's been
+- [15:40.639] very much amazing. The administration's
+- [15:43.440] done more in 18 months than most
+- [15:45.120] administrations have done in eight years
+- [15:47.519] if you had a two-termer. We've done more
+- [15:49.839] in 18 months than anyone's ever seen
+- [15:52.240] before. Nobody's ever seen. This is the
+- [15:54.480] golden age of America. And we have a war
+- [15:57.759] that's going on. I guess you call it a
+- [15:59.759] war. Maybe I call it a military
+- [16:01.360] operation because they have no navy.
+- [16:04.240] It's been obliterated. Their air force
+- [16:06.560] has been obliterated. They have no
+- [16:08.079] planes. Their missiles have been largely
+- [16:11.440] they have some left. They have some, but
+- [16:14.000] they have far fewer than they had four
+- [16:16.160] or five months ago.
+- [16:17.920] uh they uh their manufacturing capacity
+- [16:20.880] is almost gone. The drone capacity is
+- [16:25.440] almost gone. They're very few, but they
+- [16:27.839] have some. They if they have one, that's
+- [16:29.600] too many as far as I'm concerned, but
+- [16:31.920] we've done a an amazing job with
+- [16:34.639] Venezuela. We've done an amazing job
+- [16:37.120] here. We're in there five months. You
+- [16:39.040] know, I I know people like to say
+- [16:40.639] because we've done a much bigger job,
+- [16:43.120] much more important job than we
+- [16:44.800] originally anticipated. So we're in
+- [16:47.120] there for five months. And if you look
+- [16:49.199] at Vietnam, they were in there for 20
+- [16:50.880] years. You look at Afghanistan, they
+- [16:53.600] were in there for many years. You look
+- [16:55.519] at any one of the wars, Korea, any one
+- [16:57.199] of them, they're in there for many
+- [16:58.320] years. We're in for five months, and we
+- [17:00.320] have obliterated their military
+- [17:02.079] capacity. Again, they've got some left,
+- [17:05.199] but soon they won't have some left. So I
+- [17:07.679] just want to thank everybody around this
+- [17:09.199] table. You've been very special. But I
+- [17:10.640] want to thank a lot of the media people
+- [17:12.079] cuz many of you have been very very fair
+- [17:14.559] and very that's one of the reasons
+- [17:16.240] you're here frankly. But you've been
+- [17:18.240] very fair. You've covered me this time.
+- [17:20.400] I mean much more fairly I think than the
+- [17:23.520] first term. The first term was a great
+- [17:25.760] success. We had the greatest economy in
+- [17:27.679] history in the first term. And this term
+- [17:30.320] is going to blow it away. I think this
+- [17:31.760] term is going to actually blow it away.
+- [17:33.679] So it's an honor to have you. And I'd
+- [17:35.440] like to ask our great vice president J.
+- [17:38.559] D. advance to say a few words followed
+- [17:40.880] by Marco and Pete and Scott and uh Bobby
+- [17:45.200] Kennedy. Okay, thank you very much
+- [17:47.520] everybody. Please Judy.
+- [17:49.039] >> Well, great. Thanks, Mr. President.
+- [17:50.240] First of all, thanks for having us at
+- [17:51.520] this historical and and beautiful place
+- [17:53.679] and uh it's an honor to be on the team,
+- [17:55.679] an honor to be able to work on fraud,
+- [17:58.240] which is what I want to talk about
+- [17:59.280] today. though I know we have a lot of
+- [18:00.480] things going on. This has been an
+- [18:02.080] amazing team from Kelly [clears throat]
+- [18:03.600] Leler at SBA uh to Doug at the VA to
+- [18:07.679] Todd and Bobby Kennedy. This really has
+- [18:10.400] required a whole of administration
+- [18:12.240] approach to try to tackle fraud. There
+- [18:13.919] are a few things that I want to talk
+- [18:15.120] about and celebrate. Uh the first is
+- [18:17.520] that just since the beginning of the
+- [18:18.799] fraud task force that I started under
+- [18:20.480] the president's leadership and
+- [18:21.760] direction, uh we have identified $230
+- [18:25.280] billion of fraud that's being
+- [18:27.520] perpetrated against the American people.
+- [18:29.360] And we have halted already 56 billion of
+- [18:32.799] that. It's sometimes hard. Once the
+- [18:34.320] money has already gone out the door,
+- [18:35.440] it's hard to get it back. But stopping
+- [18:37.360] it from going out the door is how we
+- [18:38.799] save the American people. 56 billion.
+- [18:41.679] And of course, we're going to keep on
+- [18:42.880] working on that. Just today, Mr.
+- [18:44.799] President, we will announce 17 new
+- [18:47.360] anti-fraud actions that will total uh
+- [18:50.160] about a third of a billion dollars and
+- [18:51.919] that that's added to the $230 billion
+- [18:54.320] that we've already uncovered. And I want
+- [18:56.640] to just talk uh for the benefit of the
+- [18:58.480] American people about why do we care so
+- [19:00.559] much about this? Because what I always
+- [19:01.840] try to remind people is that fraud has
+- [19:03.919] two victims. So to give one concrete
+- [19:07.120] example, there is a program that is
+- [19:09.600] administered by Medicaid and that
+- [19:12.799] program ensures that low-income moms and
+- [19:15.280] low-income babies have access to
+- [19:17.039] neonatal care. Now, I think most
+- [19:18.559] Americans probably share my view that
+- [19:20.559] this is one of the great things about
+- [19:21.760] the United States of America, that if we
+- [19:23.760] see a baby and we see a young mother
+- [19:25.919] that requires help, we help our fellow
+- [19:28.320] Americans. That's a good thing. It's
+- [19:29.760] something that we should be proud of.
+- [19:31.360] And yet there is a program that has
+- [19:34.000] defrauded the moms and the babies who
+- [19:36.799] benefit from these. You've gotten people
+- [19:38.400] who've gotten rich by setting up false
+- [19:41.120] companies that are providing false
+- [19:42.640] services. So who loses in that equation?
+- [19:45.200] Number one, of course, is the American
+- [19:47.120] taxpayer that is $230 billion poorer
+- [19:50.320] because of the fraud that this country
+- [19:51.760] has let go on. But I actually think most
+- [19:54.559] importantly is that we've seen that
+- [19:56.720] program run out of ma money. So, we've
+- [19:58.960] seen moms and babies unable to access
+- [20:01.280] the health care that they need because
+- [20:03.600] the fraudsters have gotten rich. That is
+- [20:06.000] a disgrace. And until the president
+- [20:08.240] ordered us to stop it, no one was doing
+- [20:10.640] anything about it. So, we've made a lot
+- [20:12.559] of progress, Mr. President, in just
+- [20:14.400] under a year, but we're going to keep on
+- [20:16.160] working at it because we believe the
+- [20:17.679] American people deserve to have their
+- [20:19.440] money spent as you and the Congress have
+- [20:21.679] directed it.
+- [20:22.640] >> There's big numbers here, finding
+- [20:24.160] tremendous numbers. They look like
+- [20:25.840] Elliot [clears throat] Nest. Does
+- [20:26.880] anybody know a million? They look like
+- [20:29.520] that group of people you have lined up
+- [20:31.039] behind you. That's They're doing a great
+- [20:32.480] job.
+- [20:32.799] >> Yes, sir.
+- [20:33.280] >> Billions. Think of not not millions.
+- [20:36.320] Billions of dollars is being recovered.
+- [20:39.039] Billions. And you haven't seen anything
+- [20:41.840] yet. We have things happening that
+- [20:44.000] people aren't going to believe. The
+- [20:45.280] level of corruption and fraud that took
+- [20:47.039] place under the Biden administration was
+- [20:49.440] unprecedented.
+- [20:50.960] And Minnesota, California, Maine, Maine,
+- [20:54.799] believe it or not. You know, you think
+- [20:55.919] of Maine as this wonderful place.
+- [20:58.480] >> It's uh the level of corruption is
+- [21:00.559] incredible all over all over the place.
+- [21:02.480] So, uh great job. Thank you very much.
+- [21:04.799] >> Thanks, sir.
+- [21:05.280] >> Okay. Please.
+- [21:06.799] >> Oh, my turn. Well, first of all, thank
+- [21:08.159] you for bringing us out here. Um I got
+- [21:10.799] the chance to drive for the first time
+- [21:12.159] in a year and a half. It was just a
+- [21:13.520] golf, right? It was fun. [laughter]
+- [21:17.280] It was great. And um [laughter]
+- [21:20.720] so just a couple points that u you we
+- [21:23.440] all know we've followed in the news
+- [21:24.880] obviously the events in the Middle East
+- [21:26.080] and others here can talk about that. Not
+- [21:27.600] that they're not important but there's
+- [21:28.720] some other issues happening around the
+- [21:29.919] world Mr. President that you've shown
+- [21:31.679] great leadership in that have not gotten
+- [21:33.200] nearly as much attention. I think they
+- [21:34.559] deserve a mention today. The first is
+- [21:36.480] the International Criminal Court is an
+- [21:38.799] illegitimate international organization
+- [21:40.559] that frankly illegitimate. They've made
+- [21:42.000] themselves illegitimate because they
+- [21:43.440] claim that even if you're not a member
+- [21:44.799] of that court they can come after you.
+- [21:46.640] What that literally means in the future
+- [21:48.240] is that American servicemen, political
+- [21:50.480] leaders, and others could find
+- [21:51.760] themselves under the under indictment by
+- [21:54.640] this international criminal court. And
+- [21:56.559] if you want to know a little bit about
+- [21:57.520] it, Jack Smith used to work there. These
+- [21:59.440] are the people that think they can go
+- [22:00.640] out and basically indict any world
+- [22:02.080] leader and haul them into the Hague. So,
+- [22:04.000] we've begun, we tried to get them to
+- [22:05.520] reform and listen to us. They wouldn't
+- [22:06.960] do it. They're very arrogant. We've now
+- [22:08.720] begun an effort to really try to bring
+- [22:11.039] that court to heal.
+- [22:11.840] >> By the way, there's no information that
+- [22:13.440] they're after me. It could happen.
+- [22:16.215] >> [laughter]
+- [22:17.440] >> But just so you know, she's talking
+- [22:19.120] about it and saying that means that he's
+- [22:21.455] [clears throat] not trying to defend me.
+- [22:22.960] He is trying to defend BB and various
+- [22:24.960] other people, but there are many people
+- [22:27.200] that shouldn't be looked at that way.
+- [22:29.200] But there is no indication that uh I'm
+- [22:32.480] one of them at this [laughter] moment.
+- [22:35.360] Well, and I actually think the people
+- [22:37.200] who are in biggest danger in our system
+- [22:38.640] are servicemen, people in uniforms that
+- [22:40.799] they'll try to go out for the rest of
+- [22:41.840] their lives will not be able to travel
+- [22:43.039] anywhere in the world with their
+- [22:44.159] families because they could be arrested
+- [22:45.360] on one of these. Imagine you're a
+- [22:47.360] soldier, you fought in a war and 20
+- [22:48.720] years later to try to come grab you. So,
+- [22:50.640] this is a big problem. So, we've had
+- [22:52.320] dozens of countries already join us in
+- [22:53.919] suffer since we started two weeks ago,
+- [22:55.760] five countries have already quit the ICC
+- [22:57.760] and notified them that they're leaving
+- [22:59.280] and we think there'll be more. The
+- [23:01.039] second thing is we had an unprecedented
+- [23:02.640] ministerial. 60 countries came to
+- [23:04.640] Washington and were a part of an effort
+- [23:06.640] we were shedding light on for far-left
+- [23:08.880] terrorism and violence. You know, if a
+- [23:10.720] bomb goes off somewhere and it's tied to
+- [23:12.320] some right-wing group or what I neo I
+- [23:14.559] don't consider neo-Nazis rightwing. I
+- [23:16.080] consider them Nazis, right? But you're
+- [23:18.320] going to get a lot of attention on that.
+- [23:19.679] But if it's a leftist group, an Antifa
+- [23:21.600] group, that gets no coverage or they
+- [23:23.679] ignore the ideological spin and the
+- [23:25.520] ideological reason behind it. So, we got
+- [23:28.080] 60 countries came up here and hopefully
+- [23:29.840] creating a strong coalition to go after
+- [23:32.159] far-left violent terrorism and go after
+- [23:34.799] it and call it by name. I think we're
+- [23:36.400] building a very strong coalition there.
+- [23:38.240] Uh we've had some successes in the
+- [23:40.000] Middle East, Mr. President, as you know,
+- [23:41.600] in the diplomatic front. The deal with
+- [23:43.679] Lebanon and Israel is unprecedented.
+- [23:46.080] President Aun was here a week ago. I
+- [23:48.159] think that was the first visit by a
+- [23:49.679] Lebanese president in over 30 some odd
+- [23:51.360] years. In fact, this is the first time
+- [23:52.480] the Israelis and the Lebanese government
+- [23:53.919] have spoken at the official level in
+- [23:55.919] close to 30 years. And that was thanks
+- [23:57.760] to your leadership. A lot of work to be
+- [23:59.360] done to keep that peace and build on it.
+- [24:01.200] But it's a real achievable. And of
+- [24:02.880] course, as you announced last night, Mr.
+- [24:04.480] President, this disarmament deal that
+- [24:06.000] you brought about with Steve and Jared's
+- [24:07.679] work on on Hamas is is another big step
+- [24:10.720] as well. Um it's something a lot of
+- [24:12.159] people thought would never happen. It
+- [24:13.600] needs to happen, but the fact they've
+- [24:14.880] even agreed to it is a real achievable.
+- [24:17.440] Last point is on the Western Hemisphere.
+- [24:19.760] For the first time in 1520 years, the
+- [24:22.640] overwhelming majority of the countries
+- [24:24.159] in the Western Hemisphere are now led by
+- [24:26.559] pro-American leaders and pro-American
+- [24:29.200] governments. It's an extraordinary
+- [24:30.480] achievement. All of it happening through
+- [24:31.840] a s virtually every election that's
+- [24:34.080] happened in the Western Hemisphere since
+- [24:35.440] you were elected president has elected
+- [24:37.279] someone who is pro-American. And I think
+- [24:39.440] this is an an incredible uh situation.
+- [24:41.760] And last but not least, and I have to
+- [24:43.279] thank a number of agencies here,
+- [24:44.640] particularly Department of War after
+- [24:46.400] that terrible earthquake in Venezuela.
+- [24:48.960] Within 36 hours, the full force of the
+- [24:52.000] American government was on the ground
+- [24:53.600] providing humanitarian assistance. It
+- [24:55.279] was a sight to behold. The USS Ford, I
+- [24:57.919] think, was in their port. Our Marines
+- [24:59.919] and and uh armed service personnel were
+- [25:02.880] helping run their airport in their
+- [25:04.159] tower. It is one of the fastest, most
+- [25:06.320] dramatic, the most effective
+- [25:07.600] humanitarian responses certainly in
+- [25:10.240] recent history, if not ever. And it they
+- [25:12.559] came at the direction of the president.
+- [25:14.000] In fact, within an hour of that
+- [25:15.600] earthquake hitting, I remember cuz I was
+- [25:17.039] overseas, the president called and said,
+- [25:18.799] "Make sure we go in there and help these
+- [25:20.640] people recover from this." And and we
+- [25:22.480] did. And thanks to your leadership, Mr.
+- [25:24.240] President. It's a great story. Enough
+- [25:26.080] needs to be told about it because the
+- [25:27.919] credit goes to so many agencies
+- [25:30.000] represented here today, but really the
+- [25:31.440] Department of War's effort was
+- [25:32.640] phenomenal. So, thank you. Thank you,
+- [25:34.080] sir.
+- [25:34.480] >> Thank you very much, Margaret. And just
+- [25:35.760] before we uh continue, I want to just
+- [25:38.960] congratulate Jake Clayton. He's with us
+- [25:41.039] today, as you know, who's had a big
+- [25:42.960] victory. He's going to be he's going to
+- [25:44.799] do a fantastic job. He's only done a his
+- [25:47.200] whole life has been about doing a
+- [25:48.559] fantastic job. CONGRATULATIONS.
+- [25:51.057] [applause]
+- [25:55.642] [applause]
+- [25:59.360] >> WELL, thank you, Mr. President, for the
+- [26:00.799] for the invitation, the opportunity to
+- [26:02.320] be here. Uh it's an honor for the War
+- [26:04.480] Department to to help run this facility
+- [26:06.559] also from the from the food to defense
+- [26:08.320] line. Uh it's it's an honor to have you
+- [26:10.640] and it's it's great Americans here and
+- [26:13.440] all around the country and all around
+- [26:15.120] the world who are the core of what uh
+- [26:17.760] keep us safe. But in order to do that,
+- [26:20.080] you have to have a leader that's willing
+- [26:21.919] to put them in a position to do it. And
+- [26:23.760] that and that's my takeaway, Mr.
+- [26:25.200] President, is um sort of three points.
+- [26:28.480] One, it takes courage. Two, it takes
+- [26:30.960] restoring a spirit, which you have done.
+- [26:33.200] And third, it takes investment. And not
+- [26:34.799] just an investment, but a generational
+- [26:36.400] investment. And I think people miss
+- [26:37.840] that. The courage it takes to seal the
+- [26:40.080] border, to say, "We're going to do it,
+- [26:41.360] and we're going to do it every single
+- [26:42.400] day, and and we're going to do it on
+- [26:43.600] behalf of the American people." The
+- [26:45.679] courage to bomb the Houthies and say,
+- [26:47.440] "We will we will maintain freedom of
+- [26:49.360] navigation." You wonder why they're not
+- [26:50.799] involved in this conflict, the Houthies,
+- [26:52.559] even though they're a proxy of Iran,
+- [26:54.000] because they've felt the weight of
+- [26:55.120] American power for 45 days. And you had
+- [26:57.600] the courage to do that. courage to to do
+- [27:00.000] midnight hammer and conclude the 12-day
+- [27:01.760] war by obliterating their nuclear sites.
+- [27:03.840] something no one other presidents had
+- [27:06.159] the option on their table to do. But
+- [27:08.000] they never pulled the trigger because of
+- [27:09.679] the complications, because of the
+- [27:10.960] challenge, and because of the risk.
+- [27:12.720] courage, the courage to take on the
+- [27:14.640] cartels and drugs, drug boats, and now
+- [27:17.600] forming the AC, the America's counter
+- [27:19.679] cartel coalition with all those friendly
+- [27:21.760] governments that Marco talked about who
+- [27:23.440] want to be shoulder-to-shoulder, not
+- [27:25.120] just with America, but with a bold,
+- [27:27.360] strong America with clear leadership,
+- [27:30.480] the courage to go uh get Maduro in the
+- [27:33.520] most danger, most heavily guarded house
+- [27:35.520] inside the most heavily guarded fort
+- [27:37.279] inside the most heavily guarded town in
+- [27:39.279] their capital city in the middle of the
+- [27:40.640] night and change the entire entire
+- [27:42.320] dynamic of that country and that region
+- [27:44.400] and the world saw what the American
+- [27:46.080] military was capable to do. But that
+- [27:48.080] doesn't happen unless the
+- [27:49.039] commander-in-chief says you're
+- [27:50.640] authorized to do it and will take the
+- [27:52.720] handcuffs off when you do it to ensure
+- [27:54.960] that Americans come home. The courage to
+- [27:57.440] undertake epic fury uh and and this
+- [28:00.080] Iranian regime and ensure they never
+- [28:02.320] have a nuclear weapon, which remains
+- [28:04.399] your commitment. and frankly the courage
+- [28:05.919] to negotiate with people that have shown
+- [28:08.080] no willingness to do so honestly with
+- [28:10.240] incredible negotiators who are the best
+- [28:12.000] in the world and give them every
+- [28:13.440] opportunity to do it uh give those
+- [28:15.440] things up peacefully. All of that takes
+- [28:17.760] guts but that comes on the backs of the
+- [28:20.000] change in the spirit of our department.
+- [28:21.520] You talk about spirit all the time and
+- [28:23.120] and and you're right to do so. When you
+- [28:25.440] rip out DEI, when you rip out social
+- [28:28.159] engineering and social justice, and you
+- [28:30.000] put in merit, and then you untie the
+- [28:32.559] hands of commanders to be commanders to
+- [28:34.640] enforce discipline and accountability to
+- [28:36.960] get back to basics, then you get
+- [28:39.200] historic reinlistment inside our ranks.
+- [28:41.200] Our best people, Mr. President, are
+- [28:42.559] staying because they want to be in that
+- [28:44.399] kind of department. And then historic
+- [28:46.399] recruitment record amongst young
+- [28:48.159] Americans. Every month, our department
+- [28:51.360] breaks records. And when did that trend
+- [28:53.200] line start? on election day 2024 when
+- [28:56.399] the American people said I want to serve
+- [28:58.000] under this president and that that new
+- [29:00.559] name the department of war has become
+- [29:02.480] the ethos the warrior ethos of our
+- [29:04.399] department again spirit and I will note
+- [29:07.200] uh the flyovers will indeed continue
+- [29:09.039] until morale grows [laughter]
+- [29:11.919] but that's also spirit parades 250
+- [29:15.039] flyovers the American people seeing and
+- [29:18.159] feeling their military in ways they have
+- [29:19.840] not in the past that's spirit and then
+- [29:21.840] finally Mr. president, a generational
+- [29:23.760] investment. You rebuilt the military in
+- [29:25.679] your first term with and you've spent in
+- [29:27.600] your first year 1 trillion and now we
+- [29:29.279] are committed in working with Congress
+- [29:31.279] to get 1.5 trillion. But this is not the
+- [29:34.399] same way we funded our department in the
+- [29:36.159] past. This is a businessman in charge.
+- [29:38.480] This is a deputy secretary of our
+- [29:40.000] department who's a turnaround guy uh
+- [29:42.240] just like the president is saying we
+- [29:44.000] will not fund money. We will not fund
+- [29:46.080] the department the way we have in the
+- [29:47.279] past. In fact, so far, $75 billion in
+- [29:51.360] private investment from defense
+- [29:53.039] companies who are now investing in new
+- [29:55.279] plants, new equipment, new assembly
+- [29:57.039] lines to build the munitions of the
+- [29:59.200] future faster than ever possible. That's
+- [30:01.520] saving taxpayer dollars uh because the
+- [30:03.840] companies themselves are investing that
+- [30:05.279] would never the arsenal of freedom would
+- [30:07.039] never happen without you. Uh so just
+- [30:09.760] like you know we use a lot of the things
+- [30:11.360] Ronald Reagan's buildup was a part of uh
+- [30:14.320] in this administration and in future
+- [30:16.000] administrations they will look back at
+- [30:17.440] Donald Trump and the buildup that he has
+- [30:19.279] done and that will be the deterrence of
+- [30:21.279] the future will be established because
+- [30:22.640] of your investment. So thank you Mr.
+- [30:24.559] President for
+- [30:27.279] >> Scott please Mr. President, it's an
+- [30:29.679] honor to be here in this historic place
+- [30:32.240] as we celebrate our nation's 250th
+- [30:34.799] anniversary. And I think if we look back
+- [30:37.520] the whether the our founders was
+- [30:40.159] president of Washington, Thomas
+- [30:41.600] Jefferson, uh Alexander Hamilton could
+- [30:44.240] not have imagined the economy that we
+- [30:46.799] would have created. It is the envy of
+- [30:49.440] the world. And as you said, we have
+- [30:51.520] record investment coming in. We've never
+- [30:53.600] seen anything like it. and we're pulling
+- [30:55.760] away from the rest of the world that
+- [30:57.760] because of your leadership, the policies
+- [31:00.159] that you did from day one in terms of
+- [31:02.559] digital assets, in terms of technology
+- [31:05.360] and bringing back American
+- [31:07.120] manufacturing. You know, it it's you've
+- [31:10.000] you've done it again. You had the
+- [31:12.880] credible economy during your first term
+- [31:15.760] and we are seeing that carry over here
+- [31:18.960] and it is in stark contrast to the Biden
+- [31:21.600] economy which was government jobs,
+- [31:24.640] government spending and high inflation,
+- [31:27.360] the worst inflation in 50 years and the
+- [31:31.840] with the working families tax cut which
+- [31:34.320] I will add every Democrat voted against.
+- [31:37.840] Every Democrat voted against they it is
+- [31:40.480] the perfect barbell for this economy. On
+- [31:43.360] one side you have pole expensing for uh
+- [31:47.360] factories for equipment for farm
+- [31:50.480] structures. On the other side your four
+- [31:52.720] signature policies promises made,
+- [31:55.120] promises kept. No tax on tips, no tax on
+- [31:57.840] overtime, no tax on social security,
+- [31:59.919] deductibility of auto loans if you buy
+- [32:02.799] an Americanmade car. And the Americans
+- [32:06.320] are started starting to feel that core
+- [32:09.120] inflation is low. Consumer confidence is
+- [32:11.840] strong. Uh we have the highest consumer
+- [32:14.000] confidence came up today. They in 5
+- [32:16.559] months and uh main street is back. Small
+- [32:21.440] small banks are linked thanks to your
+- [32:23.200] policy. Small banks, community banks are
+- [32:25.600] lending again. And uh the Americans are
+- [32:29.440] starting to feel it. As you said, these
+- [32:32.000] Trump accounts are the most successful
+- [32:34.559] program launch in government history.
+- [32:36.799] We've had 7 million families sign up for
+- [32:39.279] them. We're going to they get to open
+- [32:41.679] enrollment and we will have 70 million
+- [32:44.240] families who have signed up for this.
+- [32:46.559] 38% of American families households have
+- [32:49.840] no exposure to our great equity market.
+- [32:52.480] And thanks to you, we're going to have
+- [32:54.159] an ownership society. An ownership
+- [32:56.640] society. You were one of the first
+- [32:58.240] presidents to create assets for the
+- [33:00.799] American people, not more debt. We had
+- [33:03.519] the biggest tax refund season ever. Uh
+- [33:07.360] trade deals, tax cuts, energy dominance,
+- [33:10.480] and the reg deregulatory efforts.
+- [33:12.720] America is ushering in the greatest
+- [33:15.039] reshoring wave in our history. In June,
+- [33:18.159] our manufacturing sector expanded for
+- [33:20.399] the sixth straight month. We've got
+- [33:22.399] construction jobs and those are going to
+- [33:24.480] lead into manufacturing jobs. We've got
+- [33:27.120] Main Street prosperity. Real wages are
+- [33:30.000] up $1,000. And sir, what you've done
+- [33:32.640] again too is the bottom 25% of wage
+- [33:36.320] earners, just like in your first term,
+- [33:38.720] are outperforming the top 25%. This is a
+- [33:43.120] working families administration. The
+- [33:46.399] last in the past year,
+- [33:49.440] that group had had real w had wage
+- [33:53.120] increases 5.5%.
+- [33:55.840] they have three times the what the top
+- [33:58.240] end has has done. So you you've done it
+- [34:01.840] again and these are private sector jobs
+- [34:04.880] we are creating as you often say in
+- [34:07.120] these meetings we could have created a
+- [34:09.119] million 2 million government jobs but we
+- [34:11.440] didn't. the private sector is creating.
+- [34:13.839] We've got incentives. We've got money
+- [34:15.839] coming in and we are rebuilding. So, and
+- [34:18.960] then our energy dominance thanks to you
+- [34:21.520] and these policies. You can come to the
+- [34:23.440] US. You're going to have regulatory
+- [34:24.800] certainty, tax certainty, and energy
+- [34:27.119] certainty. So, it is the best place in
+- [34:28.879] the world to build your factory. And
+- [34:30.800] finally, I want to add it has been a
+- [34:32.720] pleasure to be a part or a privilege to
+- [34:35.520] be a part of as we've gone from epic
+- [34:37.679] fury to economic fury to constrict on
+- [34:41.040] your orders constrict the Iranian
+- [34:42.879] regimes the financial tentacles all
+- [34:46.480] around the world. We started it in on
+- [34:48.879] your orders. We started in March 2025.
+- [34:52.159] In December of 2025, the largest bank in
+- [34:54.800] Iran collapsed. The central bank had to
+- [34:57.440] print money at caused inflation. Now
+- [34:59.839] they got 180% inflation. They aren't
+- [35:02.240] able to pay their troops. And on your
+- [35:04.240] orders, we are searching for their
+- [35:06.000] assets all around the world. And that
+- [35:08.240] money will go to the Iranian people,
+- [35:10.480] Americans who have been harmed by the
+- [35:13.359] Iranians, whether the USS Cole, the or
+- [35:16.320] the barracks in Lebanon, they or it will
+- [35:20.079] go back to when the Iranians attack
+- [35:23.280] these ships coming out. So, it's been a
+- [35:25.760] privilege to be part of that and the I
+- [35:28.320] look forward to the rest of it.
+- [35:29.760] >> Thank you very much. And I want to just
+- [35:32.160] add that today there are more people
+- [35:34.640] working in the United States than at any
+- [35:37.119] time in the history of our country. We
+- [35:38.880] have more people working today. Well,
+- [35:41.440] think of that number. I mean, more
+- [35:43.200] people working today by far than at any
+- [35:45.920] time in the history of our country. So,
+- [35:47.599] it's been something very, very special.
+- [35:50.400] Uh Bobby, please.
+- [35:52.560] >> Thank you, Mr. President. Let me just
+- [35:54.160] take a moment to take note of the
+- [35:56.800] historical significance of this
+- [35:58.960] occasion.
+- [36:00.560] Before the press came in, you asked all
+- [36:02.400] the cabinet members who had been to Camp
+- [36:04.880] David before about I think about 3/4 of
+- [36:08.880] I raised my hand, but I haven't been
+- [36:10.560] here for 62 years. I came here
+- [36:14.720] I came here on weekends as many weekends
+- [36:17.119] we could between 1961 and 1963.
+- [36:21.200] My father loved this place. My uncle
+- [36:23.520] loved this place. He was nobody knows
+- [36:26.400] about this because on the history books,
+- [36:28.320] but he was resentful at Dwight
+- [36:30.240] Eisenhower for renaming it Camp David
+- [36:33.520] and he if he had got made it to his
+- [36:36.240] second term, he was going to rename it
+- [36:38.000] Chamberlaw, which was the original
+- [36:40.880] >> name that Roosevelt had had named it.
+- [36:43.760] But my uncle prided himself on being the
+- [36:45.920] most open, transparent administration in
+- [36:48.720] history. He was the first president to
+- [36:50.400] have televised press conferences.
+- [36:52.880] During his thousand days in office, he
+- [36:54.800] had about 30 press conferences. You, Mr.
+- [36:57.920] President, have press conferences every
+- [37:00.160] day. And nobody has done anything.
+- [37:01.785] [laughter]
+- [37:03.839] And and here you've opened the inner
+- [37:06.240] sanctum of the presidency for the first
+- [37:08.480] time in history. And I think that's a
+- [37:10.079] beautiful thing cuz you also face
+- [37:12.640] although you gave these guys a lot of
+- [37:14.480] compliments the most hostile press corps
+- [37:17.839] that any president in United States
+- [37:19.920] history uniformly.
+- [37:23.119] So anyway um I'm going to talk just
+- [37:27.359] briefly about subject you alluded to
+- [37:31.359] which is the MFN. And just so everybody
+- [37:34.240] has a background,
+- [37:36.160] you were ear to every president promised
+- [37:39.040] to fix that disparity between what we
+- [37:41.119] pay and what the other developed
+- [37:43.040] countries have paid. When you came into
+- [37:45.280] office, the list price for OSMIC was
+- [37:47.440] $1350 for Americans. You could get it at
+- [37:51.280] any pharmacy in London, Hamburg,
+- [37:53.440] Frankfurt for $88.
+- [37:56.000] And this every president, President
+- [37:58.079] Bush, President Biden, President
+- [38:00.720] Clinton, President Obama have all
+- [38:03.200] promised to fix this. And none of them
+- [38:04.560] did anything. You fixed it. Is it A
+- [38:09.251] [applause]
+- [38:14.079] by the time you leave office assuming
+- [38:16.000] that's in 2028
+- [38:18.800] um
+- [38:20.400] 95% of the drug that that are available
+- [38:24.000] to Americans they will be paying the
+- [38:26.320] lowest prices in the world. Trump RX
+- [38:29.599] just in the short time that we since we
+- [38:32.000] put it out has saved Americans $700
+- [38:35.119] million. We now have 800 drugs on there.
+- [38:37.920] We have deals with Amazon and with Good
+- [38:40.240] RX. We're adding more and more drugs
+- [38:43.040] every day. And I'll just give you one
+- [38:44.560] example.
+- [38:46.079] Preluent is a very popular cholesterol
+- [38:49.359] drug. Its list price is $522. That's
+- [38:53.440] what everybody is paying. We now have it
+- [38:56.000] on Trump RX for $237.
+- [38:59.440] That means that the 300,000 Americans
+- [39:02.160] who take that drug will be saving $3700
+- [39:06.480] a year on pharmaceuticals
+- [39:09.680] every year. And you can apply that
+- [39:13.359] across the board. This is going to
+- [39:15.119] change. It's making pharmaceuticals
+- [39:17.920] affordable, the most affordable in this
+- [39:19.839] country, of any country in the world.
+- [39:22.160] Thank you, Mr. President.
+- [39:24.160] >> How are you doing on the autism
+- [39:26.720] research? We will have an answer for
+- [39:28.800] you. We just got
+- [39:30.320] >> So important.
+- [39:32.400] >> Okay. We'll be talking about that. We'll
+- [39:34.160] be having something of interest. Such an
+- [39:36.800] important thing. There's a picture of
+- [39:38.400] your uncle right there on the wall. I
+- [39:39.760] know he's looking handsome.
+- [39:42.240] >> And uh that's quite a picture. Did you
+- [39:44.320] see it?
+- [39:44.800] >> Yeah.
+- [39:45.920] >> Maybe that gave me the idea to start out
+- [39:47.760] that way, but it's it's quite a picture.
+- [39:50.000] Uh any questions,
+- [39:51.200] >> Mr. President? Mr. President, how we've
+- [39:53.599] seen these strikes between Iran and the
+- [39:55.599] United States over the past 10 days. How
+- [39:57.200] do you go about reviving the ceasefire
+- [39:59.520] and and getting diplomacy back on track?
+- [40:01.520] >> Well, I think we just want to win. You
+- [40:03.119] know, we just want to win. We're doing
+- [40:04.480] very well. Uh we're trying to be nice,
+- [40:07.680] as nice as you can be in, you know,
+- [40:09.599] situation like that. But, you know,
+- [40:12.320] they're they're being decimated. They
+- [40:14.960] have no navy. They have no air force.
+- [40:16.400] They have no anti-aircraft.
+- [40:19.599] Doesn't mean they don't have any
+- [40:20.800] capability. They have some, but very
+- [40:22.480] little.
+- [40:24.000] We just want to win. We don't want to
+- [40:25.680] have them. is very simple. Uh they
+- [40:28.560] cannot have a nuclear weapon. Iran will
+- [40:31.760] not have a nuclear weapon and they can't
+- [40:33.440] have a nuclear weapon. If they did, the
+- [40:35.680] Middle East would have been wiped out by
+- [40:37.200] now. If I didn't stop the JCPOA, the
+- [40:41.520] Obama deal. If I didn't terminate that,
+- [40:44.079] they would have had a nuclear weapon. I
+- [40:46.000] believe Israel would no longer be with
+- [40:47.599] us and big parts of the Middle East and
+- [40:49.440] perhaps other countries in different
+- [40:51.920] continents, frankly, because these
+- [40:53.760] people are crazy. Uh so they cannot have
+- [40:56.480] a nuclear weapon and they won't.
+- [40:58.480] >> Mr. President [laughter]
+- [41:00.480] over the next four weeks, you know,
+- [41:03.119] we'll be hitting we'll be hitting them
+- [41:04.800] very hard and you know at some point
+- [41:06.960] they're going to say we just can't take
+- [41:08.240] it anymore.
+- [41:08.880] >> Mr. President, on the disarmament deal
+- [41:11.280] that you announced, do you have
+- [41:12.800] assurances from Israel that they are on
+- [41:14.880] board with this deal? And what comes
+- [41:16.560] first? Does Israel pull back and then
+- [41:18.960] Hamas disarms or does Hamas need to
+- [41:20.880] disarm and then Israel dise
+- [41:23.440] understanding with Israel? Israel is
+- [41:24.880] very happy about it. Israel helped us
+- [41:27.440] and they've been very good. They've been
+- [41:30.000] very good about most people said that
+- [41:31.520] would be a deal that would be undoable.
+- [41:33.599] Now will it go through its ups and
+- [41:35.920] downs? It's a very complex situation
+- [41:38.079] over there. The people are very complex
+- [41:39.839] and difficult. Uh many cases wonderful,
+- [41:44.240] many cases not so wonderful. But that
+- [41:46.480] will be a uh it's a great breakthrough.
+- [41:49.119] Nobody's ever thought that would nobody
+- [41:50.720] thought that would be possible to disarm
+- [41:52.800] Hamas. Uh that shows you how much uh
+- [41:57.040] success we're having with Iran because
+- [41:59.200] if you go four months ago, 5 months ago,
+- [42:00.960] a deal like that would have been
+- [42:02.560] impossible. So it's a big step for the
+- [42:04.319] Middle East and people are really
+- [42:06.400] impressed by it and they're surprised by
+- [42:08.000] >> And what comes first, Mr. President?
+- [42:09.599] What comes first?
+- [42:10.400] >> Mr. Mr. Infantino speak to you about
+- [42:12.000] their proposal to sell a stake in the
+- [42:13.520] World Cup and is that something you
+- [42:14.720] support having just happened? Who
+- [42:16.400] >> uh did FIFA or Mr. Infantino speak to
+- [42:19.040] you about their proposal to sell a stake
+- [42:20.800] in the World?
+- [42:22.240] >> Mr. President, um on the you said this
+- [42:24.240] morning on True Social that victims of
+- [42:26.480] government abuse should be paid back.
+- [42:28.880] Even if it's not the anti-weaponization
+- [42:31.040] fund, would you still want the acting
+- [42:33.040] attorney general?
+- [42:33.680] >> Well, I'm talking about the
+- [42:35.280] weaponization against large numbers of
+- [42:38.319] people in our country by the Biden
+- [42:40.000] administration and by Obama, but by the
+- [42:43.280] Biden administration in particular in
+- [42:45.119] this case, but large numbers of people,
+- [42:47.440] their lives have been ruined. They've
+- [42:49.119] been destroyed. Their families have
+- [42:51.119] been, you know, decimated. They've gone
+- [42:53.680] to prison for no reason whatsoever.
+- [42:56.400] There's never been a group of people
+- [42:58.000] most likely I mean I can think of a
+- [42:59.920] couple that were treated pretty badly
+- [43:01.520] groups but there's essentially never
+- [43:03.680] been a group of people treated so badly
+- [43:05.920] as these people and this fund this fund
+- [43:08.319] was not for me this fund was for those
+- [43:10.800] people that have been weaponized that
+- [43:13.040] have been abused now I was abused they
+- [43:15.119] attacked my house Mara Lago where I live
+- [43:17.599] and I was you know big damages should
+- [43:21.040] have been given to me I don't want
+- [43:22.480] anything I I'm not talking about myself
+- [43:25.520] I think that there's a group of people
+- [43:27.119] in this country uh history will show
+- [43:30.319] that were treated like nobody else has
+- [43:34.000] ever been treated so badly, so horribly.
+- [43:37.760] Their families have been ruined. Many,
+- [43:39.680] many suicides have committed suicide.
+- [43:42.400] People that were very successful that
+- [43:44.160] wanted to go to a rally or an event and
+- [43:48.560] ended up spending the rest of their
+- [43:50.960] lives in horror. No. So, I mean, you
+- [43:54.560] could say what you want about the fund
+- [43:56.480] and uh they they've agreed to not have a
+- [43:59.359] fund, but there are a lot of people that
+- [44:01.119] are very upset about it. A lot of
+- [44:02.560] Republican people, a lot of Democrat
+- [44:04.319] people are very upset about it. A lot of
+- [44:06.560] people were covered. I wasn't covered by
+- [44:08.079] that fund. I don't want to be covered by
+- [44:09.599] the fund. I probably was abused more
+- [44:11.599] than anybody in the history of our
+- [44:12.960] country. But I I wasn't looking for
+- [44:15.200] that. But there were a lot of people.
+- [44:16.480] And I'll tell you something, Todd Todd
+- [44:18.240] Blanch is a very very good man. And he
+- [44:21.599] shouldn't be in the middle of this. he
+- [44:23.280] should get approved because you will
+- [44:25.280] never get anybody like him. You're never
+- [44:27.520] going to get anybody. And to make him a
+- [44:29.440] pawn on this whole thing, this is being
+- [44:31.280] done by a senator and I don't really
+- [44:32.880] blame him to be honest with you. I
+- [44:34.640] endorsed his opponent and as soon as I
+- [44:36.880] endorsed his opponent, his opponent went
+- [44:38.560] through the roof and he won the primary
+- [44:40.960] election in Texas for the Senate. And
+- [44:45.680] the man that lost, the man that I didn't
+- [44:47.680] endorse,
+- [44:49.280] has become very angry. And that's okay.
+- [44:51.119] I mean, I understand that. I probably
+- [44:52.720] would do the same thing. You want to
+- [44:54.160] know the truth? I think I do the same
+- [44:55.520] thing.
+- [44:55.760] >> Mr. President, on that note, do you
+- [44:57.440] agree, just to be clear, do you agree
+- [44:58.720] with the acting attorney general that
+- [45:00.079] the anti-weaponization fund is dead? And
+- [45:02.400] why not just put that in place?
+- [45:03.599] >> Well, it is dead, but you know, I wish
+- [45:05.920] it weren't to be honest with you. I
+- [45:07.599] think people were horribly treated,
+- [45:09.760] horribly abused. This has nothing to do
+- [45:11.680] with this was me. Uh, horribly abused.
+- [45:15.119] And I'd like to see them compensated for
+- [45:17.359] the the pain. They lost their families.
+- [45:20.079] They committed suicide. Many people
+- [45:22.240] committed suicide. They went down for an
+- [45:24.880] innocent journey. And I'm not only
+- [45:27.440] talking there. I'm talking about not
+- [45:29.280] even having to do with that. The way
+- [45:31.040] they were treated, the Biden
+- [45:32.720] administration and the Obama
+- [45:34.560] administration weaponized government and
+- [45:37.599] destroyed lives.
+- [45:39.040] >> Mr. Were you willing to accept limits on
+- [45:42.240] the scope of the audit immunity deal in
+- [45:44.400] order to get Attorney General Blanch
+- [45:46.240] confirmed?
+- [45:46.640] >> Well, he should be approved forth with.
+- [45:48.640] I mean, you're never going to get a
+- [45:50.000] person like that. Everybody agrees to
+- [45:52.319] it. Don't forget, uh, Senator Corner
+- [45:55.119] thought he was phenomenal until he lost.
+- [45:57.599] You know, when he lost, is that a
+- [45:59.520] correct statement? You come from Texas.
+- [46:01.599] >> I mean, he thought this was the most
+- [46:03.280] incredible person. And then when he
+- [46:04.720] lost, then he lost because of me. I
+- [46:07.040] endorsed somebody else. And as soon as I
+- [46:08.800] endorsed the other person, the other
+- [46:10.720] person became a rocket ship upward. And
+- [46:13.119] he lost. And, you know, I think I'd be
+- [46:16.560] the same. But would you know I mean I I
+- [46:18.640] shouldn't say that but I I'd be upset
+- [46:21.119] also and I so I fully understand it.
+- [46:25.040] >> He shouldn't be that way. I shouldn't be
+- [46:26.560] that way but he is that way. He's become
+- [46:29.200] a very angry person and I understand you
+- [46:31.280] have a couple of others that have caused
+- [46:33.040] their defeat to and you know you
+- [46:34.640] probably hear from them too. Yeah.
+- [46:36.000] >> Mr. President, back on Iran, there's a
+- [46:38.000] report that you got a proposal from the
+- [46:39.920] military to go big and hit them hard
+- [46:42.079] over 10 or 14 days.
+- [46:43.599] >> We're going big.
+- [46:44.240] >> Are you going to
+- [46:44.880] >> We've already gone big. Look, I mean,
+- [46:46.319] what's big? They had 159 ships. That was
+- [46:49.839] their entire Navy. 159. Their entire
+- [46:52.720] Navy is laying at the bottom of the sea.
+- [46:54.480] I'd say that's going big. Uh they had
+- [46:56.800] 200 airplanes are all gone. Every one of
+- [46:58.880] them. They're not one airplane. They had
+- [47:00.880] anti-aircraft weaponry. Very good, but
+- [47:03.040] it didn't work. And uh it's all gone.
+- [47:06.400] Their radar is all gone. Their leaders
+- [47:08.560] are all gone. Everything's all gone. But
+- [47:11.200] they'll fight onward.
+- [47:12.400] >> Mr. President, on Ukraine, you said the
+- [47:14.720] other day that you're not sure about
+- [47:16.319] whether to grant Ukraine the Patriot
+- [47:18.560] missile license that have been
+- [47:19.760] discussed. Do you want to see more from
+- [47:21.680] Zalinski before you take that action?
+- [47:24.720] >> Well, it's a big step. Look, we have the
+- [47:26.640] greatest weapons in the world. We have
+- [47:29.119] the greatest drones in the world. People
+- [47:30.720] don't know that we have the greatest
+- [47:32.000] weaponry in the world. We have, in the
+- [47:34.319] case of uh President Zalinsky, he'd like
+- [47:36.720] to have some Patriots. They'd like to
+- [47:38.640] have some tomahawks, which are, you
+- [47:41.040] know, lethal. One offensive, one
+- [47:42.560] defensive. But when you give somebody
+- [47:45.280] the right, very complex weapons, by the
+- [47:47.440] way. I mean, the Patriot, as an example,
+- [47:49.440] the other day you read that five
+- [47:52.000] missiles were shot. They were going
+- [47:54.000] 8,600
+- [47:55.839] miles an hour. Think of it. 8,600.
+- [47:58.800] Now, a car, if you go 60, it gets to be
+- [48:01.440] a little faster. If you go 100, 8,600 m
+- [48:05.280] an hour. And they were big missiles. And
+- [48:07.760] they were shot at Jordan and our guys
+- [48:10.319] were there. Bing bing bing bing bing.
+- [48:14.000] Five bing bing bing bing bing. Right. I
+- [48:16.960] don't want to be by [laughter] 106. I
+- [48:19.520] had to be right here. That would have
+- [48:21.760] been that would have been a great sound.
+- [48:23.920] There were five missiles and we shot all
+- [48:25.760] five down before they got close. Nobody
+- [48:29.119] else has that capacity. These weapons
+- [48:31.599] are incredible. We have to be very
+- [48:33.920] careful about letting somebody build
+- [48:36.559] them. You know, it's very uh important.
+- [48:39.440] Now, we are building many plants now to
+- [48:42.480] make those and other the tomahawk
+- [48:44.319] missile is the most incredible thing. It
+- [48:46.640] can go into a doorway. You can put it
+- [48:48.160] through a window of a house. Nobody's
+- [48:51.200] ever seen anything like it. You have to
+- [48:52.960] be very judicious, but you have to be
+- [48:55.280] very careful. Uh now, we have not agreed
+- [48:59.359] to that. We're talking about it, but
+- [49:01.920] it's a hard thing to give away that kind
+- [49:03.599] of technology.
+- [49:05.520] Uh, and I don't think this would ever
+- [49:07.200] happen, but you know those people that
+- [49:08.800] you give that technology, they can
+- [49:10.319] someday turn on you. You know, that is
+- [49:12.400] possible. You look at war, it's happened
+- [49:14.880] a couple of times over the years, right?
+- [49:16.800] So, we have to be very careful. I mean,
+- [49:18.319] we we guard that. We have the greatest
+- [49:20.559] military in the world, but we have the
+- [49:22.559] greatest weapons in the world. Now, we
+- [49:24.319] have to make them a little bit faster
+- [49:25.599] because we've given a lot away. You
+- [49:27.599] know, uh, President Biden unfortunately
+- [49:30.559] gave a lot away to Ukraine and he gave
+- [49:34.400] so did I. I mean, I gave them the
+- [49:36.720] Javelins, the tank busters. Without the
+- [49:39.200] Javelins, that that war would have been
+- [49:40.880] a one-day war. It would have been over.
+- [49:42.240] They wiped out the tanks going up to
+- [49:44.400] Kiev when they got stuck in the mud.
+- [49:46.800] They had a general that decided to go
+- [49:48.559] through the mud instead of going up the
+- [49:50.559] highway where they were going. Very
+- [49:51.839] nice. They would have been over. But,
+- [49:53.839] uh, no, I gave them the Javelins. The
+- [49:55.760] javelins are unbelievably we have the
+- [49:57.599] greatest weapons in the world. We have
+- [49:59.359] to be very careful about giving out the
+- [50:02.319] secrets to those weapons and they're not
+- [50:05.760] you you can't copy them. It's a little
+- [50:07.599] like uh Nvidia. They have a chip. They
+- [50:11.680] say you cannot copy it. The complexity
+- [50:14.240] is so great you cannot you know most
+- [50:16.240] things you copy. China's known for it.
+- [50:18.800] Other countries. We do something and I
+- [50:21.040] guess we copy also but most things you
+- [50:23.520] can copy pretty easily. There's a chip
+- [50:25.760] that they made, their ultimate chip, and
+- [50:28.640] they always have the ultimate jet. And I
+- [50:30.960] say, well, why doesn't somebody copy it?
+- [50:33.200] Because they can't the complexity. They
+- [50:35.680] can't copy our weapons. We have the
+- [50:37.440] greatest weapons in the world. Many of
+- [50:39.040] them. Those are just two or three that I
+- [50:41.280] mentioned. But, uh, you cannot copy
+- [50:44.079] them. So, we have to be very careful.
+- [50:46.480] >> As as Hamas disarms as part of this
+- [50:48.400] plan, who do you see is taking
+- [50:49.680] possession of those weapons that they
+- [50:51.280] had? Does that go to the new government?
+- [50:53.119] Could it be the bord of peace? Mostly
+- [50:55.440] it's going to be run by the border. This
+- [50:56.880] border of peace has been an amazing it's
+- [50:58.960] led by some amazing people. Board of
+- [51:01.040] peace.
+- [51:02.240] >> Mr. President, you said they do have
+- [51:03.680] some capabilities left. Should Americans
+- [51:05.599] be prepared for these back and forth
+- [51:07.599] attacks to continue until the Ronson
+- [51:10.000] able of striker. They'll get weaker.
+- [51:11.839] They'll get a little stronger maybe now,
+- [51:14.079] but they'll get weaker and then they
+- [51:15.920] peter out. Uh yeah, sure. I think so. I
+- [51:19.200] mean, it'd be foolish to say no. You
+- [51:21.359] always have to keep your guard up. What
+- [51:22.960] is the status of talks? Who who went
+- [51:24.640] from the administration?
+- [51:25.520] >> Well, they always want to talk, but they
+- [51:27.040] break their word so often. Steve is
+- [51:29.280] talking. Jared, we have very good
+- [51:31.040] people. Uh JD's involved, very strongly
+- [51:33.359] involved. Uh we have great people
+- [51:35.760] talking. Marco's involved.
+- [51:37.680] >> They say talks aren't happening.
+- [51:38.880] >> Very good people. We have the best
+- [51:40.160] people. But they'll make a deal. As an
+- [51:43.280] example, we'll talk about nuclear and
+- [51:45.440] we'll be in there talking about nuclear
+- [51:46.960] for seven hours. I say, "Why is it Why
+- [51:49.119] do you need seven? You could take 10
+- [51:50.480] minutes. You have five minutes." you
+- [51:52.160] should solve it. But seven hours and
+- [51:54.160] then they'll go out and I'll say they
+- [51:57.200] discuss nuclear and they'll go out and
+- [51:59.200] they'll say we never discuss nuclear and
+- [52:01.760] I'll say why why do they say that? All
+- [52:03.680] they do is make me angry. You know they
+- [52:06.160] just make me angry. Any other questions?
+- [52:08.800] >> Do you believe that you can reach a deal
+- [52:10.800] with Iran given that you talked about
+- [52:12.480] >> I guess you can. I mean look I'm I'm
+- [52:15.280] losing faith in them because they do lie
+- [52:19.440] and do they do misrepresent. Well, the
+- [52:21.680] other day the five missiles were shot.
+- [52:23.599] We knocked them down. But we were in the
+- [52:25.119] midst of a negotiation. I mean, I'm
+- [52:26.559] waiting for Steve to call me. How's the
+- [52:28.079] negotiation going? And instead, I got a
+- [52:31.839] call from Pete that they just shot five
+- [52:34.559] missiles at one of our bases in Jordan.
+- [52:37.440] And we have bases in Jordan.
+- [52:38.960] Fortunately, our people operated the
+- [52:40.880] equipment. It's also very complex to
+- [52:42.880] operate. You know, you talk about the
+- [52:44.240] equipment. It's a very you you have to
+- [52:46.480] be oftenimes you see where did you go to
+- [52:48.960] school? MIT, Caltech, I mean, you know,
+- [52:51.599] they go to schools that are not as
+- [52:54.720] normal for the military. To be honest
+- [52:56.240] with you, we have unbelievably brilliant
+- [52:58.160] people operating that equipment. And
+- [53:00.160] when you don't, you know, the equipment
+- [53:02.160] uh the shots miss, the safety misses or
+- [53:05.920] the accuracy misses, we have
+- [53:08.079] unbelievable people. Think of it. We had
+- [53:10.079] 111 at one point a couple of months ago.
+- [53:14.240] 111 over a short period of time missiles
+- [53:16.640] were shot at the Abraham Lincoln
+- [53:19.119] aircraft carrier. Great, beautiful ship.
+- [53:21.760] One of the most beautiful ships to me
+- [53:23.520] design-wise. 111 missiles going out. Out
+- [53:28.000] of the 111 missiles, 111 missiles were
+- [53:32.960] shot down quite a bit earlier than they
+- [53:36.400] got. I mean, long before they got there,
+- [53:38.720] they were shot down. It was almost, in a
+- [53:40.559] couple of cases, they were shot down
+- [53:41.839] almost as they were taking off. Uh, it's
+- [53:44.640] incredible technology. So, you have a
+- [53:47.040] ship that cost billions of dollars and
+- [53:49.599] you have missiles heading to it. 111
+- [53:53.119] missiles were shot down, routinely shot
+- [53:57.040] down.
+- [53:58.640] And I speak I spoke to the people. I
+- [54:00.400] like to reward people. I call them up.
+- [54:02.079] I'm the president. and uh they were cool
+- [54:05.440] as a cucumber.
+- [54:07.200] >> Mr. President, the last two weeks of
+- [54:08.960] strikes uh by Sentcom. SenCom has said
+- [54:11.680] that those were meant to degrade Iran's
+- [54:13.440] ability to disrupt the straight of
+- [54:14.720] Hormuse. How many more strikes will it
+- [54:16.640] take to significantly
+- [54:17.760] >> Well, you never know. Look, I mean, most
+- [54:19.200] people would have given up by now. You
+- [54:20.880] know, they've got no navy, they got no
+- [54:22.640] air force. Most people would have given
+- [54:24.240] up. They haven't. So, I give them credit
+- [54:26.079] for that. I mean, they're known as being
+- [54:27.599] tough. They're tough.
+- [54:28.640] >> Back back on Ukraine, what did you tell
+- [54:31.119] President Zilinski about the Patriots?
+- [54:32.800] Did you explain all that to him? You're
+- [54:34.480] >> concerned. I spoke about Patriots. I
+- [54:36.079] spoke to him about tomahawks. Spoke to
+- [54:37.839] him about everything. I also spoke to
+- [54:39.040] him about let's get this war over with.
+- [54:41.359] >> So last month they had 25,000 people.
+- [54:43.599] It's averaging about 25,000 people a
+- [54:45.680] month die. Mostly soldiers almost
+- [54:48.800] entirely. But you know missiles are
+- [54:50.960] hitting areas also but mostly soldiers.
+- [54:53.760] They're 25,000 soldiers. The month
+- [54:56.160] before that it was 32,000 soldiers. I
+- [54:58.880] said you got to get this war over with.
+- [55:01.040] I think he wants to make a deal and I
+- [55:02.800] think Putin wants to make a deal, but
+- [55:04.800] there's a lot of dislike as you probably
+- [55:06.720] noticed.
+- [55:07.680] >> He seems very reluctant to make
+- [55:09.200] concessions, President Putin.
+- [55:10.720] >> Well, nobody wants to make concessions,
+- [55:13.040] but they're both going to have to make
+- [55:14.720] some concessions. I mean, they got to
+- [55:16.640] make a deal. 25,000 young, beautiful
+- [55:20.400] people, soldiers, mostly soldiers are
+- [55:23.280] dying a month. It's uh I ended eight
+- [55:27.119] wars. That was the war I thought would
+- [55:29.280] maybe go first, and it really hasn't.
+- [55:31.839] It's kind of I ended wars that were in
+- [55:34.559] theory much more difficult to end. We
+- [55:36.319] had a couple that were uh into the
+- [55:39.599] 30-year category. Well, the Congo, look
+- [55:42.319] at the Congo and Rwanda. That was our
+- [55:44.720] nasty war. And uh they have peace. I
+- [55:48.240] don't know how long that one's going to
+- [55:49.359] stay, but we uh ended India, Pakistan.
+- [55:52.960] 11 planes were shot down. That was
+- [55:54.799] raging. That was good. I used tariffs. I
+- [55:57.520] said, "If you're going to go to war,
+- [55:59.359] 250% tariff to each of them." And they
+- [56:03.839] screamed and yelled and were very angry.
+- [56:05.520] They were both angry about it. And a day
+- [56:08.000] later, they called and they said, "We
+- [56:10.079] will not go to war." But I ended up and
+- [56:12.240] the prime minister of Pakistan said, "I
+- [56:15.119] saved 50 million lives
+- [56:17.680] because that's two nuclear powers,
+- [56:19.440] serious nuclear powers." Thank you very
+- [56:21.440] much everybody. Thank you.
+- [56:23.680] >> Enjoy. Enjoy.
+- [56:29.119] >> I don't No, I think that Minnesota is
+- [56:32.240] behind it. You know who's behind it?
+- [56:34.160] Minnesota because they're grossly
+- [56:35.599] incompetent. I think the governor's
+- [56:37.119] behind it.
+- [56:38.079] >> I don't think there was an Iranian cyber
+- [56:40.960] attack. I think that uh Minnesota ought
+- [56:43.280] to get its act together. It's one of the
+- [56:44.960] worstrun states. JD will tell you he
+- [56:47.760] found tremendous corruption in
+- [56:49.359] Minnesota. Yes, sir. And by the way,
+- [56:51.119] just gave me a report. Massive, massive
+- [56:54.559] future things having to do with
+- [56:56.000] corruption in Minnesota are happening
+- [56:58.319] right now. Thank you.
+- [56:59.359] >> Have you talked to
+- [57:03.520] Thank you. Thank you.
