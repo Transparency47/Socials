@@ -1,7 +1,28 @@
 # TruthSocial / RealDonaldTrump / 2026-08-01
 
-- Posts: 2
+- Posts: 9
 
+- [17:29 UTC - Truth Social post 117021434325482083](117021434325482083/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021434325482083
+  - _No text content captured._
+- [17:29 UTC - Truth Social post 117021433734442808](117021433734442808/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021433734442808
+  - _No text content captured._
+- [17:20 UTC - RT [@ grenell](https://truthsocial.com/@grenell) At the [@ ufc](https://truthsocial.com/@u...](117021398973664851/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021398973664851
+  - RT [@ grenell](https://truthsocial.com/@grenell) At the [@ ufc](https://truthsocial.com/@ufc) fights in Serbia the crowd goes wild for a [@ realDonaldTrump](https://truthsocial.com...
+- [17:04 UTC - Truth Social post 117021334217232037](117021334217232037/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021334217232037
+  - _No text content captured._
+- [16:51 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117021276346508609 Look for you...](117021283621973335/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021283621973335
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117021276346508609 Look for yourselves at the VANDALISM that took place at The Reflecting Pool. The material is being cut...
+- [16:49 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117021210137447022](117021276346508609/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021276346508609
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117021210137447022
+- [16:32 UTC - I disagree 100% with Jeanine Pirro, the U.S. Attorney for the District of Columbia, on the...](117021210137447022/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021210137447022
+  - I disagree 100% with Jeanine Pirro, the U.S. Attorney for the District of Columbia, on the Reflecting Pool. I don’t know what she was thinking? To me, it was a pure case of VANDALI...
 - [11:32 UTC - If Senators Cornyn and Tillis, both upset because I wouldn’t Endorse them (they lost, and ...](117020029291674756/)
   - Source: https://truthsocial.com/@realDonaldTrump/117020029291674756
   - If Senators Cornyn and Tillis, both upset because I wouldn’t Endorse them (they lost, and quit, respectively!), aren’t going to approve Todd Blanche, one of the most respected prof...
