@@ -1,7 +1,97 @@
 # TruthSocial / RealDonaldTrump / 2026-08-01
 
-- Posts: 9
+- Posts: 39
 
+- [18:32 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Because of President Dona...](117021680223306706/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021680223306706
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Because of President Donald J. Trump, Oil Exports are SURGING!
+- [18:32 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Triumphal Arch, prior...](117021679861850287/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021679861850287
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Triumphal Arch, prior to affixing the magnificent Statues and Artwork!
+- [18:32 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Great job by Chairman Ric...](117021679397558908/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021679397558908
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Great job by Chairman Rick Crawford on FoxNews interview - A total Pro!!! President DJT
+- [18:31 UTC - RT [@ grenell](https://truthsocial.com/@grenell) At the [@ ufc](https://truthsocial.com/@u...](117021678901761178/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021678901761178
+  - RT [@ grenell](https://truthsocial.com/@grenell) At the [@ ufc](https://truthsocial.com/@ufc) fights in Serbia the crowd goes wild for a [@ realDonaldTrump](https://truthsocial.com...
+- [18:31 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)](117021678587489555/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021678587489555
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+- [18:31 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Look for yourselves at th...](117021678326137524/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021678326137524
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Look for yourselves at the VANDALISM that took place at The Reflecting Pool. The material is being cut with a knife...
+- [18:31 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)](117021678145055605/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021678145055605
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+- [18:31 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I disagree 100% with Jean...](117021677968973217/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021677968973217
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I disagree 100% with Jeanine Pirro, the U.S. Attorney for the District of Columbia, on the Reflecting Pool. I don’t...
+- [18:28 UTC - Truth Social post 117021665043419371](117021665043419371/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021665043419371
+  - _No text content captured._
+- [18:28 UTC - Truth Social post 117021664185688436](117021664185688436/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021664185688436
+  - _No text content captured._
+- [18:27 UTC - President Trump is fixing our wonderful White House, just like he is fixing our Country!](117021663417295585/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021663417295585
+  - President Trump is fixing our wonderful White House, just like he is fixing our Country!
+- [18:19 UTC - Truth Social post 117021631093676094](117021631093676094/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021631093676094
+  - _No text content captured._
+- [18:19 UTC - Truth Social post 117021630431933157](117021630431933157/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021630431933157
+  - _No text content captured._
+- [18:13 UTC - Truth Social post 117021606854677237](117021606854677237/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021606854677237
+  - _No text content captured._
+- [18:13 UTC - Truth Social post 117021605924070780](117021605924070780/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021605924070780
+  - _No text content captured._
+- [18:13 UTC - Truth Social post 117021604637404448](117021604637404448/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021604637404448
+  - _No text content captured._
+- [18:12 UTC - Because of President Donald J. Trump, Oil Exports are SURGING!](117021602773641695/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021602773641695
+  - Because of President Donald J. Trump, Oil Exports are SURGING!
+- [18:11 UTC - Truth Social post 117021597889745378](117021597889745378/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021597889745378
+  - _No text content captured._
+- [18:09 UTC - Truth Social post 117021589110117563](117021589110117563/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021589110117563
+  - _No text content captured._
+- [18:04 UTC - The Triumphal Arch, prior to affixing the magnificent Statues and Artwork!](117021572940495076/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021572940495076
+  - The Triumphal Arch, prior to affixing the magnificent Statues and Artwork!
+- [18:04 UTC - Truth Social post 117021570461990242](117021570461990242/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021570461990242
+  - _No text content captured._
+- [18:04 UTC - Truth Social post 117021569420804308](117021569420804308/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021569420804308
+  - _No text content captured._
+- [18:03 UTC - Truth Social post 117021567528748142](117021567528748142/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021567528748142
+  - _No text content captured._
+- [18:03 UTC - Truth Social post 117021565635125700](117021565635125700/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021565635125700
+  - _No text content captured._
+- [18:02 UTC - Truth Social post 117021564616431411](117021564616431411/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021564616431411
+  - _No text content captured._
+- [18:02 UTC - Truth Social post 117021563160419197](117021563160419197/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021563160419197
+  - _No text content captured._
+- [18:02 UTC - Truth Social post 117021561580720388](117021561580720388/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021561580720388
+  - _No text content captured._
+- [17:44 UTC - Great job by Chairman Rick Crawford on FoxNews interview - A total Pro!!! President DJT](117021491521539896/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021491521539896
+  - Great job by Chairman Rick Crawford on FoxNews interview - A total Pro!!! President DJT
+- [17:31 UTC - Truth Social post 117021439980146562](117021439980146562/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021439980146562
+  - _No text content captured._
+- [17:30 UTC - Truth Social post 117021437069294398](117021437069294398/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021437069294398
+  - _No text content captured._
 - [17:29 UTC - Truth Social post 117021434325482083](117021434325482083/)
   - Source: https://truthsocial.com/@realDonaldTrump/117021434325482083
   - _No text content captured._
