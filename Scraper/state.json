@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/Tw69V66kwyg: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=Tw69V66kwyg! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/U-KkyBGvAdM: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=U-KkyBGvAdM! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -129551,6 +129551,83 @@
       "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Because of President Dona...",
       "url": "https://truthsocial.com/@realDonaldTrump/117021680223306706"
     },
+    "truthsocial:realdonaldtrump:117021681596595280": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-01T19:52:30.335792+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/01/117021681596595280",
+      "platform": "truthsocial",
+      "post_id": "117021681596595280",
+      "published": "2026-08-01T18:32:35.221000+00:00",
+      "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) President Trump is fixing...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117021681596595280"
+    },
+    "truthsocial:realdonaldtrump:117021682652872824": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-01T19:52:30.335369+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/01/117021682652872824",
+      "platform": "truthsocial",
+      "post_id": "117021682652872824",
+      "published": "2026-08-01T18:32:51.343000+00:00",
+      "title": "RT [@ grenell](https://truthsocial.com/@grenell) At the [@ ufc](https://truthsocial.com/@u...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117021682652872824"
+    },
+    "truthsocial:realdonaldtrump:117021682909281030": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-01T19:52:30.334652+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/01/117021682909281030",
+      "platform": "truthsocial",
+      "post_id": "117021682909281030",
+      "published": "2026-08-01T18:32:55.250000+00:00",
+      "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Great job by Chairman Ric...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117021682909281030"
+    },
+    "truthsocial:realdonaldtrump:117021731048623726": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-01T19:52:30.334081+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/01/117021731048623726",
+      "platform": "truthsocial",
+      "post_id": "117021731048623726",
+      "published": "2026-08-01T18:45:09.798000+00:00",
+      "title": "Truth Social post 117021731048623726",
+      "url": "https://truthsocial.com/@realDonaldTrump/117021731048623726"
+    },
+    "truthsocial:realdonaldtrump:117021958142380286": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-01T19:52:30.333794+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/01/117021958142380286",
+      "platform": "truthsocial",
+      "post_id": "117021958142380286",
+      "published": "2026-08-01T19:42:54.979000+00:00",
+      "title": "Truth Social post 117021958142380286",
+      "url": "https://truthsocial.com/@realDonaldTrump/117021958142380286"
+    },
+    "truthsocial:realdonaldtrump:117021975056793288": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-01T19:52:30.333516+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/01/117021975056793288",
+      "platform": "truthsocial",
+      "post_id": "117021975056793288",
+      "published": "2026-08-01T19:47:13.072000+00:00",
+      "title": "Truth Social post 117021975056793288",
+      "url": "https://truthsocial.com/@realDonaldTrump/117021975056793288"
+    },
+    "truthsocial:realdonaldtrump:117021975932431372": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-01T19:52:30.333191+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/01/117021975932431372",
+      "platform": "truthsocial",
+      "post_id": "117021975932431372",
+      "published": "2026-08-01T19:47:26.433000+00:00",
+      "title": "Truth Social post 117021975932431372",
+      "url": "https://truthsocial.com/@realDonaldTrump/117021975932431372"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -179600,6 +179677,17 @@
       "published": "2025-05-22T01:33:50+00:00",
       "title": "President Trump Welcomes The University of Florida Gators to The White House",
       "url": "https://www.youtube.com/watch?v=TvhewZAoxRY"
+    },
+    "youtube:whitehouse:Tw69V66kwyg": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-08-01T19:52:58.236218+00:00",
+      "path": "YouTube/WhiteHouse/2026/08/01/Tw69V66kwyg",
+      "platform": "youtube",
+      "post_id": "Tw69V66kwyg",
+      "published": "2026-08-01T15:54:56+00:00",
+      "title": "President Trump Greets Military in New Jersey",
+      "url": "https://www.youtube.com/shorts/Tw69V66kwyg"
     },
     "youtube:whitehouse:TweYf9gPz-4": {
       "account": "WhiteHouse",

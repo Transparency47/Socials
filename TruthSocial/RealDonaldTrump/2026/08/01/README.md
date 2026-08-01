@@ -1,7 +1,28 @@
 # TruthSocial / RealDonaldTrump / 2026-08-01
 
-- Posts: 39
+- Posts: 46
 
+- [19:47 UTC - Truth Social post 117021975932431372](117021975932431372/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021975932431372
+  - _No text content captured._
+- [19:47 UTC - Truth Social post 117021975056793288](117021975056793288/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021975056793288
+  - _No text content captured._
+- [19:42 UTC - Truth Social post 117021958142380286](117021958142380286/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021958142380286
+  - _No text content captured._
+- [18:45 UTC - Truth Social post 117021731048623726](117021731048623726/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021731048623726
+  - _No text content captured._
+- [18:32 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Great job by Chairman Ric...](117021682909281030/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021682909281030
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Great job by Chairman Rick Crawford on FoxNews interview - A total Pro!!! President DJT
+- [18:32 UTC - RT [@ grenell](https://truthsocial.com/@grenell) At the [@ ufc](https://truthsocial.com/@u...](117021682652872824/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021682652872824
+  - RT [@ grenell](https://truthsocial.com/@grenell) At the [@ ufc](https://truthsocial.com/@ufc) fights in Serbia the crowd goes wild for a [@ realDonaldTrump](https://truthsocial.com...
+- [18:32 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) President Trump is fixing...](117021681596595280/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117021681596595280
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) President Trump is fixing our wonderful White House, just like he is fixing our Country!
 - [18:32 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Because of President Dona...](117021680223306706/)
   - Source: https://truthsocial.com/@realDonaldTrump/117021680223306706
   - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Because of President Donald J. Trump, Oil Exports are SURGING!
