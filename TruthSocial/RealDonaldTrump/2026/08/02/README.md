@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-08-02
 
-- Posts: 8
+- Posts: 9
 
+- [18:30 UTC - The Winning Shot in the Bedminster Club Championship! Thank you very much to all of those ...](117027337618143949/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117027337618143949
+  - The Winning Shot in the Bedminster Club Championship! Thank you very much to all of those who participated. I won with a score of 70, and am so honored in that, unlike the rest of...
 - [16:22 UTC - [https://www. energy.gov/articles/secretary- wright-directs-sable-offshore-restore-santa-y...](117026832680116899/)
   - Source: https://truthsocial.com/@realDonaldTrump/117026832680116899
   - [https://www. energy.gov/articles/secretary- wright-directs-sable-offshore-restore-santa-ynez-unit-and-pipeline](https://www.energy.gov/articles/secretary-wright-directs-sable-offs...
