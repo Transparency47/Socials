@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/U-KkyBGvAdM: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=U-KkyBGvAdM! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/U-KkyBGvAdM: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=U-KkyBGvAdM! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -129660,6 +129660,50 @@
       "published": "2026-08-02T11:20:56.001000+00:00",
       "title": "Trump's new NIH chief outlines sweeping reforms like new pandemic playbook, vaccine injury...",
       "url": "https://truthsocial.com/@realDonaldTrump/117025646575450964"
+    },
+    "truthsocial:realdonaldtrump:117026026144388651": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-02T13:56:08.899413+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/02/117026026144388651",
+      "platform": "truthsocial",
+      "post_id": "117026026144388651",
+      "published": "2026-08-02T12:57:27.760000+00:00",
+      "title": "'PO'd' Evers vows to resist any FBI effort to seize Milwaukee ballots: [https://www. jsonl...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117026026144388651"
+    },
+    "truthsocial:realdonaldtrump:117026027292723194": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-02T13:56:08.898942+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/02/117026027292723194",
+      "platform": "truthsocial",
+      "post_id": "117026027292723194",
+      "published": "2026-08-02T12:57:45.281000+00:00",
+      "title": "Mexico's Problem: [https://www. billoreilly.com/b/Mexicos-Prob lem/-45344169968241838.html...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117026027292723194"
+    },
+    "truthsocial:realdonaldtrump:117026028607181563": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-02T13:56:08.898488+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/02/117026028607181563",
+      "platform": "truthsocial",
+      "post_id": "117026028607181563",
+      "published": "2026-08-02T12:58:05.342000+00:00",
+      "title": "Trump\u2019s Energy Triumph: [https://www. wsj.com/opinion/trumps-energy- triumph-82e4b953](htt...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117026028607181563"
+    },
+    "truthsocial:realdonaldtrump:117026031118146577": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-02T13:56:08.897943+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/02/117026031118146577",
+      "platform": "truthsocial",
+      "post_id": "117026031118146577",
+      "published": "2026-08-02T12:58:43.652000+00:00",
+      "title": "Why I Put President Trump's Name on Palm Beach's Airport: [https:// townhall.com/columnist...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117026031118146577"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
