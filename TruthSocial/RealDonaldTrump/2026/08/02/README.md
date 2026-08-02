@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-08-02
 
-- Posts: 7
+- Posts: 8
 
+- [16:22 UTC - [https://www. energy.gov/articles/secretary- wright-directs-sable-offshore-restore-santa-y...](117026832680116899/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117026832680116899
+  - [https://www. energy.gov/articles/secretary- wright-directs-sable-offshore-restore-santa-ynez-unit-and-pipeline](https://www.energy.gov/articles/secretary-wright-directs-sable-offs...
 - [12:58 UTC - Why I Put President Trump's Name on Palm Beach's Airport: [https:// townhall.com/columnist...](117026031118146577/)
   - Source: https://truthsocial.com/@realDonaldTrump/117026031118146577
   - Why I Put President Trump's Name on Palm Beach's Airport: [https:// townhall.com/columnists/meg-we inberger/2026/07/14/why-i-put-president-trumps-name-on-palm-beachs-airport-n26793...
