@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/U-KkyBGvAdM: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=U-KkyBGvAdM! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/U-KkyBGvAdM: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=U-KkyBGvAdM! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -129638,6 +129638,28 @@
       "published": "2026-08-02T02:05:08.929000+00:00",
       "title": "The U.S.A. is locked and loaded and ready to go against the Islamic Republic of Iran, at l...",
       "url": "https://truthsocial.com/@realDonaldTrump/117023461141824050"
+    },
+    "truthsocial:realdonaldtrump:117025644223308461": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-02T12:14:47.324083+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/02/117025644223308461",
+      "platform": "truthsocial",
+      "post_id": "117025644223308461",
+      "published": "2026-08-02T11:20:20.104000+00:00",
+      "title": "Trump administration creating \u2018incubators\u2019 to develop new tech to counter drone terror att...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117025644223308461"
+    },
+    "truthsocial:realdonaldtrump:117025646575450964": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-02T12:14:47.323566+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/02/117025646575450964",
+      "platform": "truthsocial",
+      "post_id": "117025646575450964",
+      "published": "2026-08-02T11:20:56.001000+00:00",
+      "title": "Trump's new NIH chief outlines sweeping reforms like new pandemic playbook, vaccine injury...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117025646575450964"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
