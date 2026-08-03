@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-08-03
 
-- Posts: 4
+- Posts: 5
 
+- [16:51 UTC - Truth Social post 117032607018876906](117032607018876906/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117032607018876906
+  - _No text content captured._
 - [15:25 UTC - Iranian Leadership is unbelievably duplicitous! They ask for a meeting, some would say “be...](117032272228248086/)
   - Source: https://truthsocial.com/@realDonaldTrump/117032272228248086
   - Iranian Leadership is unbelievably duplicitous! They ask for a meeting, some would say “beg,” talks begin, with more scheduled in the immediate future, and they say, openly and pro...
