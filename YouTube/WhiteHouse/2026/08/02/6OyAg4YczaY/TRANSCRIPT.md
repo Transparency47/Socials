@@ -1,0 +1,223 @@
+<!-- source: https://www.youtube.com/watch?v=6OyAg4YczaY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 6OyAg4YczaY -->
+<!-- date_published: 2026-08-02T22:29:22+00:00 -->
+<!-- date_accessed: 2026-08-03T11:42:13.517119+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One En Route Joint Base Andrews, Aug. 2, 2026
+
+- [00:00.080] Yes.
+- [00:00.560] >> Hi everybody.
+- [00:02.159] >> So go ahead.
+- [00:03.360] >> What prompted you to call off the
+- [00:05.520] strikes last night?
+- [00:07.120] >> I was asked to by Saudi Arabia, by UAE,
+- [00:11.920] by Qatar, and by Iran. Uh we were all
+- [00:15.679] set to go. It's about at this time right
+- [00:18.240] now, and uh it would have been a massive
+- [00:22.560] attack. we're all set to go. But when
+- [00:25.680] the allies ask to call it off, you got
+- [00:29.920] to sort of say, well, let's see. And the
+- [00:32.160] reason they asked is they think there's
+- [00:33.600] a deal. There's a deal on hormones and
+- [00:36.320] then there will be a deal on the nuclear
+- [00:39.200] or you might call it the
+- [00:40.160] denuclearization of Iran. I call it the
+- [00:42.640] denuclearization of Iran.
+- [00:44.800] >> What should we expect?
+- [00:46.160] >> We're holding it. We'll just see. We can
+- [00:48.800] do it anytime we want. But uh we were
+- [00:52.320] asked by the three primary groups. Uh we
+- [00:56.480] were also asked by Iran very strongly
+- [00:58.559] actually. They said we'd like to make a
+- [01:01.120] deal. Now you know I don't know what
+- [01:02.399] they say because a lot of times they'll
+- [01:04.320] say that to me and then they'll go out
+- [01:05.600] and say we don't know what he's talking
+- [01:06.880] about. Obviously they don't want to be
+- [01:08.240] attacked
+- [01:09.600] >> and they knew they knew the extent of
+- [01:11.200] the attack because they saw it forming.
+- [01:13.920] >> What happens now?
+- [01:15.600] >> Well now what we're doing is we're
+- [01:17.200] talking to them in the form of a
+- [01:18.640] negotiation. It begins tomorrow
+- [01:21.040] afternoon and we'll see if it's true.
+- [01:23.280] I'd love to do that. Save a lot of
+- [01:24.720] lives. Save a lot of lot of unnecessary
+- [01:29.119] power to be honest with you. It would
+- [01:31.040] take many many years to ever build it
+- [01:33.200] back. If it could, I don't think it
+- [01:34.560] would be even buildable back. So, we had
+- [01:37.119] a we had an attack that would be the
+- [01:39.759] biggest attack since World War II and it
+- [01:43.360] would have been disastrous for them. And
+- [01:47.600] they didn't want us to do it. and and
+- [01:49.360] frankly Saudi Arabia didn't want it
+- [01:51.680] either. They thought that a deal is
+- [01:55.119] eminent.
+- [01:55.759] >> Is there a deadline sir on the
+- [01:57.200] >> deal is eminent having to do with the
+- [01:58.799] homo strain and also uh the ultimately
+- [02:02.640] the denuclearization of it. So when I
+- [02:05.759] hear that I say well do we want to go
+- [02:08.239] and be this now there's a group of
+- [02:10.319] people that would like me to just do it
+- [02:12.400] and there's another group of people that
+- [02:14.160] does not want me to do it.
+- [02:16.800] >> Does Iran have a deadline to come to an
+- [02:19.200] agreement?
+- [02:20.720] We'll just see. We'll just see how it
+- [02:22.319] is. We're ready to go anytime we want.
+- [02:24.560] Uh would I rather make a deal? I'm not
+- [02:27.360] looking to kill people because people
+- [02:29.680] die. A lot of people die and we don't
+- [02:31.680] want that. So they asked us, Iran
+- [02:35.840] specifically, but the other three said
+- [02:37.920] we really I asked them I asked Saudi
+- [02:40.000] Arabia the king. I said the crown prince
+- [02:43.840] I said what would you rather do? Would
+- [02:45.599] you rather have us do this or not? They
+- [02:47.519] said we would much prefer a deal as
+- [02:50.480] opposed to an attack because you don't
+- [02:52.879] know where these attacks lead. I mean,
+- [02:54.959] will they be flooded with people pouring
+- [02:57.599] into their country and disaster? A lot
+- [03:00.319] of lot of bad things can happen.
+- [03:02.159] >> Sir, there sir, there's a report that
+- [03:03.760] you're moving US troops out of Bahrain
+- [03:05.760] and Kuwait. Are troops being moved out
+- [03:07.440] of the Middle East?
+- [03:09.440] >> Mr. President, why is the US intervening
+- [03:11.680] to support the Japan uh yen at this
+- [03:14.640] time? to support the Japanese currency.
+- [03:17.760] >> Uh because we have a good relationship
+- [03:20.400] with Japan. We're very strong, very very
+- [03:23.599] strong financially.
+- [03:25.440] They are, you know, they have a
+- [03:26.879] weakening yen and they wanted a little
+- [03:29.040] bit of help and we're always there for
+- [03:30.560] Japan. Japan's been very good to us with
+- [03:33.519] the exception of course of Pearl Harbor.
+- [03:35.519] Mr.
+- [03:36.239] >> What is the US what is the US getting
+- [03:38.080] out of that arrangement?
+- [03:39.840] >> Financial benefit. financial benefit. We
+- [03:42.720] also it's also good for the world
+- [03:44.480] economy.
+- [03:45.840] >> But we we make like when we did with
+- [03:48.159] Argentina, I got criticized. We made $25
+- [03:50.400] billion on that deal. Uh on Venezuela,
+- [03:53.840] we make hundreds of billions of dollars.
+- [03:56.080] I make good deals. Intel,
+- [03:58.959] I made $75 billion for the country. I
+- [04:01.760] didn't make for me, I made for the
+- [04:02.959] country. Intel, I backed Intel. It's the
+- [04:06.159] hottest stock right now on the New York
+- [04:07.760] Stock on the various stock exchanges. So
+- [04:10.400] we made about 75 to 80 billion dollars
+- [04:14.239] and Japan wanted to it was really uh
+- [04:17.759] more than anything else it was a signal
+- [04:20.639] of friendship.
+- [04:22.160] >> You said you said that the weakening
+- [04:25.120] >> and the dollar is doing great.
+- [04:26.560] >> You said the answer
+- [04:27.440] >> the fact is our country is doing great.
+- [04:30.800] Everybody wants help from our country.
+- [04:33.120] >> You said the anti-weapon I'm with ABC
+- [04:35.120] means you said the anti ABC.
+- [04:37.680] >> Oh ABC that's worse. You said the
+- [04:39.759] anti-weaponization
+- [04:40.880] >> better than ABC is ahead.
+- [04:42.720] >> The anti-weaponization fund is back on
+- [04:44.639] the table. What are your plans?
+- [04:45.919] >> Oh, they don't improve. Look, we have a
+- [04:47.440] man named Todd Lee. He's outstanding in
+- [04:50.000] every way. Most of you know who he is.
+- [04:52.320] You're not going to find a better
+- [04:53.440] person. And everybody and it's because I
+- [04:56.560] backed Bernan's opponent and his
+- [04:59.040] opponent won in a landslide. This that's
+- [05:01.759] the only reason it's happening. But I
+- [05:04.080] will say there are a lot of people that
+- [05:05.440] like uh people were hurt so badly.
+- [05:09.360] 22 suicides. They were destroyed. Their
+- [05:12.320] families were destroyed for doing things
+- [05:14.400] that honestly there's never been an
+- [05:16.320] attack on any group of people in this
+- [05:18.880] country in my opinion. Maybe one there's
+- [05:21.280] one group that was attacked violently
+- [05:23.600] and viciously like these people were
+- [05:26.080] attacked and this would be a
+- [05:28.080] reimbursement for the pain that they
+- [05:29.680] suffered. A lot of people like it. Uh if
+- [05:32.240] they don't if they don't approve time, I
+- [05:34.720] put it back on the table. A lot of
+- [05:36.320] people like it. A lot of big supporters
+- [05:38.800] of Trump like it.
+- [05:39.840] >> Mr. President, there's been some
+- [05:41.360] domestic abuse allegations against
+- [05:43.440] Congressman Max Miller. Do you think he
+- [05:46.560] should resign?
+- [05:47.440] >> Well, I'm going to look at it. I mean,
+- [05:48.880] so far it's accusations. I'll be looking
+- [05:52.160] at it.
+- [05:55.199] >> Will the Sorry. Will the US do anything
+- [05:56.720] to address open AI and anthropics uh
+- [05:58.960] models hacking other systems?
+- [06:00.800] >> We're very much involved in that. We
+- [06:02.479] have a a big stake in that. So does the
+- [06:04.960] world. So we're looking at it. on
+- [06:07.120] Canada. Have you decided on a punishment
+- [06:09.120] yet for the wildfire smoke?
+- [06:11.039] >> What if Can you share?
+- [06:13.919] >> Back on Iran. Were you prepared to hit
+- [06:16.319] energy targets?
+- [06:17.440] >> I don't want to say that.
+- [06:19.840] >> It was going to be a massive attack. It
+- [06:22.319] was going to be attack that would have
+- [06:23.680] been by far the biggest attack since
+- [06:25.280] World War II. But they've asked us not
+- [06:27.360] to do it. They said, "Please don't do
+- [06:29.680] it." And other their neighbors said that
+- [06:31.919] too. And so we're just going to see
+- [06:33.680] whether or not we can make a deal for
+- [06:35.680] the denuclearization
+- [06:37.280] >> tomorrow. Some negotiations as you say,
+- [06:40.080] but it will.
+- [06:43.520] What's your directive for him? He's
+- [06:45.199] >> he's going to do a great job. He's
+- [06:46.400] outstanding as you know. He's an
+- [06:47.919] outstanding man. You look at his
+- [06:50.080] education. He was the head of he was
+- [06:52.479] immediately very early at a young age.
+- [06:55.039] Uh went to the head of Sullivan and
+- [06:56.800] Cromwell, one of the most prestigious,
+- [06:58.319] maybe the most prestigious law firm in
+- [07:00.080] the world. Uh he headed up uh well let's
+- [07:03.840] see I mean look at the companies look at
+- [07:05.759] what he did. Oh by the way and he was a
+- [07:07.759] great for four years he was a great uh
+- [07:10.560] SEC chairman.
+- [07:11.599] >> Do you want him to continue the
+- [07:13.199] initiatives that you had Bill Py doing?
+- [07:15.840] >> I want him to do what he wants to do.
+- [07:17.360] He's an outstanding person. Everybody
+- [07:19.759] wanted him and he really I mean he's
+- [07:22.319] truly outs.
+- [07:23.759] >> Nancy Guthrie the the investigation into
+- [07:26.479] her disappearance now six months stalled
+- [07:29.919] out. Is it time for the FBI to get
+- [07:32.319] involved or
+- [07:33.120] >> Well, they are involved to an extent but
+- [07:35.039] as you know the local community really
+- [07:37.280] runs those things and some people
+- [07:39.919] haven't liked the way the local
+- [07:41.280] community is running it. They haven't
+- [07:43.039] liked the way the sheriff's run it. But
+- [07:45.520] we would like to give them the benefit.
+- [07:47.280] But we're there anytime they need us.
+- [07:48.960] Well, it's a terrible thing. Thank you
+- [07:50.479] very much everybody.
+- [07:51.440] >> Thank you, sir. Thank you.
