@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-08-03
 
-- Posts: 3
+- Posts: 4
 
+- [15:25 UTC - Iranian Leadership is unbelievably duplicitous! They ask for a meeting, some would say “be...](117032272228248086/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117032272228248086
+  - Iranian Leadership is unbelievably duplicitous! They ask for a meeting, some would say “beg,” talks begin, with more scheduled in the immediate future, and they say, openly and pro...
 - [13:50 UTC - Mike Wirth, Chairman and CEO of Chevron, just gave, in an interview with the fabulous Mari...](117031897808226413/)
   - Source: https://truthsocial.com/@realDonaldTrump/117031897808226413
   - Mike Wirth, Chairman and CEO of Chevron, just gave, in an interview with the fabulous Maria Bartiromo, all of the reasons that his company is doing so well. The only thing he conve...
