@@ -1,7 +1,25 @@
 # TruthSocial / RealDonaldTrump / 2026-08-03
 
-- Posts: 44
+- Posts: 50
 
+- [23:18 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to e...](117034128637453413/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117034128637453413
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to endorse MAGA Warrior, Rick Brattin, who is running to represent the wonderful people of Mis...
+- [23:12 UTC - It is my Great Honor to endorse America First Patriot, Jon Maples, who is running to repre...](117034106669602255/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117034106669602255
+  - It is my Great Honor to endorse America First Patriot, Jon Maples, who is running to represent the fantastic people of Florida’s 87th State House District! Jon is a very successful...
+- [22:52 UTC - Wilton Simpson is the strong and highly popular Agriculture Commissioner for Florida, my “...](117034028758585872/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117034028758585872
+  - Wilton Simpson is the strong and highly popular Agriculture Commissioner for Florida, my “Home” State, which I love and won SIX times, including with 6.1 Million Votes in 2024, the...
+- [22:52 UTC - Senator Ashley Moody is doing a tremendous job representing the incredible people of Flori...](117034028243368433/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117034028243368433
+  - Senator Ashley Moody is doing a tremendous job representing the incredible people of Florida, a State I love, and WON BIG, in 2016, 2020, and 2024! A fifth generation Floridian, As...
+- [22:50 UTC - Florida Attorney General James Uthmeier is doing a GREAT job for the Sunshine State, which...](117034019722581517/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117034019722581517
+  - Florida Attorney General James Uthmeier is doing a GREAT job for the Sunshine State, which I won BIG in 2016, 2020, and 2024. James is an America First Warrior, who is a true champ...
+- [22:50 UTC - Highly Respected Congressman Byron Donalds is running for Governor of Florida, a State tha...](117034018510245019/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117034018510245019
+  - Highly Respected Congressman Byron Donalds is running for Governor of Florida, a State that I love, and WON BIG, in 2016, 2020, and 2024. I know Byron well, have seen him tested at...
 - [22:28 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to e...](117033932185213468/)
   - Source: https://truthsocial.com/@realDonaldTrump/117033932185213468
   - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to endorse MAGA Warrior, Rick Brattin, who is running to represent the wonderful people of Mis...
