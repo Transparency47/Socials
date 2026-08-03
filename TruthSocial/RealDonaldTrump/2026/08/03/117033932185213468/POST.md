@@ -1,0 +1,14 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/117033932185213468 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 117033932185213468 -->
+<!-- date_published: 2026-08-03T22:28:04.374000+00:00 -->
+<!-- date_accessed: 2026-08-03T22:32:50.715605+00:00 -->
+
+# RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to e...
+
+RT
+[@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+It is my Great Honor to endorse MAGA Warrior, Rick Brattin, who is running to represent the wonderful people of Missouri’s 5th Congressional District! Rick is strongly supported by many of the greatest America First Patriots in Missouri, including Governor Mike Kehoe, and Congressmen Jason Smith, Bob Onder, and Eric Burlison, among others!
+From bravely fighting for the U.S. Marine Corps, to strongly representing his community as a State Senator, Rick has served his State and Nation with great distinction, and will bring that same Fighting Spirit to the U.S. Congress. Everywhere Rick Brattin has gone, he has been respected! As your next Congressman, Rick will work tirelessly to Grow our Economy, Cut Taxes and Regulations, Promote MADE IN THE U.S.A., Unleash American Energy DOMINANCE, Keep our Border SECURE, Stop Migrant Crime, Strengthen our Incredible Military/Veterans, Safeguard our Elections, and Defend our always under siege Second Amendment, which I have flawlessly fought to protect for many years.
+Rick Brattin has my Complete and Total Endorsement to be the next Representative from Missouri’s 5th Congressional District – RICK WILL NEVER LET YOU DOWN!

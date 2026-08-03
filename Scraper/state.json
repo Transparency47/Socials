@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=EtctNOj2gz4: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=EtctNOj2gz4! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=EtctNOj2gz4&ei=MQZxap-qCJjCy_sP296WsQc&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1785817249&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=A0CC20BFBAC15FB7AA8EA30519AC357E1E0915F9.8588052C33D93A4B343A6FA5CA40FA5473F14D9F&key=yt8&kind=asr&lang=en&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/U-KkyBGvAdM: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=U-KkyBGvAdM! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -129925,6 +129925,336 @@
       "title": "From Greg Wischer at the United States Department of the Interior: \u201cThe statue of Baron Fr...",
       "url": "https://truthsocial.com/@realDonaldTrump/117033476616816431"
     },
+    "truthsocial:realdonaldtrump:117033867270603571": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:51.162173+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033867270603571",
+      "platform": "truthsocial",
+      "post_id": "117033867270603571",
+      "published": "2026-08-03T22:11:33.853000+00:00",
+      "title": "It is my Great Honor to endorse Ty Masterson, a fantastic Candidate running to be the next...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033867270603571"
+    },
+    "truthsocial:realdonaldtrump:117033868905874467": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:51.161440+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033868905874467",
+      "platform": "truthsocial",
+      "post_id": "117033868905874467",
+      "published": "2026-08-03T22:11:58.803000+00:00",
+      "title": "Senator Roger Marshall is an incredibly strong advocate for the wonderful people of Kansas...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033868905874467"
+    },
+    "truthsocial:realdonaldtrump:117033872292019458": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:51.160588+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033872292019458",
+      "platform": "truthsocial",
+      "post_id": "117033872292019458",
+      "published": "2026-08-03T22:12:50.474000+00:00",
+      "title": "Congressman Tracey Mann is an incredible Representative for the wonderful people of Kansas...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033872292019458"
+    },
+    "truthsocial:realdonaldtrump:117033873531492760": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:51.159950+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033873531492760",
+      "platform": "truthsocial",
+      "post_id": "117033873531492760",
+      "published": "2026-08-03T22:13:09.384000+00:00",
+      "title": "Congressman Derek Schmidt is an incredible Representative of Kansas\u2019 2nd Congressional Dis...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033873531492760"
+    },
+    "truthsocial:realdonaldtrump:117033874840729919": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:51.159295+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033874840729919",
+      "platform": "truthsocial",
+      "post_id": "117033874840729919",
+      "published": "2026-08-03T22:13:29.362000+00:00",
+      "title": "Congressman Ron Estes is a Tremendous Champion for Kansas\u2019 4th Congressional District! A F...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033874840729919"
+    },
+    "truthsocial:realdonaldtrump:117033875954997766": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:51.158650+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033875954997766",
+      "platform": "truthsocial",
+      "post_id": "117033875954997766",
+      "published": "2026-08-03T22:13:46.368000+00:00",
+      "title": "It is my Great Honor to endorse America First Congressman, John James, who is running to b...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033875954997766"
+    },
+    "truthsocial:realdonaldtrump:117033877183084463": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:51.157979+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033877183084463",
+      "platform": "truthsocial",
+      "post_id": "117033877183084463",
+      "published": "2026-08-03T22:14:05.103000+00:00",
+      "title": "America First Patriot Mike Rogers is running for U.S. Senate in the Great State of Michiga...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033877183084463"
+    },
+    "truthsocial:realdonaldtrump:117033878445500893": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:51.157289+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033878445500893",
+      "platform": "truthsocial",
+      "post_id": "117033878445500893",
+      "published": "2026-08-03T22:14:24.366000+00:00",
+      "title": "Congressman Jack Bergman is a Tremendous Champion for the Great People of Michigan's 1st C...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033878445500893"
+    },
+    "truthsocial:realdonaldtrump:117033879705646897": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:51.156603+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033879705646897",
+      "platform": "truthsocial",
+      "post_id": "117033879705646897",
+      "published": "2026-08-03T22:14:43.598000+00:00",
+      "title": "Congressman John Moolenaar is an incredible Representative for the fantastic people of Mic...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033879705646897"
+    },
+    "truthsocial:realdonaldtrump:117033881126948690": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:51.155924+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033881126948690",
+      "platform": "truthsocial",
+      "post_id": "117033881126948690",
+      "published": "2026-08-03T22:15:05.281000+00:00",
+      "title": "Congressman Bill Huizenga is a Tremendous Champion, and Highly Effective Representative, f...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033881126948690"
+    },
+    "truthsocial:realdonaldtrump:117033885856786257": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:50.747707+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033885856786257",
+      "platform": "truthsocial",
+      "post_id": "117033885856786257",
+      "published": "2026-08-03T22:16:17.457000+00:00",
+      "title": "Congressman Tim Walberg is an incredible Representative of Michigan's 5th Congressional Di...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033885856786257"
+    },
+    "truthsocial:realdonaldtrump:117033887964832175": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:50.747081+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033887964832175",
+      "platform": "truthsocial",
+      "post_id": "117033887964832175",
+      "published": "2026-08-03T22:16:49.622000+00:00",
+      "title": "Congressman Tom Barrett is an incredible Representative for the Wonderful People of Michig...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033887964832175"
+    },
+    "truthsocial:realdonaldtrump:117033890371243581": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:50.746440+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033890371243581",
+      "platform": "truthsocial",
+      "post_id": "117033890371243581",
+      "published": "2026-08-03T22:17:26.338000+00:00",
+      "title": "It is my Great Honor to endorse Amir Hassan, who is running to represent the fantastic peo...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033890371243581"
+    },
+    "truthsocial:realdonaldtrump:117033891468891637": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:50.745714+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033891468891637",
+      "platform": "truthsocial",
+      "post_id": "117033891468891637",
+      "published": "2026-08-03T22:17:43.091000+00:00",
+      "title": "Congresswoman Lisa McClain is a Fantastic Advocate for the Great People of Michigan\u2019s 9th ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033891468891637"
+    },
+    "truthsocial:realdonaldtrump:117033892511562262": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:50.745040+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033892511562262",
+      "platform": "truthsocial",
+      "post_id": "117033892511562262",
+      "published": "2026-08-03T22:17:59+00:00",
+      "title": "It is my Great Honor to endorse America First Patriot, \u201cCaptain\u201d Mike Bouchard, who is run...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033892511562262"
+    },
+    "truthsocial:realdonaldtrump:117033893622205159": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:50.744356+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033893622205159",
+      "platform": "truthsocial",
+      "post_id": "117033893622205159",
+      "published": "2026-08-03T22:18:15.944000+00:00",
+      "title": "Congresswoman Ann Wagner is doing an incredible job representing the amazing people of Mis...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033893622205159"
+    },
+    "truthsocial:realdonaldtrump:117033894613199392": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:50.743695+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033894613199392",
+      "platform": "truthsocial",
+      "post_id": "117033894613199392",
+      "published": "2026-08-03T22:18:31.068000+00:00",
+      "title": "Congressman Bob Onder is a MAGA Warrior who is doing a fantastic job representing Missouri...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033894613199392"
+    },
+    "truthsocial:realdonaldtrump:117033895585327258": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:50.743035+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033895585327258",
+      "platform": "truthsocial",
+      "post_id": "117033895585327258",
+      "published": "2026-08-03T22:18:45.903000+00:00",
+      "title": "Congressman Mark Alford is an America First Patriot, who is doing a fantastic job represen...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033895585327258"
+    },
+    "truthsocial:realdonaldtrump:117033896607570421": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:50.742350+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033896607570421",
+      "platform": "truthsocial",
+      "post_id": "117033896607570421",
+      "published": "2026-08-03T22:19:01.500000+00:00",
+      "title": "Congressman Eric Burlison is a MAGA Warrior who is doing an incredible job representing Mi...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033896607570421"
+    },
+    "truthsocial:realdonaldtrump:117033897687451404": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:50.741620+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033897687451404",
+      "platform": "truthsocial",
+      "post_id": "117033897687451404",
+      "published": "2026-08-03T22:19:17.973000+00:00",
+      "title": "Congressman Jason Smith is an America First Patriot, who is doing a fantastic job represen...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033897687451404"
+    },
+    "truthsocial:realdonaldtrump:117033899560211292": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:50.721756+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033899560211292",
+      "platform": "truthsocial",
+      "post_id": "117033899560211292",
+      "published": "2026-08-03T22:19:46.549000+00:00",
+      "title": "Congressman Rob Wittman is doing a truly fantastic job representing the wonderful people o...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033899560211292"
+    },
+    "truthsocial:realdonaldtrump:117033900758405336": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:50.721015+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033900758405336",
+      "platform": "truthsocial",
+      "post_id": "117033900758405336",
+      "published": "2026-08-03T22:20:04.835000+00:00",
+      "title": "Congresswoman Jen Kiggans is a Tremendous Advocate for the Great People of Virginia\u2019s 2nd ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033900758405336"
+    },
+    "truthsocial:realdonaldtrump:117033913654735171": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:50.720361+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033913654735171",
+      "platform": "truthsocial",
+      "post_id": "117033913654735171",
+      "published": "2026-08-03T22:23:21.617000+00:00",
+      "title": "It is my Great Honor to endorse MAGA Warrior, Rick Brattin, who is running to represent th...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033913654735171"
+    },
+    "truthsocial:realdonaldtrump:117033919904177970": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:50.719843+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033919904177970",
+      "platform": "truthsocial",
+      "post_id": "117033919904177970",
+      "published": "2026-08-03T22:24:56.979000+00:00",
+      "title": "Congressman John McGuire is an America First Warrior for Virginia\u2019s 5th Congressional Dist...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033919904177970"
+    },
+    "truthsocial:realdonaldtrump:117033922042586234": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:50.719276+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033922042586234",
+      "platform": "truthsocial",
+      "post_id": "117033922042586234",
+      "published": "2026-08-03T22:25:29.608000+00:00",
+      "title": "Congressman Ben Cline is a Tremendous Champion for Virginia\u2019s 6th Congressional District! ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033922042586234"
+    },
+    "truthsocial:realdonaldtrump:117033923287204711": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:50.718597+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033923287204711",
+      "platform": "truthsocial",
+      "post_id": "117033923287204711",
+      "published": "2026-08-03T22:25:48.600000+00:00",
+      "title": "Congressman Morgan Griffith is a Fantastic Advocate for Virginia\u2019s 9th Congressional Distr...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033923287204711"
+    },
+    "truthsocial:realdonaldtrump:117033924489592618": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:50.717933+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033924489592618",
+      "platform": "truthsocial",
+      "post_id": "117033924489592618",
+      "published": "2026-08-03T22:26:06.946000+00:00",
+      "title": "It is my Great Honor to endorse Highly Respected State Senator, and brave U.S. Navy Vetera...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033924489592618"
+    },
+    "truthsocial:realdonaldtrump:117033925451969299": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:50.717118+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033925451969299",
+      "platform": "truthsocial",
+      "post_id": "117033925451969299",
+      "published": "2026-08-03T22:26:21.630000+00:00",
+      "title": "It is my Great Honor to endorse America First Patriot, Amanda McKinney, who is running to ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033925451969299"
+    },
+    "truthsocial:realdonaldtrump:117033930949223051": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:50.716376+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033930949223051",
+      "platform": "truthsocial",
+      "post_id": "117033930949223051",
+      "published": "2026-08-03T22:27:45.510000+00:00",
+      "title": "Congressman Michael Baumgartner is an incredible Representative of Washington\u2019s 5th Congre...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033930949223051"
+    },
+    "truthsocial:realdonaldtrump:117033932185213468": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T22:32:50.715605+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033932185213468",
+      "platform": "truthsocial",
+      "post_id": "117033932185213468",
+      "published": "2026-08-03T22:28:04.374000+00:00",
+      "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to e...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033932185213468"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -175267,6 +175597,17 @@
       "title": "First Lady Melania Trump Joins Military Families at Joint Base Andrews",
       "url": "https://www.youtube.com/watch?v=Es2kgakECF4"
     },
+    "youtube:whitehouse:EtctNOj2gz4": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-08-03T22:33:13.107255+00:00",
+      "path": "YouTube/WhiteHouse/2026/08/03/EtctNOj2gz4",
+      "platform": "youtube",
+      "post_id": "EtctNOj2gz4",
+      "published": "2026-08-03T18:44:53+00:00",
+      "title": "President Trump Signs an Executive Order, Aug. 3, 2026",
+      "url": "https://www.youtube.com/watch?v=EtctNOj2gz4"
+    },
     "youtube:whitehouse:ExHA5SjjtH4": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -188312,6 +188653,17 @@
       "published": "2025-08-06T20:20:15+00:00",
       "title": "Phillis Wheatley",
       "url": "https://www.youtube.com/watch?v=te-A0hZ_BNI"
+    },
+    "youtube:whitehouse:tkO_vxr1vqc": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-08-03T22:33:13.780472+00:00",
+      "path": "YouTube/WhiteHouse/2026/08/03/tkO_vxr1vqc",
+      "platform": "youtube",
+      "post_id": "tkO_vxr1vqc",
+      "published": "2026-08-03T18:20:25+00:00",
+      "title": "President Trump is creating the REMARKABLE Presidential Military Spouse Commission. \ud83c\uddfa\ud83c\uddf8\u2764\ufe0f",
+      "url": "https://www.youtube.com/shorts/tkO_vxr1vqc"
     },
     "youtube:whitehouse:tlV7HcHD7pM": {
       "account": "WhiteHouse",

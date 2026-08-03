@@ -1,0 +1,1500 @@
+<!-- source: https://www.youtube.com/watch?v=EtctNOj2gz4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: EtctNOj2gz4 -->
+<!-- date_published: 2026-08-03T18:44:53+00:00 -->
+<!-- date_accessed: 2026-08-03T22:33:13.107255+00:00 -->
+
+# Transcript: President Trump Signs an Executive Order, Aug. 3, 2026
+
+- [00:13.040] Thank you for all being here as we take
+- [00:15.599] a major new step to support our
+- [00:17.920] incredible military family. Something
+- [00:19.920] that we've been working on for a long
+- [00:22.080] time. I guess you could say for decades.
+- [00:24.720] There's never been anything like this.
+- [00:26.240] Today I'm signing an executive order to
+- [00:29.119] establish the first ever presidential
+- [00:31.199] military spouse commission. It will be
+- [00:34.880] chaired by Jennifer Hegset, the wife of
+- [00:37.760] and highly respected wife, I may add, of
+- [00:40.399] Secretary of War Pete Hexath. Both here.
+- [00:43.120] I also want to congratulate the new
+- [00:45.040] executive director of the commission,
+- [00:47.760] Desiree. So where's Desire? Where are
+- [00:50.480] you, Desire? You've do such a good job.
+- [00:52.879] Desiree Thompson sale along with new
+- [00:55.520] commission member Christy Mullen, wife
+- [00:57.920] of Secretary of Homeland Security,
+- [01:00.559] Secretary Mark Wayne Mullen. These are
+- [01:04.400] outstanding people, everyone, male and
+- [01:06.799] female. Outstanding. The commission will
+- [01:09.200] also include the spouses of our
+- [01:11.600] wonderful service secretaries, the
+- [01:13.280] spouses of the joint chiefs of staff,
+- [01:15.600] and the spouses of their senior enlisted
+- [01:18.479] leaders. and uh we have some incredible
+- [01:22.400] talent and I will tell you these spouses
+- [01:24.880] I've looked at educationally and every
+- [01:26.880] other way they're amazing. We're also
+- [01:28.880] pleased to be joined by Secretary Hex
+- [01:31.280] and the chairman of the Joint Chiefs of
+- [01:32.960] Staff, General Dan Kaine. Thank you very
+- [01:36.720] much, Dan. America cannot have the
+- [01:39.520] strongest military in the world without
+- [01:41.280] the love and devotion of our remarkable
+- [01:43.759] military spouses who make the
+- [01:46.000] extraordinary sacrifices for our
+- [01:47.840] country. They really are extraordinary.
+- [01:50.000] Many military spouses spend months
+- [01:52.960] separated from their loved ones while
+- [01:55.200] our heroes are deployed overseas.
+- [01:58.320] Military families also endure frequent
+- [02:00.640] moves and other unique challenges. And
+- [02:03.680] the challenges are legendary. They write
+- [02:06.159] books about them. This commission will
+- [02:08.800] provide recommendations for improving
+- [02:11.280] the quality of life for military spouses
+- [02:13.520] so that we can better support both our
+- [02:16.160] military families and the entire United
+- [02:18.400] States armed forces. The commission will
+- [02:21.520] develop suggestions to address
+- [02:23.280] particular challenges in housing,
+- [02:25.360] employment, health care, education,
+- [02:27.840] child child care, and just about
+- [02:30.080] everything else you can think of. It's
+- [02:31.840] never we've never had this opportunity.
+- [02:34.239] We're doing it now because we've done a
+- [02:35.760] lot for our military. We love our
+- [02:37.280] military. Every day, our administration
+- [02:39.840] is fighting to give our military
+- [02:41.680] families the support they dearly need
+- [02:44.000] and they deserve. As part of the great
+- [02:47.120] big beautiful bill, we provided hundreds
+- [02:49.440] of millions of dollars for military
+- [02:51.200] child care and improved housing on
+- [02:53.280] military bases. It's being built, much
+- [02:55.760] of it's being built right now. Last
+- [02:58.160] Christmas, every service member received
+- [03:00.080] a warrior dividend of $1,776.
+- [03:05.200] Think of that. I wonder where we got
+- [03:06.640] that number. It's actually 1775.
+- [03:09.440] The number worked out to be 17. I said
+- [03:11.760] if you add $1, we have 17. That was one
+- [03:14.239] of my genius ideas. We have 1776.
+- [03:18.319] But that's that was a great thing. And
+- [03:20.000] we've given it every member of our
+- [03:22.879] military hard-earned pay raise. We've
+- [03:25.440] also given the pay raise. The commission
+- [03:28.159] will help ensure we continue to give
+- [03:30.239] military spouses our very best so our
+- [03:33.040] military can continue to be the
+- [03:34.799] strongest military anywhere in the world
+- [03:36.560] and we're proving that. Uh as you know
+- [03:38.959] we had a conflict with Venezuela worked
+- [03:41.680] out very well and we have a conflict
+- [03:44.080] with Iran and that's working out very
+- [03:46.239] well very very well. So now I'd like to
+- [03:49.040] ask Jennifer Hexath to say a few words
+- [03:51.760] followed by Pete, General Kaine, and
+- [03:54.400] then I will sign the executive order
+- [03:56.959] putting this into play. And it's a an
+- [03:59.760] order that's long overdue as far as I'm
+- [04:02.640] concerned, like by decades, and we're
+- [04:05.040] going to do a real job with it. And
+- [04:06.879] Jennifer, if you will, please.
+- [04:08.959] >> Well, Mr. President, you have been a
+- [04:10.400] champion for the military, and we are so
+- [04:12.319] grateful for that. And that continues
+- [04:14.159] today. And like you said, these are
+- [04:16.000] generational issues that are long
+- [04:18.320] overdue to address. And we have the most
+- [04:20.720] amazing women here who have decades of
+- [04:23.440] experience as military spouses
+- [04:25.120] themselves um to take a look at it.
+- [04:27.440] There's really nothing we're going to
+- [04:28.800] find that they haven't experienced. And
+- [04:30.880] so between what they've experienced and
+- [04:33.520] what they know, we're going to really
+- [04:35.120] tackle these things. And I've spent the
+- [04:37.280] last year traveling around meeting with
+- [04:39.520] military spouses and families around the
+- [04:42.160] world and around the country. And it's
+- [04:43.840] the same from Kentucky to Singapore.
+- [04:45.840] It's housing. It's healthcare. It's
+- [04:47.600] employment. It's child care. It's
+- [04:50.000] education. And so, we're going to take a
+- [04:51.759] look at all of those things. Even even
+- [04:53.600] one of the women up here, I won't I
+- [04:55.280] won't say who, but was a paramedic. And
+- [04:58.400] as they moved from state to state, she
+- [05:00.160] could not get the license, switch to
+- [05:02.160] that state in time before you move
+- [05:03.840] again, before you PCS. And it makes it
+- [05:06.240] really difficult for these families to
+- [05:08.080] survive, let alone all the other
+- [05:09.440] sacrifices we're asking for them. So,
+- [05:11.600] this is a big deal today. We're super
+- [05:13.280] grateful. Every time Pete travels around
+- [05:15.840] to Secretary travels around [laughter]
+- [05:18.400] to the troops, he tells them, "The
+- [05:20.720] president has your back." And now the
+- [05:22.320] families know that you have their back,
+- [05:23.919] too. And we are grateful. Thank you.
+- [05:25.600] >> Thank you, Jennifer. Great job. Thank
+- [05:27.280] you.
+- [05:28.880] >> How about you say something first and
+- [05:30.560] then we'll go back into the general.
+- [05:32.960] You're not going to talk.
+- [05:33.680] >> I can't top that, Mr. President. I'll
+- [05:34.960] give it a shot. You're not going
+- [05:36.020] [laughter] to
+- [05:37.280] >> uh you know, it's good job.
+- [05:38.720] >> It's true. Um, strong families equal
+- [05:41.680] strong formations. I mean that when you
+- [05:43.520] look at it from a military perspective
+- [05:44.880] as a secretary, our job is to make sure
+- [05:46.720] our troops are prepared and ready on
+- [05:48.080] behalf of the nation. And if your
+- [05:49.440] family's not taken care of, then it
+- [05:51.440] causes hesitations and complications for
+- [05:53.600] the war fighters up front. And so if we
+- [05:56.000] say often and we mean it, no soldier, no
+- [05:57.919] marine, no member of the joint force
+- [05:59.919] serves alone. And so if we can address
+- [06:02.240] the issues of housing and make sure it's
+- [06:03.840] quality housing, make sure employment
+- [06:05.280] opportunities are maxed out, make sure
+- [06:07.199] child care is taken care of, make sure
+- [06:09.199] DODIA or DOIA schools are the best in
+- [06:11.360] the world so that military kids are
+- [06:13.280] being educated, the trade skills they
+- [06:15.199] might want to take the next chapter in
+- [06:16.639] life. If that war fighter knows that
+- [06:18.880] their family is good to go, uh they will
+- [06:21.199] go the extra mile, which is what our
+- [06:22.800] nation uh asks. So we're in we're in for
+- [06:25.360] this is not one of those window dressing
+- [06:26.800] efforts. The Jen's right. This entire
+- [06:29.600] group has mountains of experience and
+- [06:31.600] they're raring to go to put it to use on
+- [06:33.360] behalf of the great Americans who serve
+- [06:34.960] our nation. Uh, and this is going to be
+- [06:36.639] full speed ahead to address every
+- [06:38.160] quality of life if issue we can, which
+- [06:40.000] Mr. President, you you invested in the
+- [06:42.000] one big beautiful bill. People don't
+- [06:43.199] know how much went into housing and into
+- [06:44.639] barracks and into pay. That's a down
+- [06:46.639] payment. And now with the 1.5 trillion,
+- [06:48.720] which we're working to get every dollar
+- [06:51.199] of, it's going to be a generational
+- [06:53.199] investment in barracks, in housing, in
+- [06:55.039] healthcare, in pay in ways no
+- [06:56.880] commander-in-chief has ever done before.
+- [06:58.400] So, Mr. President, thank you for leading
+- [06:59.840] on this and this commission's ready to
+- [07:01.280] go.
+- [07:01.520] >> Well, thank you very much. You're doing
+- [07:03.280] a fantastic job. Uh, General, please.
+- [07:05.599] >> Mr. President, Mrs. Hexet, Secretary
+- [07:07.840] Hexath, uh, it's an honor for me to be
+- [07:10.000] here today at the launch of this
+- [07:12.319] commission. Uh, as we stand here now,
+- [07:14.720] around the world, military service
+- [07:16.560] members are out doing our nation's
+- [07:18.319] business and ready to do what is asked
+- [07:20.880] of them. The foundation of American
+- [07:23.280] military readiness is the families. And
+- [07:25.520] the backstopping of all of that is the
+- [07:27.759] military spouses that serve behind them.
+- [07:30.400] Inevitably, every time somebody deploys,
+- [07:33.520] that refrigerator will break down, the
+- [07:35.680] car will break down. You think we're
+- [07:38.000] strong. American military spouses are 10
+- [07:41.120] times stronger. And the lift that they
+- [07:43.360] carry is significant every single day. I
+- [07:46.319] want to thank uh this commission for the
+- [07:48.560] work that they're going to do to help
+- [07:50.319] improve military famil family lives and
+- [07:52.560] military spouses lives. It is a critical
+- [07:55.440] enabler for American warf fighting
+- [07:57.680] capabilities. So to all of you here and
+- [08:00.240] all the work that went into putting this
+- [08:02.160] commission together, thank you. And Mr.
+- [08:04.400] President, we're uh honored to be here
+- [08:06.080] today.
+- [08:07.280] >> Where will they be meeting when you have
+- [08:08.879] meetings? Because you're going to be
+- [08:09.840] having a lot of meetings. Do you know
+- [08:11.039] where you're going to be meeting?
+- [08:12.160] >> Every month here at the White House.
+- [08:13.680] >> Oh, that's great.
+- [08:14.319] >> Yes. We can't do better than that.
+- [08:16.495] [laughter]
+- [08:17.360] >> Use the opal office.
+- [08:20.639] >> Would anybody uh like to say anything?
+- [08:23.360] Maybe Desiree, you could start and then
+- [08:25.039] if you want to say anything, great time
+- [08:27.039] to say it. Please.
+- [08:28.800] >> Well, I'll just be really short. It's a
+- [08:30.560] pleasure for me to serve as the
+- [08:31.599] executive director of this commission. I
+- [08:33.440] think it's a long time coming. Um it's a
+- [08:35.519] little bit of a pet project out of my
+- [08:37.039] office uh simply because we have the
+- [08:39.360] chief of staff of the Air Force's wife
+- [08:41.279] that has been inspirational for this. Um
+- [08:43.279] she's a 41-year spouse. Um but
+- [08:45.839] collectively this group has over 400
+- [08:48.399] years of experience as an active duty
+- [08:51.360] military spouse. 400. And they've
+- [08:54.240] probably moved about 300 times. So if
+- [08:56.880] you can imagine that level of experience
+- [08:59.200] coming to this commission and solving
+- [09:01.279] real problems for uh the future of our
+- [09:04.480] military, spouses, and families. It's
+- [09:06.000] just an incredible uh thing that you're
+- [09:08.160] doing, President Trump, actually asking
+- [09:10.240] them to solve these problems and give
+- [09:12.640] you good recommendations and we're happy
+- [09:14.320] to help help them do that.
+- [09:15.680] >> So, you know, we have Desire has been
+- [09:18.320] with us for a long time and she's
+- [09:21.360] directly and indirectly done what she's
+- [09:23.519] doing for a long long time, covered
+- [09:26.000] numerous presidents, and she basically
+- [09:28.560] responds to the public when the public
+- [09:30.640] they send things. Sometimes they send
+- [09:33.040] gifts. actually it amounts to millions
+- [09:34.880] of dollars in small money and I said
+- [09:38.080] well what happens to that money they
+- [09:39.760] send it back or they do charitable work
+- [09:42.080] or but it's literally millions they send
+- [09:44.160] it to me I should be able to get it
+- [09:46.231] [laughter] won't give it to me I should
+- [09:47.839] be entitled to it no but they send it to
+- [09:50.080] me as a just a gesture but they write
+- [09:53.040] thousands and hundreds of thousands of
+- [09:55.040] letters and she's got a staff that's all
+- [09:57.360] volunteer and I have one question how
+- [10:00.399] did I how do I compare in terms of
+- [10:02.720] response with other presidents of the
+- [10:04.720] past.
+- [10:05.600] >> No comparison, sir.
+- [10:07.519] >> Is it good or bad?
+- [10:08.480] >> No, it's good. Actually, it's very good.
+- [10:11.279] >> It's very good. We do. Okay.
+- [10:13.040] >> We do great.
+- [10:13.680] >> Little more than sleepy Joe.
+- [10:17.279] >> A little bit more.
+- [10:18.160] >> Yes.
+- [10:18.640] >> I think so. Thank you. Thank you. Uh
+- [10:21.600] does anybody have anything to say or
+- [10:23.440] question or statement? Would you like to
+- [10:25.600] make a statement? Yes.
+- [10:26.640] >> Can I just say um I'm so excited. I've
+- [10:29.680] we've served with the Willsbox now for a
+- [10:31.920] number of years and I've seen them
+- [10:33.279] champion the enlisted corps. Um as a as
+- [10:36.560] the spouse of a senior enlisted leader,
+- [10:39.120] it's pretty easy for something amazing
+- [10:41.200] like this to happen and not include the
+- [10:43.920] enlisted core, the senior enlisted
+- [10:45.440] leaders from the enlisted corps. It
+- [10:47.200] means the world to me that this started
+- [10:50.160] with them in mind. And um I don't know
+- [10:53.040] if you remember, but a few years ago, my
+- [10:55.600] husband was serving in Alaska. And
+- [10:57.839] before you got on the plane, he asked
+- [10:59.519] your detail if he could ask you a
+- [11:01.360] question, and he asked if you would
+- [11:02.640] FaceTime me. And you did. [laughter]
+- [11:05.440] >> And
+- [11:07.839] it meant
+- [11:08.800] >> the people I respect.
+- [11:10.959] >> You're getting ready to get on the plane
+- [11:12.320] and this E9, this enlisted uh uh command
+- [11:16.240] chief asked you to FaceTime me and you
+- [11:18.320] put your arm around him. You said, "HE'S
+- [11:19.680] DOING A GOOD JOB. TAKE GOOD CARE OF HIM.
+- [11:21.839] And that picture hangs has hung in his
+- [11:23.839] office since. And it just means the
+- [11:25.839] world to me that you highlight the
+- [11:27.680] enlisted corps every chance you get. And
+- [11:30.320] I love to tell people that story that
+- [11:32.160] you took the time.
+- [11:33.920] >> Thank you very much. Say hello. Okay.
+- [11:36.399] >> I remember.
+- [11:37.600] >> Please. Anybody else? Mr.
+- [11:38.800] >> President, this is Cindy Wilsbach who's
+- [11:40.800] humble to her core and has had a
+- [11:43.120] significant role in putting this
+- [11:44.720] commission together. So I just
+- [11:46.098] [clears throat] want to highlight
+- [11:47.279] Cindy's work.
+- [11:48.399] I would just like to say this is a a red
+- [11:50.399] letter day for me. Just the honor that I
+- [11:52.560] feel to be surrounded by these spouses
+- [11:55.440] who what I like to say is we serve by
+- [11:58.000] oath or by vow. We didn't all raise our
+- [12:00.480] right hand to take an oath, but we began
+- [12:02.160] serving this great nation when we
+- [12:03.519] extended our left hand and and said a
+- [12:05.200] vow to the person that we love that
+- [12:06.959] served this country. And we represent
+- [12:09.600] people that are at the the end of their
+- [12:11.200] careers. We have served decades, 20,
+- [12:12.953] [clears throat] 30, 40 years of service.
+- [12:15.519] This is about the legacy that we leave
+- [12:17.519] for the people that come after us. For
+- [12:19.360] these people who have children who are
+- [12:21.040] serving now or for families that we say
+- [12:23.839] we love you, we care about you. And we
+- [12:25.760] are the greatest military in the world.
+- [12:27.680] And part of that is taking care of our
+- [12:29.360] families. And that's what this
+- [12:30.480] commission
+- [12:30.959] >> and your husband is highly respected. I
+- [12:32.720] have to tell you that by by everybody by
+- [12:36.000] everybody. Anybody over here? Yes,
+- [12:38.399] please.
+- [12:38.959] >> Mr. Mr. President, on behalf of the
+- [12:40.560] Coast Guard, we cannot thank you enough
+- [12:43.279] for the amount of money that you have
+- [12:46.160] put into our organization. We are beyond
+- [12:49.200] excited about the new potentials that we
+- [12:51.440] have. Um we could just feel it the whole
+- [12:53.760] the whole Coast Guard. Every time we go
+- [12:55.839] to visit um our different units and our
+- [12:58.079] families, people are super excited,
+- [13:00.079] >> including 11 ice cutters, right? Uh
+- [13:02.480] >> absolutely. I'll be talking. Yes.
+- [13:03.920] >> Going to be beautiful.
+- [13:04.720] >> Yes, sir. Yes, sir.
+- [13:05.839] >> They had one. Russia has 48.
+- [13:09.200] They had one. It was 50 years old and
+- [13:12.639] you're going to soon be getting 11 brand
+- [13:14.399] new ones at top of the line. So that's a
+- [13:16.560] big
+- [13:17.279] >> Our people are very thrilled and super
+- [13:19.519] excited, very thankful to you. Thank
+- [13:21.120] you, sir.
+- [13:21.600] >> Thank you very much. Good. Anybody else
+- [13:24.320] like to say last chance? That's it.
+- [13:26.969] [laughter]
+- [13:28.160] So, I'm going to sign this and it's a
+- [13:30.560] real honor. And then if you like, you
+- [13:33.760] could ask questions of the people and or
+- [13:36.959] me if you want.
+- [13:50.720] Okay, that's a good one. So, I wouldn't
+- [13:53.040] want a bad one on this topic. [laughter]
+- [13:55.200] Some are good. You know, we rate them
+- [13:56.639] from six to 10. Six is usually when I'm
+- [14:02.000] standing up holding it. You can't do a
+- [14:04.240] very good one. But, uh, that's a 10. So,
+- [14:07.120] we're You deserve that, TOO. [applause]
+- [14:18.399] >> I think you should. Okay.
+- [14:21.120] >> Uh, questions, please. Please. On behalf
+- [14:24.160] of the press corpora, thank you ladies
+- [14:25.760] for what you do for our service members
+- [14:27.360] in this country.
+- [14:28.240] >> Right.
+- [14:28.880] >> Mr. President, are the talks with Iran
+- [14:31.440] now off and our air strikes?
+- [14:33.040] >> You know, they're on. They're going on
+- [14:34.240] right now. It's an amazing thing. We
+- [14:35.920] have a little problem with Iran because
+- [14:38.480] we have many talks and we'll say we have
+- [14:40.560] or we don't have, you know, we're
+- [14:41.760] straight about it, but they deny, but
+- [14:44.079] they're not denying it now. They just
+- [14:45.440] put out a statement not denying it. But
+- [14:47.920] for some reason they uh when they're
+- [14:51.360] talking they don't like saying that
+- [14:52.959] they're talking. So I say wait we're in
+- [14:55.199] talks. Big deal. We're in talks. And
+- [14:57.519] they'll sometimes deny it even though
+- [14:59.920] they spend hours and hours together
+- [15:02.320] talking. No the talks are going along.
+- [15:05.360] We're going to hit them very hard
+- [15:06.720] yesterday. Very very hard. Harder than
+- [15:09.920] any attack. I think I can say general
+- [15:13.040] from a point of knowledge. any attack
+- [15:16.560] since World War II. That's pretty big.
+- [15:19.440] And we were set to go. And they called.
+- [15:21.839] And in addition, Saudi Arabia called and
+- [15:25.279] uh UAE called, Qar called. Got calls
+- [15:29.920] from numerous people. Not I don't want
+- [15:32.399] to use the word begging, but some
+- [15:34.320] somewhere in particular Iran did not
+- [15:37.600] want to be hit. And they said, "We want
+- [15:40.320] to talk. We want to talk about the
+- [15:42.480] straight, but more importantly from my
+- [15:44.560] standpoint, we want to talk about the
+- [15:47.360] denuclearization of Iran because it's
+- [15:50.000] what it's all about. This is why I'm
+- [15:51.600] doing this. And it should have been
+- [15:53.440] done. It's now 50 years. We keep saying
+- [15:55.199] 47 years, but three years have gone by.
+- [15:58.000] But it's for 50 years that other
+- [16:01.199] presidents should have been doing what I
+- [16:02.720] or other countries. Didn't have to be
+- [16:05.120] us, but other countries. And nobody did
+- [16:07.920] it. And it was time. and we hit them
+- [16:09.680] hard with the B2s more than a year ago
+- [16:11.920] now and that knocked out their
+- [16:14.399] capability, their potential capability.
+- [16:17.440] Uh, and uh, we've done a great job. But
+- [16:20.720] when we talk, we say we're talking. If
+- [16:22.480] we're not talking, when you ask me, no,
+- [16:23.920] we're not talking, I'll say it. But we
+- [16:25.920] are talking right now. We're talking.
+- [16:27.519] And we're talking at the request of
+- [16:29.600] Iran, backed by Saudi Arabia, backed by
+- [16:34.000] UAE and backed by Qatar in particular,
+- [16:37.040] but others also many many countries
+- [16:39.360] called, many the leaders of many
+- [16:41.040] friendly with a lot of them, almost all
+- [16:43.360] of them one way or the other. And they
+- [16:45.759] all wanted to give this a last chance.
+- [16:48.560] This is a last chance. This is not
+- [16:50.639] something that if it doesn't happen,
+- [16:53.360] this is a last chance for them to sign a
+- [16:58.000] good document. Yeah, please.
+- [17:00.000] >> Mr. President, uh, New York City Mayor
+- [17:02.079] Zoran Mandani is requiring an ID to
+- [17:04.799] access his governmentrun grocery stores.
+- [17:07.919] Um, what then is your message to
+- [17:09.520] Democrats who do not want to pass the
+- [17:11.760] Save America Act and ensure uh, you
+- [17:14.400] know,
+- [17:15.439] >> when was this announced? This was just
+- [17:17.120] announced. I heard about it. Yeah. Well,
+- [17:19.360] I wish they'd have an ID to access the
+- [17:21.360] voting booth. You know, they don't want
+- [17:23.600] to access the voting booth with any
+- [17:25.520] identification. We want voter ID and we
+- [17:28.480] want proof of citizenship. Uh, well, he
+- [17:31.840] also had a thing where you had to have
+- [17:33.840] two different IDs to shovel snow during
+- [17:36.559] the winter, right? So, that's a very
+- [17:38.480] friendly question. I like her. Who are
+- [17:40.000] you with?
+- [17:41.120] >> One American News, sir.
+- [17:42.320] >> Very good. All right. Good question.
+- [17:44.160] Very good. A good group. almost 20 GOP
+- [17:47.360] senators who have pledged to stay in DC
+- [17:49.120] to pass Save America Act. So, what's
+- [17:51.600] your message to the rest of the senators
+- [17:53.120] who are uh still on their summer recess?
+- [17:55.760] >> I think there's nothing more important
+- [17:57.679] than the Save America Act. I think they
+- [17:59.840] should stay. They do what they want, but
+- [18:02.799] I think they should stay.
+- [18:04.400] >> Mr. President,
+- [18:05.840] >> I think it's so important to get it
+- [18:07.039] passed. Yeah.
+- [18:07.600] >> Mr. President, where are the Iran talks
+- [18:09.600] and what are your requirements?
+- [18:10.799] >> Well, you'll find out today or tomorrow.
+- [18:12.160] I mean, they're going to go quickly one
+- [18:13.679] way or the other. It's not very complex.
+- [18:16.080] We're talking about the straight, the
+- [18:18.000] opening of the straight, having it open
+- [18:20.000] literally by tomorrow, completely open.
+- [18:23.760] And that's phase one. And phase two is
+- [18:26.640] we then will talk about the nuclear
+- [18:29.840] capacity, the nuclear what you know, as
+- [18:32.000] we've been mentioning the basically it's
+- [18:33.919] I think most the denuclearization
+- [18:37.120] of Iran has to happen. Has to happen and
+- [18:40.160] that'll be the second phase. But the
+- [18:42.400] first phase is the opening of the
+- [18:43.840] straits. The second phase will be the
+- [18:45.440] denuclearization. And that'll take a
+- [18:47.840] little while, but we uh we're very
+- [18:51.600] strong on it. They cannot have a nuclear
+- [18:53.360] weapon. Iran cannot have a nuclear
+- [18:54.960] weapon. And I have never changed in
+- [18:56.960] that. Yeah, please. In the back.
+- [18:58.080] >> Thank you, Mr. President. You said that
+- [19:00.000] uh if Democrats get back into power,
+- [19:02.480] what is happening in Spain awaits
+- [19:04.160] America? Uh do what should voters in
+- [19:06.400] other countries with elections coming up
+- [19:08.160] soon take away from what's going on in
+- [19:10.160] Spain? to be very careful with the whole
+- [19:12.160] socialist thing. I think in many cases
+- [19:14.400] it's much more than socialist. They
+- [19:16.000] skipped socialism. They went directly to
+- [19:18.240] communism.
+- [19:19.760] But when I saw what happened in Spain, I
+- [19:21.679] said, you know, we had a version of
+- [19:23.840] that. You could say much worse. We we
+- [19:26.799] allowed 25 million people under Joe
+- [19:29.600] Biden, the Democrats. We had open
+- [19:32.960] borders and countries all over the
+- [19:35.440] world, almost all of them, sent people
+- [19:38.320] that they don't want into our country.
+- [19:40.960] And we've gotten a lot of them out and
+- [19:42.640] we're getting more, including murders.
+- [19:44.960] And I always said 11,888.
+- [19:47.440] That was the number of murders. Many of
+- [19:49.039] them committed more than one murder. And
+- [19:52.960] uh we're going to be just like that if
+- [19:55.840] you put these lunatics in that I see
+- [19:57.919] running for office. They had we had an
+- [20:01.840] open border a year and a half ago. We
+- [20:04.320] had the worst border in the history of
+- [20:05.679] our country. Now we have the best
+- [20:07.039] border. We haven't had one person come
+- [20:09.520] in and this is done by the Democrats,
+- [20:11.520] not by left-leaning people. They do
+- [20:15.120] charts and they have in 15 months not
+- [20:19.039] one person has come in through our
+- [20:20.880] southern border illegally. Now that's
+- [20:23.280] pretty amazing. I'd say maybe 10, maybe
+- [20:26.720] 15. They say none. And believe me, if
+- [20:29.360] they did, they'd love to report it. But
+- [20:31.919] you can go outside in those vast plazas
+- [20:34.320] where hundreds of thousands of people
+- [20:36.640] gathered when they stormed our country
+- [20:38.799] just like they did, in my opinion,
+- [20:40.640] worse, just like they did to Spain. They
+- [20:44.480] they stormed our country and those
+- [20:46.640] borders are those those big plazas that
+- [20:49.760] were built. They put concrete down and
+- [20:52.480] now you look at them, there's grass
+- [20:54.480] growing in the cracks. Nobody comes up
+- [20:57.120] because they know they're not going to
+- [20:58.240] get through. And if they do get through,
+- [20:59.679] they're going to be taken out, brought
+- [21:01.679] back to their country. So, uh, we've
+- [21:04.080] done a fantastic job. You know, somebody
+- [21:05.919] said, "You did it too fast. I did it in
+- [21:07.679] 30 days." My first 30 days. Biden
+- [21:10.960] couldn't do it. He couldn't get it done.
+- [21:12.240] He tried at the end. He tried to do
+- [21:14.159] something because it was so
+- [21:16.320] overwhelming. It was so bad politically.
+- [21:18.960] But we did it in 30 days. Somebody said,
+- [21:20.720] "You should have taken a year and a half
+- [21:22.159] or two years completed because everyone
+- [21:24.240] forgets." Even my speech writers, they
+- [21:26.320] say, "Sir, nobody wants to hear about
+- [21:28.400] the border anymore. You've done it. It's
+- [21:30.720] an incredible job you've done, but
+- [21:32.159] nobody wants to hear about and I should
+- [21:34.640] have taken couple of years to do it
+- [21:37.200] because uh and it actually was the
+- [21:40.720] public has about a two-year people do
+- [21:43.520] they have a two-year memory for certain
+- [21:46.400] things. They have a two week memory. I
+- [21:48.799] may have gotten elected certainly
+- [21:50.480] partially on the border and because we
+- [21:53.840] did such a great job. It was a long time
+- [21:55.679] ago. I did it twice. I did it in 2016
+- [21:58.640] when it was bad, but I did it this last
+- [22:01.840] time when it was really bad. It was,
+- [22:04.640] Steve, I would say many, many times
+- [22:06.400] worse than it was in 2016. 2016 was bad.
+- [22:10.320] But what we just had a year and a half
+- [22:12.720] ago, that was the worst border maybe in
+- [22:15.919] world history. There's not a third world
+- [22:18.400] country that would have allowed that to
+- [22:20.640] happen with people coming in from
+- [22:22.320] prisons and people coming in from mental
+- [22:24.960] institutions and people forced in by
+- [22:27.840] government because these are the people
+- [22:29.440] that those governments those countries I
+- [22:32.080] know them all they didn't want and they
+- [22:34.880] walked into our country totally unvetted
+- [22:37.039] totally unchecked. Not anymore. Nobody
+- [22:39.360] comes in except if they come in legally.
+- [22:42.159] Yeah, please.
+- [22:42.799] >> Thank you, Mr. President. Yesterday you
+- [22:44.400] were you
+- [22:45.360] >> um I'm with the Washington Examiner,
+- [22:46.880] sir.
+- [22:47.280] >> Good.
+- [22:48.000] >> You're doing good. They've been very
+- [22:49.679] nice to me.
+- [22:50.720] >> Um you were asked yesterday whether
+- [22:52.559] Representative Max Miller should resign
+- [22:54.880] from Congress over the allegations and
+- [22:56.559] you said that you'd have a look at it.
+- [22:58.240] Have you thought about that? And also,
+- [22:59.280] do you think that
+- [22:59.919] >> it's a very sad thing? I know Max, he's
+- [23:03.039] a good person. I mean, I always thought
+- [23:04.480] he was a very good person and I'm going
+- [23:06.720] to let the families figure that out. You
+- [23:08.480] know, those families uh I know they're
+- [23:11.280] working on it. It's a very sad thing.
+- [23:13.200] especially when you know somebody so
+- [23:15.120] well to be going through that. But it's
+- [23:19.120] accusations and I'm going to let them
+- [23:21.679] figure that out. Yeah, please.
+- [23:23.039] >> President, did did you sign off on Todd
+- [23:25.200] Lynch rescending the anti-w
+- [23:27.120] weaponization fund? And also, there are
+- [23:28.880] Democrats right now who say there's
+- [23:30.720] essentially two tax codes. There's the
+- [23:32.320] Trump family tax code and a normal
+- [23:34.080] people tax code. Why do you think that
+- [23:37.120] your family deserves some level of
+- [23:38.880] special exemption when it comes to the
+- [23:40.960] auditing of taxes? Well, I'll go into
+- [23:42.720] that. First of all, I had a 10-year case
+- [23:46.000] that was settled until I announced I was
+- [23:48.400] running for office. It was a settled
+- [23:50.720] deal like I've been doing all my life.
+- [23:52.400] I've been audited every year for my
+- [23:54.480] entire life, which I have a lot of
+- [23:56.159] wealthy friends. They were never
+- [23:57.360] audited. To this day, they were never
+- [23:58.880] audited. I was audited and my deal was
+- [24:01.520] settled in writing. It was settled
+- [24:04.159] subject to final approval. Then I
+- [24:06.000] announced I was running for president
+- [24:08.320] and all they did was haunt me with it.
+- [24:10.559] They ended the settlement and they went
+- [24:13.279] after and they went after me illegally
+- [24:15.840] and they did a lot of bad things to me
+- [24:17.679] like they did to other people and uh I
+- [24:20.880] was treated very unfairly by the IRS. I
+- [24:23.679] was it was weaponized against me. Think
+- [24:25.919] of it. I had a case from this is a
+- [24:27.679] 10year-old case and it was settled. It
+- [24:31.679] was done. The case was over. I announced
+- [24:34.240] I'm running for president and they
+- [24:36.720] terminated the settlement in Washington
+- [24:40.080] and they went after me and what they did
+- [24:42.480] here was very frankly uh if you talk
+- [24:45.679] about reparations or if you talk about
+- [24:47.600] payment what they did to me I had a very
+- [24:50.000] good case against them. So, uh, this was
+- [24:52.320] a case that was settled that when I
+- [24:54.320] decided to run for president right at
+- [24:56.159] the beginning, this is a long time. It's
+- [24:57.440] been going on for a long time, uh, they
+- [25:01.039] terminated the settlement, which is
+- [25:03.440] something that never happened before. We
+- [25:06.000] have letters from the biggest law firms
+- [25:07.760] in Washington saying that this case is
+- [25:10.080] nonsense, just like the Russia, Russia,
+- [25:12.640] Russia was nonsense. They weaponized
+- [25:14.480] government and uh, so that's that and
+- [25:18.080] most people understand that. on the
+- [25:20.720] other on the fund. These were people
+- [25:22.720] that were treated unbelievable. 22
+- [25:25.440] suicides, more than that, I think. Look
+- [25:28.240] at Ashley. Look at look at so many other
+- [25:30.320] things that happened. These people were
+- [25:32.320] treated horribly and this fund could
+- [25:34.640] have given them some solace. But uh you
+- [25:39.120] know it happens to be very popular among
+- [25:42.000] many quarters and I don't participate in
+- [25:44.320] that fund. I was certainly treated
+- [25:46.480] badly. I don't participate, but I
+- [25:48.720] thought it would be very fair for people
+- [25:51.279] that spent years in prison, people that
+- [25:53.520] were treated so badly, for in many cases
+- [25:56.240] people that did absolutely nothing
+- [25:58.799] wrong. So I view that fund as a
+- [26:01.279] positive. And a lot of Republicans do
+- [26:03.360] too, not so many Democrats. And it's not
+- [26:06.080] only for that. It's for other things,
+- [26:08.000] too. people that have been treated
+- [26:10.480] unfairly, that have been weaponized by a
+- [26:12.720] corrupt government that we had with
+- [26:14.960] Obama and that we had with Biden. You
+- [26:17.279] had a corrupt government with both of
+- [26:18.960] them.
+- [26:19.120] >> Mr. President, did you sign off on Todd
+- [26:21.039] Blanch?
+- [26:22.080] >> I didn't look at it. I All I know is
+- [26:23.600] that Todd Blanch is is great. Uh he's
+- [26:26.640] going to do a great job. Everybody knows
+- [26:28.480] it and I understand there's been a sign
+- [26:31.200] off, but I didn't I don't know what they
+- [26:33.279] agreed. I think Todd Blanchie agreed to
+- [26:36.720] uh reconfirm things that he's already
+- [26:38.640] said and what he said was okay avenues
+- [26:41.440] that you'd have are there other avenues
+- [26:42.960] you'd have supporters get paid
+- [26:44.720] potentially if it's not the anti-re
+- [26:46.000] weaponization fund is there another way
+- [26:47.919] I'm with MS now sir
+- [26:49.200] >> you who
+- [26:49.760] >> MS now
+- [26:50.960] >> MS now
+- [26:52.720] >> what a terrible show that is they have
+- [26:55.600] the worst people on that channel
+- [26:56.799] >> are there other avenues that you want to
+- [26:58.159] see people
+- [26:58.640] >> no there's no other avenues that I know
+- [27:00.320] about go ahead
+- [27:01.039] >> Mr. President on the Iran talks is now.
+- [27:03.919] >> That's the failed MSDNZ, right? The
+- [27:07.440] failed they failed. They gave it a new
+- [27:09.919] name. You know why? Because nobody
+- [27:11.200] watched it. Go ahead. And they and fewer
+- [27:13.440] people are watching it now.
+- [27:14.960] >> On the Iran talks, is there discussions?
+- [27:17.120] Is Iran willing to return to a fully
+- [27:20.400] free navigation of the straight? Is that
+- [27:22.320] on the table?
+- [27:23.840] >> Uh, say it again differently.
+- [27:26.960] >> Would would Iran be willing to return to
+- [27:30.559] fully free navigation of has to be. I'm
+- [27:33.279] not going to let him charge.
+- [27:35.120] >> Anybody's going to charge, we'll charge.
+- [27:36.720] We're the one that has total. We have
+- [27:38.559] total control. You know, we have a thing
+- [27:40.640] called a blockade with his navy and that
+- [27:43.760] navy is un it's a they call it a wall of
+- [27:45.919] steel. The United States wall of steel.
+- [27:49.120] And no, no, there's not going to be
+- [27:50.640] charging. We're not talking about
+- [27:52.320] charging at all. There won't be
+- [27:53.520] charging. Yeah. Please do.
+- [27:55.120] >> President, you said last week that
+- [27:56.640] illegal immigration
+- [27:57.279] >> Who you with?
+- [27:58.000] >> GB News. Um you said that illegal
+- [28:00.159] immigration is killing the UK. Nigel
+- [28:02.159] Farage today has proposed the use of the
+- [28:04.159] Royal Navy to combat small boats
+- [28:06.320] crossing the channel. Do you think that
+- [28:08.159] European nations including the UK should
+- [28:10.480] be using their militaries to stop?
+- [28:12.640] >> Look, you have to stop illegal
+- [28:14.720] immigration in Europe. I know Europe
+- [28:16.480] better than anybody, better than the
+- [28:18.320] people that run it. And I have great
+- [28:20.720] relationships. You're two things are
+- [28:22.880] killing Europe. Number one is
+- [28:24.960] immigration. Number two is energy.
+- [28:28.159] like the UK. When you look at the UK,
+- [28:30.240] they have one of the best energy fields
+- [28:31.919] in the world, North Sea. Now, I think
+- [28:33.679] your new prime minister is going to
+- [28:35.039] actually open up the from what I hear. I
+- [28:36.960] spoke to him and he sounded terrific on
+- [28:39.279] this subject. But you open it up, you'll
+- [28:41.760] be a wealthy country. You keep it
+- [28:43.520] closed, you're going to be a bankrupt
+- [28:44.799] country, which is what you are now.
+- [28:46.880] Essentially, you're a bankrupt country.
+- [28:49.120] You have one of the greatest energy, the
+- [28:51.039] North Sea oil, one of the greatest deals
+- [28:53.440] in the world. You know, the UK buys its
+- [28:56.159] energy from Norway, who gets the energy
+- [28:59.120] from the North Sea, from not as vibrant
+- [29:02.399] a part of the North Sea oil-wise. You're
+- [29:05.760] sitting on top of gold,
+- [29:09.200] better than gold,
+- [29:11.200] >> and you don't do anything with it. It's
+- [29:12.640] it doesn't it doesn't work. You don't
+- [29:15.200] allow the oil companies in and it
+- [29:17.919] doesn't work. And I spoke with your new
+- [29:19.919] prime minister. I was very impressed.
+- [29:21.360] and he sort of indicated to me I said
+- [29:23.840] look you can be a wealthy country or a
+- [29:25.679] bankrupt country you have your choice
+- [29:28.399] not every country has that choice almost
+- [29:30.240] no country has that choice but in the
+- [29:32.640] case of the UK Scotland I'm talking
+- [29:34.960] about Scotland right off the shore in
+- [29:36.880] Aberdine Scotland that was Aberine
+- [29:39.919] Aberdine was the oil capital of Europe
+- [29:42.399] for years and then one day the liberals
+- [29:44.720] got in and they closed it and your
+- [29:47.279] energy rates have quadrupled
+- [29:49.919] you have among the highest highest
+- [29:51.200] energy prices in the world. You could
+- [29:52.880] cut them in half. You could give away
+- [29:54.320] free energy if you'd open up the North
+- [29:56.480] and it's good for another 500 years,
+- [29:58.640] maybe more. Probably a thousand years.
+- [30:01.440] >> Has our new prime minister restored your
+- [30:03.039] faith in the leadership of Britain? Has
+- [30:05.279] our new prime minister restored your
+- [30:06.960] faith in the leadership of Britain or do
+- [30:08.320] you think it's too late?
+- [30:10.559] >> Look, I think we're going to have a very
+- [30:12.399] good relationship. We'll see. I'm not
+- [30:14.480] going to tell him how to run his
+- [30:15.600] country, but I can tell you immigration
+- [30:18.399] is an incredible problem for Europe.
+- [30:21.600] You're allowing people in that in many
+- [30:23.679] cases
+- [30:25.600] are not going to help you. I'm going to
+- [30:26.799] be nice. They're not going to help you.
+- [30:29.039] And the people that are there, people
+- [30:31.840] from your country, people from other
+- [30:34.480] countries that have been there for a
+- [30:36.240] long time and did a great job.
+- [30:37.679] Beautiful. Look, I love it. You know, my
+- [30:39.679] parents both came from [snorts] Europe
+- [30:42.080] indirectly.
+- [30:43.760] So, a German
+- [30:46.559] Scott
+- [30:48.080] and you know it's like uh one of those
+- [30:50.880] things. It's very sad when I see what's
+- [30:52.799] happening to Europe. It's very sad to
+- [30:54.559] me. But they have a problem with
+- [30:56.480] immigration. They have a problem with
+- [30:57.919] energy. You have windmills all over the
+- [30:59.600] place. Windmills, you lose your shirt.
+- [31:01.840] Any country with windmills is a loser.
+- [31:05.039] Okay. You just have to look. If they
+- [31:08.000] have windmills, they're a loser because
+- [31:10.159] you lose you lose money with windmills.
+- [31:12.880] >> Yeah. Please go ahead.
+- [31:13.760] >> Thank you. Thank you, Mr. President. Do
+- [31:15.279] I know who you were?
+- [31:16.399] >> John Frederick's Media.
+- [31:17.840] >> Yeah, that's right.
+- [31:18.960] >> Original name.
+- [31:20.240] >> Uh
+- [31:20.559] >> what was your name before?
+- [31:21.760] >> John Fredericks.
+- [31:23.840] >> Go ahead, John.
+- [31:24.640] >> Where Mark? Uh two domestic questions,
+- [31:28.000] sir. The first one is Exxon and Chevron
+- [31:31.200] in integrated all US just announced
+- [31:34.720] record profits second quarter.
+- [31:37.360] Unbelievable. for for Exxon for instance
+- [31:40.799] 14 being highest they've had in over a
+- [31:42.480] decade for Chevron for the quarter
+- [31:44.720] highest in history
+- [31:46.880] >> on the back
+- [31:47.440] >> by 12 times
+- [31:48.880] >> on the backs
+- [31:49.600] >> you saw that
+- [31:50.320] >> yes I mean it's unbelievable on the
+- [31:52.240] backs
+- [31:52.720] >> I don't like it
+- [31:53.600] >> workers paying higher gas
+- [31:56.080] >> what are is our
+- [31:57.440] >> they're making too much money okay based
+- [32:00.720] on a shortage they're making too much
+- [32:02.480] money I don't like it and I'm I should
+- [32:04.240] be the last one to say it because I'm a
+- [32:05.919] big free enterprise guy nobody bigger
+- [32:09.039] And you know, we're you're going to see
+- [32:12.159] oil when we're finished with Iran,
+- [32:13.679] you're going to see the prices drop
+- [32:14.960] through the floor. But they made too
+- [32:17.039] much money. Too much money. Chevron, too
+- [32:20.640] much money. Uh Exxon Mobile, too much.
+- [32:24.720] Too much money. When you look at one
+- [32:27.200] company where they made 12 times what
+- [32:29.120] they made the year before, they're going
+- [32:31.279] to give some of that back to the public.
+- [32:33.360] And they better cut the retail price,
+- [32:35.840] the consumer price.
+- [32:37.840] Too much money. You surprised I'm saying
+- [32:39.519] it? I'll say it loud and clear. I'm not
+- [32:41.600] happy about it. Go ahead.
+- [32:43.360] >> Comparison.
+- [32:44.799] >> Just just one. For us, for those of us
+- [32:47.679] here that live in Washington DC with our
+- [32:50.159] families like I do,
+- [32:52.240] >> the renaissance of the city that you've
+- [32:54.640] been able to do in 18 months is
+- [32:56.159] incredible.
+- [32:57.840] >> Before you
+- [32:59.120] >> I could you hear that everybody? The
+- [33:01.519] renaissance of Washington DC in 15 16
+- [33:05.760] months is incredible. what it is. It's
+- [33:08.159] clean. It's safe. And you haven't seen
+- [33:10.880] anything yet. We're replacing all of the
+- [33:12.720] grass that hasn't been replaced in the
+- [33:14.960] fields, all the beautiful fields where
+- [33:16.559] the grasses, you know, grass is like
+- [33:18.480] humans. Uh it has a life. This grass
+- [33:21.919] hasn't been changed in a hundred years.
+- [33:24.159] We're doing all the fields. We're doing
+- [33:26.240] all the most of the graffiti is removed.
+- [33:28.399] But the most important thing is it's
+- [33:30.960] been beautified. We did 78 monuments and
+- [33:34.640] fountains and waterfalls
+- [33:37.200] and they went from being horrible mostly
+- [33:41.120] graffiti and most of them for 25 years
+- [33:43.840] never worked. They haven't worked and
+- [33:46.000] it's a renaissance like you use the word
+- [33:48.000] renaissance but it's a renaissance but
+- [33:50.159] the biggest thing is we have very little
+- [33:52.320] crime now. This was the crime capital
+- [33:54.640] frankly of the world. It was the most
+- [33:57.360] unsafe capital of any country in the
+- [34:00.320] world. Now it's one of the safest and
+- [34:02.640] it's one of the safest places in the
+- [34:04.960] United States and people are coming
+- [34:07.200] down. You see it the tourism in
+- [34:08.800] Washington. Everyone's safe now. Nobody
+- [34:11.520] get nobody's getting mugged, shot. We
+- [34:15.200] used to lose three people a week death.
+- [34:18.720] That's the least I mean it's three
+- [34:20.639] people in terms of death. 150 people a
+- [34:23.760] year were killed. They come down from
+- [34:26.320] Iowa. They come from Indiana. Mom, I'm
+- [34:28.800] looking at the Washington Monument. I'm
+- [34:30.639] looking at and they end up getting
+- [34:32.480] killed. You call their parents. I'm
+- [34:34.159] sorry. Doesn't happen anymore. We don't
+- [34:36.879] have that anymore. We play r We're
+- [34:38.639] rough, but we don't have that anymore.
+- [34:40.639] Our military has been unbelievable. And
+- [34:42.720] they work very well with the DC police.
+- [34:44.639] But our military came in, the general
+- [34:47.679] people that we know so well, General,
+- [34:50.079] right? They don't play games. And we uh
+- [34:52.639] we got the gangs out. We removed almost
+- [34:55.359] 5,000 people who were career criminals
+- [34:58.800] who came in with Biden with the open
+- [35:00.560] borders, a lot of them. And they're no
+- [35:03.520] longer here. We sent them back to their
+- [35:05.599] countries.
+- [35:09.040] >> You've got to say, have you ever seen
+- [35:11.119] such a transformation?
+- [35:12.640] >> It's unbelievable. If you live here,
+- [35:14.800] it's just you don't want to go back.
+- [35:16.400] >> And now you can walk to work. You can
+- [35:18.079] walk to the White House. The people in
+- [35:19.680] the White House, they work in the tell
+- [35:21.520] me, "Sir, thank you all." They were
+- [35:22.800] thanking me all the time. They used to
+- [35:24.560] have to take Uber and the Uber would be
+- [35:26.960] robbed. Okay? They weren't even say
+- [35:29.599] they'd go to a restaurant and they'd
+- [35:32.079] feel safe in a restaurant and then the
+- [35:33.920] restaurant would be robbed. Do you know
+- [35:35.599] the restaurants were all closing and now
+- [35:37.760] you can't if you're a restaurant tour,
+- [35:39.359] you can't get a a restaurant. You I
+- [35:41.440] mean, you literally can't. The
+- [35:43.280] restaurants are booming. Crime is down
+- [35:46.480] 92% maybe more. I wouldn't get down
+- [35:49.839] 100%. You know, the greatest statistic
+- [35:52.000] though that you have is that 2% of the
+- [35:55.520] people create 91% of the crime. You can
+- [35:59.280] really handle that. And we've moved
+- [36:01.680] almost 5,000 people out. They're
+- [36:03.680] criminals, career criminals. We move
+- [36:05.599] that or in some cases they're in jail.
+- [36:07.839] In some cases, they were so bad they
+- [36:10.480] came in through Biden. They're so bad.
+- [36:12.480] We don't want to move them out. We want
+- [36:13.760] to put them in jails because we're
+- [36:15.040] afraid they're going to come back in
+- [36:16.320] somehow. So, I appreciate you saying
+- [36:18.720] that.
+- [36:21.040] consider going to Congress if they come
+- [36:22.640] in and try to roll it back the new
+- [36:25.359] democratic mayor
+- [36:26.560] >> and you had a mayor who's I guess she's
+- [36:28.640] a communist. I mean she says she's a
+- [36:31.200] socialist but I guess she's a communist
+- [36:33.920] based on what she says but I have not
+- [36:35.680] met her yet. I look forward to meeting
+- [36:37.839] her. Uh would I federalize basically
+- [36:41.119] you're saying federalize DC? Yeah, I'm
+- [36:43.119] allowed to do that. Would I do it if
+- [36:45.440] they want to? We took something that was
+- [36:47.760] in deep trouble. It was a
+- [36:50.400] graffitifilled, crimefilled mess. We
+- [36:53.119] turned it into Shangrila. We turned it
+- [36:55.760] into a great place. Look outside. Look
+- [36:57.599] what's happening. Look at the beautiful
+- [36:59.680] ballroom and military center. It's a
+- [37:01.599] military center. Much more than we have
+- [37:03.680] a drone port on top. We look at the
+- [37:06.720] grass in front of the White House being
+- [37:08.320] all replaced with the top stuff. The
+- [37:11.200] parks are all being replaced. It starts
+- [37:13.520] very soon actually. We'll do one at a
+- [37:15.839] time. It's about 700 acres of parks.
+- [37:18.320] We're all going to have brand new, the
+- [37:20.240] best grass you can get. Scots, you know
+- [37:22.880] Scots? Scots Miracle Grow. They're doing
+- [37:25.440] it. They do great grass. What can I tell
+- [37:27.440] you? I got to give him a plug because
+- [37:29.440] they did the White House for free. Sir,
+- [37:32.320] a friend of mine, a guy that he's
+- [37:34.160] terrific. We'd like to give you new
+- [37:36.320] grass at the White House. I said, I'll
+- [37:37.920] take it. How much? He said, free. I'll
+- [37:40.000] take it.
+- [37:41.920] >> Thank you. Thank you very much,
+- [37:43.440] >> Mr. President. This is at least the
+- [37:45.040] fifth time you've turned off air strikes
+- [37:47.280] against Iran since April to negotiate.
+- [37:50.079] What is your message to the American
+- [37:51.520] people who are wondering what has
+- [37:53.040] changed this time? Why should it be any
+- [37:54.480] different?
+- [37:54.800] >> Well, you don't know. I don't know. I
+- [37:56.400] think we're going to maybe get
+- [37:57.599] something, but I want to give them every
+- [37:59.680] last chance before decapitation.
+- [38:03.119] Very tough to do what I what we have
+- [38:05.680] planned still planned. We'll see what
+- [38:08.240] happens. But it's very very tough thing
+- [38:10.800] to do. I think uh I'm very proud of the
+- [38:14.720] fact that I will give people I'll give
+- [38:16.079] people a chance. This is a big move to
+- [38:18.480] do an attack that big on a country I'd
+- [38:22.000] rather not do it. Now we've already
+- [38:24.320] through lots of large attacks but they
+- [38:27.359] were normal large. Um hopefully they'll
+- [38:31.920] come to their senses because what
+- [38:33.599] happened can cannot have a nuclear
+- [38:36.000] weapon but hopefully they'll come to
+- [38:37.839] their senses. So they called me and they
+- [38:41.680] said, "Please don't attack. We'll make a
+- [38:43.280] deal." That's the real truth. And
+- [38:46.960] everyone knows it. And who wouldn't
+- [38:48.880] call? And they found out through leaks
+- [38:53.119] and sleeves bags. You know, a lot of
+- [38:54.640] sleeves bags leak leakers. Leakers
+- [38:56.800] should be put in jail. They should they
+- [38:58.560] have to strengthen up the laws for
+- [38:59.920] leakers. But in this case, leakers
+- [39:02.480] helped because they said the severity of
+- [39:04.560] the attack and
+- [39:08.000] Iran knew it. They knew what was coming.
+- [39:10.560] It was going to come last night and it
+- [39:12.720] would have gone on for a long time and
+- [39:15.440] there'd be essentially very little left.
+- [39:17.920] There'd be nothing left. And
+- [39:21.680] if I given a chance to let a lot of
+- [39:25.760] people live, I want to give that chance.
+- [39:28.720] So, I I'm under no time constraint. You
+- [39:30.800] know, I don't happen to be running, but
+- [39:32.800] a lot of very good Republicans are
+- [39:34.320] running. And you have a sick ideology
+- [39:36.960] taking place right now that, you know,
+- [39:39.040] hopefully they'll be defeated because
+- [39:40.400] they'll destroy the country if they ever
+- [39:41.920] take over. But this desk is like a
+- [39:44.560] blocking desk. No matter who gets in, if
+- [39:47.119] it's bad, I block. And I'm good at
+- [39:49.359] blocking. If it's bad, if it's stupid
+- [39:52.160] things like the things they want to do,
+- [39:53.839] we want to get rid of the US Senate. I
+- [39:56.640] don't like a lot of Senate just to be
+- [39:58.160] honest with you. I don't want to get rid
+- [39:59.359] of the Senate. We want to get rid of the
+- [40:01.520] Supreme Court. They want to put now 21
+- [40:04.000] or 23 people. That's that's a real on
+- [40:06.320] the Supreme Court or get rid of it. Uh
+- [40:09.280] they want to get rid of the presidency.
+- [40:11.280] They want to have an appointed executive
+- [40:13.440] running. That's a communist thing. You
+- [40:15.599] know, that's a communist thing. Uh these
+- [40:18.240] are sick people. And you know, I said it
+- [40:20.640] the other day and it maybe doesn't sound
+- [40:22.720] that important, but when a country goes
+- [40:25.920] bad, like look at the blue cities, what
+- [40:28.720] do they have in common? Aside from
+- [40:30.400] massive crime, much more crime, the
+- [40:32.960] Republicans have very little crime. But
+- [40:35.359] what do the blue cities have in mind?
+- [40:37.200] And also, you can say this with nations
+- [40:40.000] when they go bad. The blue cities have
+- [40:42.880] something in common. Crime, high crime,
+- [40:46.160] vicious, violent crime.
+- [40:48.720] But what do they have in common? They're
+- [40:50.480] all dirty. They're filthy dirty. Their
+- [40:54.160] streets are dirty. Their streets smell.
+- [40:57.920] Their storefronts are broken. Their
+- [41:00.800] trees are all gross. Everything about
+- [41:04.240] the place is dirty. And I don't want to
+- [41:06.800] mention any specific city. It's really
+- [41:09.839] all of them. But you go into these
+- [41:12.000] cities that are blue, they're
+- [41:13.920] crimeridden, and they're filthy dirty.
+- [41:16.800] They're like Washington DC was a year
+- [41:19.760] and a half ago with graffiti all over
+- [41:22.160] the place, with crime all over the
+- [41:24.000] place, with people afraid to be here.
+- [41:26.880] You had to be ashamed of your capital.
+- [41:28.640] Some of the most beautiful buildings
+- [41:30.480] built in the real time. Like you look at
+- [41:33.440] the Supreme Court building and they put
+- [41:35.119] graffiti on it. The most beautiful
+- [41:37.440] columns I've ever seen. In fact, our
+- [41:39.119] columns are going to be nicer. At the
+- [41:40.720] ballroom, I said, "I want the Supreme
+- [41:43.440] Court but better." But you look at those
+- [41:45.920] columns, how magnet, and then you see
+- [41:47.760] graffiti on the side of the building. No
+- [41:50.880] artistry, just bad people. But the one
+- [41:54.079] thing they all have in common, crime.
+- [41:57.599] The two things, crime. But they're
+- [41:59.680] disgusting. They're filthy dirty. The
+- [42:02.560] streets are dirty. They have people
+- [42:04.720] lying all over the street doing, you
+- [42:06.720] know what?
+- [42:08.400] They're all the same. And this is what
+- [42:11.200] we're going to put in. Not going to
+- [42:12.560] happen in our country.
+- [42:17.920] Go ahead, sir.
+- [42:19.280] >> Yeah, in the back.
+- [42:20.800] >> When someone me, sir, or
+- [42:22.640] >> go ahead.
+- [42:23.119] >> Okay.
+- [42:23.520] >> When a group sir, when a group loses,
+- [42:26.240] >> I'm sorry.
+- [42:26.880] >> He was very rude to you, right?
+- [42:29.200] >> Go ahead.
+- [42:29.920] >> Who are you with?
+- [42:30.560] >> I'm with Real America's voice, sir.
+- [42:32.720] >> Sir, when a group such as the Haitians
+- [42:35.040] lose their temporary protective status,
+- [42:37.920] how soon should they be bust flown out?
+- [42:40.960] >> Well, we had a big victory in court on
+- [42:44.000] temporary, you know, the protective
+- [42:45.760] status. Uh, and I largely leave it up to
+- [42:49.359] my people, but we've had people here for
+- [42:52.319] many years and they were here
+- [42:53.359] temporarily. You know, we had people
+- [42:55.040] coming in and they've been here for
+- [42:56.560] many, many years and they had a tragedy
+- [42:59.599] in their country. They had sometimes it
+- [43:01.599] was storms or it was, you know, it was
+- [43:04.400] hurricanes
+- [43:06.000] and they come in and, you know, they're
+- [43:07.520] here for 12 years, 14 years. So,
+- [43:10.400] something's got to be done. Yeah.
+- [43:11.520] Please,
+- [43:11.760] >> Mr. on the oil.
+- [43:13.040] >> Have you Have you spoken to Janine Piro
+- [43:15.599] about her decision to drop?
+- [43:17.680] >> No, Janine Piro made a mistake.
+- [43:20.160] >> There was vandalism. I just told you we
+- [43:22.480] did I think 78. One of the things was
+- [43:25.119] the reflecting pool. Hasn't worked since
+- [43:27.440] 1922 because it always leaked. It always
+- [43:30.240] leaked from 1922. You know, it's the
+- [43:32.400] largest, longest pool ever and all that.
+- [43:35.920] The concept is beautiful, but it always
+- [43:37.839] leaked because of the size, because of
+- [43:40.160] maintenance, whatever. But it was built
+- [43:42.319] in 1922 and from the day it was built it
+- [43:45.920] it leaked. Biden spent $ 58 million.
+- [43:50.800] Uh Barack Hussein Obama spent much more
+- [43:53.359] than that. He said I have an idea. Let's
+- [43:56.079] take the river from let's take the water
+- [43:57.920] from the PTOAC. So they took the water
+- [44:00.560] from the PTOIC and it was putrid. It was
+- [44:03.280] putrid. It was a disaster. Biden was a
+- [44:07.119] disaster. I said, "I'm going to get that
+- [44:08.960] fixed along with Doug Bergam and
+- [44:10.960] Department of Interior." And we worked
+- [44:13.119] hard on that. Now, we worked hard on all
+- [44:14.880] 70. It's actually, I think, 81 now. You
+- [44:16.880] saw the new horses that just opened by
+- [44:19.200] the bridge with the gold. That was the
+- [44:21.200] way they were many years ago. Now, they
+- [44:23.520] look better than they did many years
+- [44:24.960] ago. But these monuments look better
+- [44:27.200] than they did when they were originally
+- [44:28.960] built. Not just a little fix up. We made
+- [44:31.839] them the way they were. Plus, and
+- [44:34.880] everyone's so proud. The biggest uh one
+- [44:37.440] of the bigger jobs was not really the
+- [44:39.200] biggest, believe it or not, but one of
+- [44:40.720] the biggest was the reflecting pool. And
+- [44:44.000] we did a great job. We sand blasted the
+- [44:47.280] stone outside. It was granite, so it has
+- [44:49.040] a long life. We uh did a great job. We
+- [44:52.400] got very expensive material to put on
+- [44:54.400] top of the surface that always leaked
+- [44:56.720] because it was stone. It was a stone
+- [44:58.160] surface. Always leaked. And we put it on
+- [45:02.240] and it was beautiful. Now we have
+- [45:05.520] photographs or tapes like moving
+- [45:09.119] cameras, right? We have them where
+- [45:11.839] people are on the side cutting it with a
+- [45:14.240] box knife was.
+- [45:16.880] So now I'm not saying I was 100%
+- [45:19.599] thrilled with uh the contractor, but the
+- [45:23.440] contractor was rushing. We wanted to get
+- [45:25.200] it open for July 4th and we got it done.
+- [45:29.119] But in addition,
+- [45:31.440] there was vandalism. Number one, look at
+- [45:34.079] the grass where the grass was uh all
+- [45:38.880] knocked out with a very very powerful
+- [45:43.119] uh ingredient that we know very well
+- [45:45.440] what it is. I'm not going to say the
+- [45:46.720] name because people get ideas, but and
+- [45:50.480] they put a terrible phrase. I won't say
+- [45:52.160] that either, but a terrible phrase on a
+- [45:54.480] massive piece of grass that we had just
+- [45:56.240] replaced. Kill the grass. We had to
+- [45:58.160] replace the grass. A lot of grass. In
+- [46:01.760] addition, they took knives or cutters
+- [46:03.920] and they cut the material. It's material
+- [46:06.640] and they put their hands and they pulled
+- [46:09.119] it. And there was also some maintenance
+- [46:12.640] things that we would have routinely
+- [46:14.160] fixed. But we had that up and it was
+- [46:17.359] perfect. And then you had the bubblers
+- [46:19.760] which get rid of the, you know, the what
+- [46:22.079] forms in the water and that works great.
+- [46:24.640] But they turned it off because of the
+- [46:26.079] fight because it competed a little bit
+- [46:29.359] of noise during the fight. They turned
+- [46:31.200] it off and it grows very rapidly in the
+- [46:34.800] water. But that actually works very well
+- [46:37.359] and that's all. So now we're just about
+- [46:40.480] set to reopen it and we had a we had to
+- [46:43.760] replace cut areas where they cut it and
+- [46:47.599] ripped it. But there's a tape and Jesse
+- [46:50.400] Waters by the way did a whole big thing
+- [46:52.079] on it. There's a tape that's out there
+- [46:55.200] that I posted on truth where you have
+- [46:57.440] people leaning over the side. The
+- [46:59.119] weakest part because of the flexibility,
+- [47:01.200] you know, it moves. It's very
+- [47:02.560] complicated. It moves. And the softest
+- [47:05.280] part has to be flexible. And that's the
+- [47:08.480] stuff you can cut. And these guys knew
+- [47:10.720] what they were doing. And they cut all
+- [47:13.440] the way along the base. Cut, cut, cut.
+- [47:17.599] Now, when Janine looked at it, it was
+- [47:20.800] the day after the 4th of July with the
+- [47:23.200] largest fireworks display in the world,
+- [47:26.319] and the stuff was laying all over the
+- [47:28.079] pool, the fireworks, because they they
+- [47:30.480] used the pool as one of the And it was
+- [47:33.520] all over the pool. It was the day after,
+- [47:35.359] very shortly thereafter,
+- [47:37.599] but that was working beautifully and it
+- [47:40.480] was vandalized. And if you look at the
+- [47:42.720] tape, now the tape isn't a great tape in
+- [47:44.800] the sense that you it's a little hard to
+- [47:47.040] say who it exactly was, but it was
+- [47:49.839] people cutting this very expensive
+- [47:53.920] material, waterproofing material.
+- [47:56.560] Anyway, it looked beautiful and then
+- [48:00.240] they cut it and they vandalized and we
+- [48:02.960] weren't necessarily thrilled with the
+- [48:04.880] contractor, but they did a job and they
+- [48:08.560] were fixing any problems.
+- [48:11.200] But then it got carried away because the
+- [48:13.599] judge was extremely unfriendly to
+- [48:16.079] Janine. And frankly, I think she choked
+- [48:19.359] because the judge was really vicious.
+- [48:22.559] Instead of going after the people that
+- [48:24.319] did it, the judge went after her and
+- [48:27.440] went after her department. And I guess
+- [48:30.000] she choked. I don't know what the hell
+- [48:32.559] happened.
+- [48:32.880] >> You're reconsidering her role. You're
+- [48:34.480] >> I don't know what you don't You're fake
+- [48:36.559] news. Don't Don't ever talk again.
+- [48:38.319] You're fake news. one of the one of the
+- [48:39.839] worst in the business. Fortunately,
+- [48:41.760] nobody watches you. But something
+- [48:44.880] happened. There was vandalism there and
+- [48:47.520] there was some things from the
+- [48:48.960] contractor which you which we would fix,
+- [48:51.920] but it's almost complete and when it
+- [48:54.480] opens, it's incredible. It's really
+- [48:56.400] incredible. But remember this, it leaked
+- [48:59.119] from 1922. It opened in 1922. They never
+- [49:03.599] solved the leak problem because it was
+- [49:05.520] stone and the cracks with the stone. It
+- [49:08.880] it it's not a stone is really not a
+- [49:10.720] waterproofing material. We essentially
+- [49:13.280] use a very high-grade swimming pool type
+- [49:16.640] material which was my idea. I was very
+- [49:19.280] proud of that idea. And by the way, I
+- [49:20.720] didn't know the contractor. Everyone
+- [49:21.920] said the contract. I didn't know the
+- [49:23.280] contractor. But when it was completed,
+- [49:27.119] it was perfect. But then somebody went
+- [49:29.839] in and cut it just like they did the
+- [49:32.400] grass. You know, nobody talks about the
+- [49:34.079] grass. The grass have helicopter
+- [49:36.160] pictures of what they did. Wasn't it 87?
+- [49:41.839] Right. Do you know what they did? Right.
+- [49:44.000] Did you see what they did? Did you see
+- [49:45.520] what they wrote? What did they write?
+- [49:48.079] >> 87 or sorry, 8647.
+- [49:50.960] >> That's right. 8647.
+- [49:53.440] They 86 them. So it's 86 47. They didn't
+- [49:58.480] do 45. At least they left 45 out. But
+- [50:01.244] [clears throat] they and massive letters
+- [50:03.599] on the grass 8647.
+- [50:07.040] And nobody talked about that was
+- [50:09.200] vandalism, too. We had to replace all
+- [50:10.800] that grass. It was a tremendous amount
+- [50:12.400] of grass because when you hit hit it
+- [50:14.720] with this poison, it's acid. It kills
+- [50:17.119] the grass no matter how you can't even
+- [50:18.640] clean it. Even if you got there right
+- [50:20.079] after, it's very powerful. So I know it
+- [50:22.400] well. So, uh,
+- [50:26.640] people did great damage to this thing
+- [50:28.640] because they're sick people. You know,
+- [50:30.880] who's representing the man is a man from
+- [50:33.359] Crew, a sleas bag who's been suing me
+- [50:36.640] for my whole politic hasn't won. He's
+- [50:39.040] lost all the time. But Crew, do you know
+- [50:41.920] what Crew is? It's a third rate
+- [50:43.920] operation that's supposed to be a
+- [50:45.760] charity, but it's not. They used it for
+- [50:47.440] political reasons. So, um,
+- [50:51.440] we should be proud of our monuments and
+- [50:53.280] we should be proud of our city and you
+- [50:55.599] know that was open before they did the
+- [50:57.280] damage. That was open. It never looked
+- [50:59.599] more beautiful. It looked like a mirror
+- [51:01.359] and that's what it was supposed to be.
+- [51:02.640] It was a very dark color because
+- [51:04.480] otherwise you don't see it as a
+- [51:05.920] reflecting pool and it looked beautiful.
+- [51:08.319] Well, it'll look just as beautiful.
+- [51:10.559] It'll be fixed uh and open over the next
+- [51:13.680] week and a half, two weeks.
+- [51:15.119] >> Mr. President, will you bring foreign
+- [51:16.640] mission?
+- [51:16.960] >> One more. Yeah. Who are you rooting for
+- [51:18.400] in Michigan?
+- [51:20.160] >> Well, you have a a very interesting
+- [51:22.240] group. Who I really voted for is Mike
+- [51:24.800] Rogers because I think he's going to be
+- [51:26.960] a great senator. But you have a a
+- [51:30.240] communist versus a socialist. That's the
+- [51:32.400] way I look at it. You have a communist
+- [51:34.880] versus a socialist. It looks like the
+- [51:37.359] communist is leading. We're talking
+- [51:38.960] about for the Democrat primary, but for
+- [51:41.520] the Republican, you have a very good man
+- [51:44.240] and uh he should be able to he should be
+- [51:46.480] able to win. Yeah. Okay. One more in the
+- [51:49.839] Yeah. Go ahead.
+- [51:51.119] >> Lafayette Park.
+- [51:52.559] >> Lafayette Park. It's great.
+- [51:54.559] >> Do we do a good job in Lafayette Park?
+- [51:56.800] >> So, Lafayette Park is right across from
+- [51:59.040] the other side of the street and I made
+- [52:01.599] a donation of $10 million. That was me
+- [52:05.200] personally. And it's unbelievable. It
+- [52:09.520] was so dirty and so disgusting.
+- [52:12.559] Like everything liberal becomes dirty
+- [52:15.359] and disgusting. Social socialism,
+- [52:19.680] liberalism, progressivism. You know, the
+- [52:21.760] word progressive is such a nice word.
+- [52:23.359] They love using it, but the radical left
+- [52:25.760] isn't letting them use that word
+- [52:27.200] anymore. But Lafayette Park is a large
+- [52:30.559] park. It was known as the gateway to the
+- [52:33.119] White House and it was disgusting.
+- [52:37.280] The monument is beautiful. Graffiti all
+- [52:40.000] over it. Uh I won't say what was on the
+- [52:43.359] sidewalk, but horrible, horrible,
+- [52:45.280] horrible, disgusting. So, and not only
+- [52:48.079] did we fix it, we have military standing
+- [52:50.160] there watching it. And if anybody
+- [52:52.319] touches it, we That was the one mistake
+- [52:54.640] with the reflecting pond. They hadn't
+- [52:56.160] put up the cameras yet. They had enough
+- [52:58.319] up because you see what's happening. But
+- [53:00.800] if they would have had him up, uh, we
+- [53:03.040] would have had a lot of it would have
+- [53:04.720] been a lot easier. But and I was
+- [53:07.359] disappointed with Janine Piro. Really
+- [53:09.440] disappointed with Janine Piro. She, uh,
+- [53:12.960] she folded like an umbrella. And people
+- [53:16.240] get away with things and it's it's a
+- [53:17.920] disgrace. But we're very proud of
+- [53:19.920] Lafayette Park. Now, we have a big
+- [53:22.000] decision to make. Do we take the pavers
+- [53:24.400] that are red, you know, the red brick
+- [53:25.839] pavers, and do we change them into a
+- [53:28.240] granite?
+- [53:29.760] It's a gray granite. They're beautiful,
+- [53:31.760] but they're not the original. So, we're
+- [53:33.760] going to have to make that decision. You
+- [53:35.359] have a good sense of taste. What would
+- [53:36.880] you do? Huh?
+- [53:38.079] >> Yes. Change it.
+- [53:39.040] >> You would change the red brick into the
+- [53:40.640] granite.
+- [53:41.520] >> The granite is much stronger. Holds up
+- [53:43.680] much better.
+- [53:44.880] >> Different color.
+- [53:45.760] >> Legacy.
+- [53:46.800] >> Change it. Okay.
+- [53:47.920] >> Are you considering buying your Mr.
+- [53:49.359] President? Mr. President,
+- [53:50.000] >> go ahead, please.
+- [53:50.640] >> Thank you, Mr. President. Today's the
+- [53:52.000] MLB trade deadline and there's been talk
+- [53:53.920] lately about a potential lockout next
+- [53:55.839] year um I think over salary cap concerns
+- [53:59.760] salary cap. Do you uh support a salary
+- [54:02.800] cap in the MLB and what are your
+- [54:04.400] thoughts?
+- [54:04.720] >> Well, we're going to talk about that at
+- [54:06.079] a different time. You know, it's a
+- [54:07.760] complex situation but not too complex
+- [54:10.079] for me. Yeah, please.
+- [54:11.680] >> What did you think of the Nationals
+- [54:12.720] trading Luis Garcia to the Yankees? And
+- [54:14.880] you think Luis Garcia from the
+- [54:17.680] Washington Nationals to the New York
+- [54:19.040] Yankee? You're New York Yankees. And
+- [54:20.559] what do you think of the job Brian
+- [54:21.680] Kman's doing?
+- [54:23.119] >> Well, I've known Brian Cashman for a
+- [54:24.720] long time. Look, he's done a good job. I
+- [54:26.319] think Randy Lavine is great. He's a
+- [54:27.920] great executive. And by the way, the NIL
+- [54:30.800] or whatever it is, uh, is very close to
+- [54:34.000] getting solved college sports. And Randy
+- [54:37.280] Lavine and Nick Sabin and a whole group
+- [54:40.079] of people have done an unbelievable job.
+- [54:43.760] That was a case that should have been
+- [54:45.119] appealed by the NCAA. They never
+- [54:47.839] appealed it. Whoever ran the NCAA, they
+- [54:50.160] never appealed it. The original case was
+- [54:52.640] thrown out by a judge that knew nothing
+- [54:54.240] about sports, nothing about sports or
+- [54:57.040] college sports.
+- [54:58.960] And that case should have been appealed.
+- [55:01.119] They didn't appeal it. They didn't know.
+- [55:02.640] I think they forgot something happened.
+- [55:05.280] And college sports was and is in turmoil
+- [55:08.400] right now. Turmoil.
+- [55:11.040] And
+- [55:12.720] Randy Lavine from the Yankees, the
+- [55:15.119] president of the Yankees, got together
+- [55:16.960] with a lot of people. We had it right
+- [55:18.319] here. 60 people. 60 people that were in
+- [55:21.200] that world, including legal people and
+- [55:24.319] uh from football was Nick Dick Sabin who
+- [55:26.800] won six or seven championships.
+- [55:29.040] Fantastic coach and very respected and
+- [55:31.119] many other people very very respected
+- [55:34.480] and we have it a bipartisan deal as of
+- [55:36.800] right now. So, we'll see what happens.
+- [55:38.400] We have to they'll be voting on it soon.
+- [55:40.559] I hope they get it. I hope they get it
+- [55:42.559] done. Thank you all very much. Thank
+- [55:44.400] you.
+- [55:45.839] >> Thank you.
+- [55:46.800] >> Thank you for that question.
+- [55:48.799] >> I love this question.
+- [55:50.640] >> Thank you guys. You can head out that
+- [55:52.880] have a great time. Thank you everybody.
+- [55:54.480] Good luck. Thank you.
