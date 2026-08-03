@@ -1,7 +1,19 @@
 # TruthSocial / RealDonaldTrump / 2026-08-03
 
-- Posts: 5
+- Posts: 9
 
+- [20:07 UTC - Congresswoman Carol Miller is an incredible Representative for the Great People of West Vi...](117033378956434362/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117033378956434362
+  - Congresswoman Carol Miller is an incredible Representative for the Great People of West Virginia’s 1st Congressional District! Carol is a Fierce Advocate for our America First Agen...
+- [20:06 UTC - Congressman Riley Moore is a tremendous America First Representative for the Wonderful Peo...](117033376349965103/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117033376349965103
+  - Congressman Riley Moore is a tremendous America First Representative for the Wonderful People of West Virginia’s 2nd Congressional District! In Congress, Riley is working tirelessl...
+- [20:05 UTC - Senator Shelley Moore Capito is doing a tremendous job representing the Wonderful People o...](117033372616516237/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117033372616516237
+  - Senator Shelley Moore Capito is doing a tremendous job representing the Wonderful People of West Virginia, a State I love and WON BIG in 2016, 2020, and 2024! As the Chair of the S...
+- [19:40 UTC - I just spoke with the Governor of Missouri, Mike Kehoe, an outstanding guy, and told him I...](117033273093832896/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117033273093832896
+  - I just spoke with the Governor of Missouri, Mike Kehoe, an outstanding guy, and told him I am approving 24.5 Million Dollars for the severe storms, winds, tornadoes, and flooding t...
 - [16:51 UTC - Truth Social post 117032607018876906](117032607018876906/)
   - Source: https://truthsocial.com/@realDonaldTrump/117032607018876906
   - _No text content captured._
