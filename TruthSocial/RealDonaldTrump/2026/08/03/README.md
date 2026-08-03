@@ -1,7 +1,22 @@
 # TruthSocial / RealDonaldTrump / 2026-08-03
 
-- Posts: 9
+- Posts: 14
 
+- [20:32 UTC - From Greg Wischer at the United States Department of the Interior: “The statue of Baron Fr...](117033476616816431/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117033476616816431
+  - From Greg Wischer at the United States Department of the Interior: “The statue of Baron Friedrich Wilhelm von Steuben in Lafayette Park was cleaned and waxed by the National Park S...
+- [20:24 UTC - I just spoke with Patrick Morrisey, the GREAT Governor of West Virginia, a State I love an...](117033446548192867/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117033446548192867
+  - I just spoke with Patrick Morrisey, the GREAT Governor of West Virginia, a State I love and WON BIG, with Record Setting Votes, three times, and told him I am approving 4.5 Million...
+- [20:13 UTC - These are the missing children, and we’re not being helped at all by Sanctuary Cities. The...](117033403203108907/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117033403203108907
+  - These are the missing children, and we’re not being helped at all by Sanctuary Cities. They’re going out of their way to make sure the children remain missing! President DONALD J....
+- [20:13 UTC - Truth Social post 117033401121285671](117033401121285671/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117033401121285671
+  - _No text content captured._
+- [20:12 UTC - Truth Social post 117033398522103417](117033398522103417/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117033398522103417
+  - _No text content captured._
 - [20:07 UTC - Congresswoman Carol Miller is an incredible Representative for the Great People of West Vi...](117033378956434362/)
   - Source: https://truthsocial.com/@realDonaldTrump/117033378956434362
   - Congresswoman Carol Miller is an incredible Representative for the Great People of West Virginia’s 1st Congressional District! Carol is a Fierce Advocate for our America First Agen...

@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=EtctNOj2gz4: NoTranscriptFound: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=EtctNOj2gz4! This is most likely caused by:\n\nNo transcripts were found for any of the requested language codes: ['en', 'en-US']\n\nFor this video (EtctNOj2gz4) transcripts are available in the following languages:\n\n(MANUALLY CREATED)\n - und (\"root\")\n\n(GENERATED)\nNone\n\n(TRANSLATION LANGUAGES)\nNone\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=EtctNOj2gz4: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=EtctNOj2gz4! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=EtctNOj2gz4&ei=MQZxap-qCJjCy_sP296WsQc&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1785817249&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=A0CC20BFBAC15FB7AA8EA30519AC357E1E0915F9.8588052C33D93A4B343A6FA5CA40FA5473F14D9F&key=yt8&kind=asr&lang=en&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -129869,6 +129869,61 @@
       "published": "2026-08-03T20:07:22.771000+00:00",
       "title": "Congresswoman Carol Miller is an incredible Representative for the Great People of West Vi...",
       "url": "https://truthsocial.com/@realDonaldTrump/117033378956434362"
+    },
+    "truthsocial:realdonaldtrump:117033398522103417": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T21:20:27.415364+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033398522103417",
+      "platform": "truthsocial",
+      "post_id": "117033398522103417",
+      "published": "2026-08-03T20:12:21.317000+00:00",
+      "title": "Truth Social post 117033398522103417",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033398522103417"
+    },
+    "truthsocial:realdonaldtrump:117033401121285671": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T21:20:27.415053+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033401121285671",
+      "platform": "truthsocial",
+      "post_id": "117033401121285671",
+      "published": "2026-08-03T20:13:00.981000+00:00",
+      "title": "Truth Social post 117033401121285671",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033401121285671"
+    },
+    "truthsocial:realdonaldtrump:117033403203108907": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T21:20:27.414755+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033403203108907",
+      "platform": "truthsocial",
+      "post_id": "117033403203108907",
+      "published": "2026-08-03T20:13:32.743000+00:00",
+      "title": "These are the missing children, and we\u2019re not being helped at all by Sanctuary Cities. The...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033403203108907"
+    },
+    "truthsocial:realdonaldtrump:117033446548192867": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T21:20:27.414370+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033446548192867",
+      "platform": "truthsocial",
+      "post_id": "117033446548192867",
+      "published": "2026-08-03T20:24:34.139000+00:00",
+      "title": "I just spoke with Patrick Morrisey, the GREAT Governor of West Virginia, a State I love an...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033446548192867"
+    },
+    "truthsocial:realdonaldtrump:117033476616816431": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-03T21:20:27.413945+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/03/117033476616816431",
+      "platform": "truthsocial",
+      "post_id": "117033476616816431",
+      "published": "2026-08-03T20:32:12.951000+00:00",
+      "title": "From Greg Wischer at the United States Department of the Interior: \u201cThe statue of Baron Fr...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117033476616816431"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
