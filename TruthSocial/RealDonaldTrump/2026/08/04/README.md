@@ -1,7 +1,37 @@
 # TruthSocial / RealDonaldTrump / 2026-08-04
 
-- Posts: 32
+- Posts: 42
 
+- [22:34 UTC - The Highly Respected Alan Dershowitz has written a powerful new book, “Why I quit the Dems...](117039621730674599/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117039621730674599
+  - The Highly Respected Alan Dershowitz has written a powerful new book, “Why I quit the Dems and so should you! (confessions of a reluctant Republican*).” Alan is a Great American Pa...
+- [22:34 UTC - It was my Honor to write the Foreword for Brian Pannebecker’s incredible new Book, “Blue C...](117039619696525479/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117039619696525479
+  - It was my Honor to write the Foreword for Brian Pannebecker’s incredible new Book, “Blue Collar Conservative: From Reagan to Trump.” As the head of Autoworkers for Trump, Brian has...
+- [22:30 UTC - For many years, the vast Majority of Americans have asked to make Daylight Saving Time per...](117039604712486897/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117039604712486897
+  - For many years, the vast Majority of Americans have asked to make Daylight Saving Time permanent, but no Administration has been able to get it done, until now. I am proud to annou...
+- [22:29 UTC - The very complex and expensive structure, being built for the United States Military, at t...](117039600038088122/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117039600038088122
+  - The very complex and expensive structure, being built for the United States Military, at the East Wing of the White House. This picture does not yet include the DronePort, where th...
+- [22:15 UTC - HAPPY 236th BIRTHDAY TO THE UNITED STATES COAST GUARD! Today we honor the incredible Men a...](117039543091617698/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117039543091617698
+  - HAPPY 236th BIRTHDAY TO THE UNITED STATES COAST GUARD! Today we honor the incredible Men and Women of the United States Coast Guard, who protect our Borders, defend our Homeland, s...
+- [22:14 UTC - Truth Social post 117039540734733872](117039540734733872/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117039540734733872
+  - _No text content captured._
+- [21:49 UTC - Truth Social post 117039441487438111](117039441487438111/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117039441487438111
+  - _No text content captured._
+- [21:48 UTC - Truth Social post 117039440296861894](117039440296861894/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117039440296861894
+  - _No text content captured._
+- [21:42 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037771483072269 The new Pres...](117039413442491515/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117039413442491515
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037771483072269 The new President Donald J. Trump Bridge in Tennessee. A Great Honor!
+- [21:39 UTC - My REAL Polling Numbers, not those made up by the Fake News Media, are the best they have ...](117039401914044983/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117039401914044983
+  - My REAL Polling Numbers, not those made up by the Fake News Media, are the best they have ever been, and why wouldn’t they be with the biggest tax cuts and employment numbers EVER,...
 - [20:38 UTC - Manufacturing is BOOMING! Factory activity just hit its fastest pace in more than FOUR YEA...](117039164487763760/)
   - Source: https://truthsocial.com/@realDonaldTrump/117039164487763760
   - Manufacturing is BOOMING! Factory activity just hit its fastest pace in more than FOUR YEARS, far exceeding expectations. New orders have expanded for SEVEN straight months. Americ...

@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=VYAl-Vx4uak: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=VYAl-Vx4uak! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=VYAl-Vx4uak: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=VYAl-Vx4uak! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=VYAl-Vx4uak&ei=Emtyaqz6D_K_0_wPp4uSwAY&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1785908610&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=204544FDD0FF995E6C4C84BB5DA654B49BDB472B.8B6A95BE6F3758669028C2592CF32164A18584C7&key=yt8&kind=asr&lang=en&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -130705,6 +130705,116 @@
       "published": "2026-08-04T20:38:42.973000+00:00",
       "title": "Manufacturing is BOOMING!\u00a0Factory activity just hit its\u00a0fastest pace in more than FOUR YEA...",
       "url": "https://truthsocial.com/@realDonaldTrump/117039164487763760"
+    },
+    "truthsocial:realdonaldtrump:117039401914044983": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-04T22:43:10.539294+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/04/117039401914044983",
+      "platform": "truthsocial",
+      "post_id": "117039401914044983",
+      "published": "2026-08-04T21:39:05.807000+00:00",
+      "title": "My REAL Polling Numbers, not those made up by the Fake News Media, are the best they have ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117039401914044983"
+    },
+    "truthsocial:realdonaldtrump:117039413442491515": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-04T22:43:10.538938+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/04/117039413442491515",
+      "platform": "truthsocial",
+      "post_id": "117039413442491515",
+      "published": "2026-08-04T21:42:01.718000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037771483072269 The new Pres...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117039413442491515"
+    },
+    "truthsocial:realdonaldtrump:117039440296861894": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-04T22:43:10.538569+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/04/117039440296861894",
+      "platform": "truthsocial",
+      "post_id": "117039440296861894",
+      "published": "2026-08-04T21:48:51.483000+00:00",
+      "title": "Truth Social post 117039440296861894",
+      "url": "https://truthsocial.com/@realDonaldTrump/117039440296861894"
+    },
+    "truthsocial:realdonaldtrump:117039441487438111": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-04T22:43:10.538327+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/04/117039441487438111",
+      "platform": "truthsocial",
+      "post_id": "117039441487438111",
+      "published": "2026-08-04T21:49:09.650000+00:00",
+      "title": "Truth Social post 117039441487438111",
+      "url": "https://truthsocial.com/@realDonaldTrump/117039441487438111"
+    },
+    "truthsocial:realdonaldtrump:117039540734733872": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-04T22:43:10.538079+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/04/117039540734733872",
+      "platform": "truthsocial",
+      "post_id": "117039540734733872",
+      "published": "2026-08-04T22:14:24.044000+00:00",
+      "title": "Truth Social post 117039540734733872",
+      "url": "https://truthsocial.com/@realDonaldTrump/117039540734733872"
+    },
+    "truthsocial:realdonaldtrump:117039543091617698": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-04T22:43:10.537833+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/04/117039543091617698",
+      "platform": "truthsocial",
+      "post_id": "117039543091617698",
+      "published": "2026-08-04T22:15:00.006000+00:00",
+      "title": "HAPPY 236th BIRTHDAY TO THE UNITED STATES COAST GUARD! Today we honor the incredible Men a...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117039543091617698"
+    },
+    "truthsocial:realdonaldtrump:117039600038088122": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-04T22:43:10.537016+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/04/117039600038088122",
+      "platform": "truthsocial",
+      "post_id": "117039600038088122",
+      "published": "2026-08-04T22:29:28.942000+00:00",
+      "title": "The very complex and expensive structure, being built for the United States Military, at t...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117039600038088122"
+    },
+    "truthsocial:realdonaldtrump:117039604712486897": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-04T22:43:10.536642+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/04/117039604712486897",
+      "platform": "truthsocial",
+      "post_id": "117039604712486897",
+      "published": "2026-08-04T22:30:40.266000+00:00",
+      "title": "For many years, the vast Majority of Americans have asked to make Daylight Saving Time per...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117039604712486897"
+    },
+    "truthsocial:realdonaldtrump:117039619696525479": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-04T22:43:10.536152+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/04/117039619696525479",
+      "platform": "truthsocial",
+      "post_id": "117039619696525479",
+      "published": "2026-08-04T22:34:28.905000+00:00",
+      "title": "It was my Honor to write the Foreword for Brian Pannebecker\u2019s incredible new Book, \u201cBlue C...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117039619696525479"
+    },
+    "truthsocial:realdonaldtrump:117039621730674599": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-04T22:43:10.535465+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/04/117039621730674599",
+      "platform": "truthsocial",
+      "post_id": "117039621730674599",
+      "published": "2026-08-04T22:34:59.944000+00:00",
+      "title": "The Highly Respected Alan Dershowitz has written a powerful new book, \u201cWhy I quit the Dems...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117039621730674599"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",

@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/117039604712486897 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 117039604712486897 -->
+<!-- date_published: 2026-08-04T22:30:40.266000+00:00 -->
+<!-- date_accessed: 2026-08-04T22:43:10.536642+00:00 -->
+
+# For many years, the vast Majority of Americans have asked to make Daylight Saving Time per...
+
+For many years, the vast Majority of Americans have asked to make Daylight Saving Time permanent, but no Administration has been able to get it done, until now. I am proud to announce that the House of Representatives has passed the Bill, and it has now gone to the Senate for final approval. People are sick and tired of having to change their clocks twice a year. It is foolish, inconvenient and, in some cases, very costly. For Cities and States with Watchtowers, and hard to reach places, it costs Millions of Dollars. A recent case was made that it is also bad for your health in the anxiety it creates. Leading Medical, Crime, and Economic Studies have shown that ceasing the biannual time change, giving us one extra hour of natural sunlight in the evenings, will help Decrease Robbery and Murder Rates, Reduce Car Accidents (especially those involving Pedestrians!), Lower Risk for Cardiac Issues, Stroke, and Seasonal Depression, Make It Safer for Children to Walk Home from School, Increase Time with your Family, Strongly Support Extracurricular Activities, Boost the Sports, Fitness, Tourism, Retail, and Restaurant Industries (and more!), and Save Money on Energy Bills, because everyone will be enjoying an EXTRA HOUR OF DAYLIGHT. In other words, leave it as it is now, and never change again. This is an issue that Republicans, Democrats, and Independents can unite behind. I am asking Republican Senators to release their holds, and allow the hotline to clear on the Republican side. LET’S PASS THE SUNSHINE PROTECTION ACT, ASAP. Thank you for your attention to this matter! President DONALD J. TRUMP
