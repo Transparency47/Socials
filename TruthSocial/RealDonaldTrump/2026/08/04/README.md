@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-08-04
 
-- Posts: 42
+- Posts: 44
 
+- [22:52 UTC - For far too long, Radical Climate Activists attempted to hold our Great Country hostage by...](117039691941169240/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117039691941169240
+  - For far too long, Radical Climate Activists attempted to hold our Great Country hostage by drastically and unreasonably expanding the intended scope of the Endangered Species Act....
+- [22:52 UTC - Congratulations to Brandon Beach, Treasurer of the United States, on having a portion of H...](117039688725255148/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117039688725255148
+  - Congratulations to Brandon Beach, Treasurer of the United States, on having a portion of Highway 9 in Alpharetta, Georgia, named in his honor! He helped us secure a HISTORIC Victor...
 - [22:34 UTC - The Highly Respected Alan Dershowitz has written a powerful new book, “Why I quit the Dems...](117039621730674599/)
   - Source: https://truthsocial.com/@realDonaldTrump/117039621730674599
   - The Highly Respected Alan Dershowitz has written a powerful new book, “Why I quit the Dems and so should you! (confessions of a reluctant Republican*).” Alan is a Great American Pa...
