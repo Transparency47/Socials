@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-08-04
 
-- Posts: 28
+- Posts: 31
 
+- [18:08 UTC - Highly Respected Congresswoman, Harriet Hageman, is running for the United States Senate i...](117038574177461795/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117038574177461795
+  - Highly Respected Congresswoman, Harriet Hageman, is running for the United States Senate in the Great State of Wyoming, a place I love and WON BIG in 2016, 2020, and 2024! I know H...
+- [18:05 UTC - “MAGA” Megan Degenfelder is running to be the next Governor of the Great State of Wyoming,...](117038561113354682/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117038561113354682
+  - “MAGA” Megan Degenfelder is running to be the next Governor of the Great State of Wyoming, a place I love and WON BIG in 2016, 2020, and 2024. Megan is fantastic, and strongly supp...
+- [17:30 UTC - It was my Great Honor to welcome Highly Respected and very popular Pennsylvania State Trea...](117038423985609551/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117038423985609551
+  - It was my Great Honor to welcome Highly Respected and very popular Pennsylvania State Treasurer, Stacy Garrity, into the Oval Office. Stacy is running to be the next Governor of th...
 - [14:45 UTC - It was my Honor to welcome now Senator Darline Graham Nordone (The sister of the Late, Gre...](117037774053730880/)
   - Source: https://truthsocial.com/@realDonaldTrump/117037774053730880
   - It was my Honor to welcome now Senator Darline Graham Nordone (The sister of the Late, Great Lindsey Graham!), from the Wonderful State of South Carolina, into the Oval Office. We...
