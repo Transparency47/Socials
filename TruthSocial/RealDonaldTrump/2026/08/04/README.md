@@ -1,7 +1,88 @@
 # TruthSocial / RealDonaldTrump / 2026-08-04
 
-- Posts: 1
+- Posts: 28
 
+- [14:45 UTC - It was my Honor to welcome now Senator Darline Graham Nordone (The sister of the Late, Gre...](117037774053730880/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037774053730880
+  - It was my Honor to welcome now Senator Darline Graham Nordone (The sister of the Late, Great Lindsey Graham!), from the Wonderful State of South Carolina, into the Oval Office. We...
+- [14:44 UTC - Truth Social post 117037771483072269](117037771483072269/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037771483072269
+  - _No text content captured._
+- [14:43 UTC - Campus free speech hits 20-year high under Trump administration: [https://www. washingtont...](117037767956003670/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037767956003670
+  - Campus free speech hits 20-year high under Trump administration: [https://www. washingtontimes.com/news/2026/ aug/3/fire-report-finds-free-speech-improving-colleges-trump-administr...
+- [14:41 UTC - McMahon Asks US Colleges to Pledge Campus Reforms by End of 2026: [https://www. bloomberg....](117037761167355357/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037761167355357
+  - McMahon Asks US Colleges to Pledge Campus Reforms by End of 2026: [https://www. bloomberg.com/news/articles/20 26-08-03/mcmahon-asks-colleges-to-pledge-campus-reforms-by-end-of-202...
+- [14:38 UTC - Trump: ‘Deal Is Imminent’ as Iran Talks Restart Monday on Denuclearization, Hormuz: [https...](117037747381813246/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037747381813246
+  - Trump: ‘Deal Is Imminent’ as Iran Talks Restart Monday on Denuclearization, Hormuz: [https://www. breitbart.com/politics/2026/08 /02/trump-deal-imminent-iran-talks-restart-monday-h...
+- [14:37 UTC - FIRST ON FOX: DHS points to ‘common sense’ reason for collapsing crime: ‘No surprise’: [ht...](117037745974010552/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037745974010552
+  - FIRST ON FOX: DHS points to ‘common sense’ reason for collapsing crime: ‘No surprise’: [https://www. foxnews.com/politics/dhs-point s-common-sense-reason-collapsing-crime-no-surpri...
+- [14:37 UTC - American Manufacturing Expands At Fastest Pace Since 2022: [https://www. breitbart.com/eco...](117037745032634968/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037745032634968
+  - American Manufacturing Expands At Fastest Pace Since 2022: [https://www. breitbart.com/economy/2026/08/ 03/american-manufacturing-expands-at-fastest-pace-since-2022/](https://www.b...
+- [14:37 UTC - FIRST ON FOX: Trump to open direct line with military families in ground-up readiness push...](117037743827019674/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037743827019674
+  - FIRST ON FOX: Trump to open direct line with military families in ground-up readiness push: [https://www. foxnews.com/politics/first-fox -trump-open-direct-line-military-families-g...
+- [14:37 UTC - President Trump celebrates Bedminster club championship, brags little practice was needed ...](117037742747950916/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037742747950916
+  - President Trump celebrates Bedminster club championship, brags little practice was needed to score a 70: [https://www. foxnews.com/outkick-sports/pre sident-trump-celebrates-bedmin...
+- [14:36 UTC - US steel production exceeds Japan's for first time in 26 years: [https:// asia.nikkei.com/...](117037741500436364/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037741500436364
+  - US steel production exceeds Japan's for first time in 26 years: [https:// asia.nikkei.com/business/mater ials/us-steel-production-exceeds-japan-s-for-first-time-in-26-years](https:...
+- [14:36 UTC - Truth Social post 117037740032704029](117037740032704029/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037740032704029
+  - _No text content captured._
+- [14:36 UTC - UAW: 'Strategic' Tariffs Prompt Industry Hiring Surge: [https://www. newsmax.com/newsfront...](117037739319710599/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037739319710599
+  - UAW: 'Strategic' Tariffs Prompt Industry Hiring Surge: [https://www. newsmax.com/newsfront/united-a uto-workers-tariffs-hiring-surge/2026/03/11/id/1249195/](https://www.newsmax.com...
+- [14:34 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037728296880147 [https://www...](117037732571630429/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037732571630429
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037728296880147 [https://www. washingtonpost.com/opinions/20 26/01/02/donald-trump-accomplishments-2025-marc-thiessen/...
+- [14:33 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037726036845745](117037728296880147/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037728296880147
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037726036845745
+- [14:32 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037725001903200](117037726036845745/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037726036845745
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037725001903200
+- [14:32 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037724158359073](117037725001903200/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037725001903200
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037724158359073
+- [14:32 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037723384292468](117037724158359073/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037724158359073
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037723384292468
+- [14:32 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037722599617401](117037723384292468/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037723384292468
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037722599617401
+- [14:32 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037721730474336](117037722599617401/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037722599617401
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037721730474336
+- [14:31 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037720903744942](117037721730474336/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037721730474336
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037720903744942
+- [14:31 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037719906423391](117037720903744942/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037720903744942
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037719906423391
+- [14:31 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037719027916190](117037719906423391/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037719906423391
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037719027916190
+- [14:31 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037718122207687](117037719027916190/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037719027916190
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037718122207687
+- [14:30 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037716920827611](117037718122207687/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037718122207687
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037716920827611
+- [14:30 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037715892419107](117037716920827611/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037716920827611
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037715892419107
+- [14:30 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037714164609248](117037715892419107/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037715892419107
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117037714164609248
+- [14:29 UTC - Truth Social post 117037714164609248](117037714164609248/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117037714164609248
+  - _No text content captured._
 - [11:05 UTC - Justice Department touts 'largest denaturalization effort ever' with 25 cases filed in two...](117036911689923818/)
   - Source: https://truthsocial.com/@realDonaldTrump/117036911689923818
   - Justice Department touts 'largest denaturalization effort ever' with 25 cases filed in two weeks: [https:// justthenews.com/government/cou rts-law/justice-department-touts-largest-...
