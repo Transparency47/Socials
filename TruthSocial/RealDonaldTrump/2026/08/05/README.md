@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-08-05
 
-- Posts: 38
+- Posts: 39
 
+- [20:16 UTC - I was 28-1 last night on Endorsements, and numerous of them were outliers, but if you stud...](117044740155920219/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117044740155920219
+  - I was 28-1 last night on Endorsements, and numerous of them were outliers, but if you studied the Fake News, you would think it was just the opposite, 1-28. All they talked about w...
 - [14:10 UTC - Great news for the Republican Party. El-Sayed, a Communist loser who hates Jews and Israel...](117043300198873853/)
   - Source: https://truthsocial.com/@realDonaldTrump/117043300198873853
   - Great news for the Republican Party. El-Sayed, a Communist loser who hates Jews and Israel, is the projected winner in his race with the Socialist. As usual, the Polls were way off...
