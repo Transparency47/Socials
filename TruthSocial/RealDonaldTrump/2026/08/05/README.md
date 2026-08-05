@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-08-05
 
-- Posts: 39
+- Posts: 40
 
+- [23:46 UTC - Truth Social post 117045565427506758](117045565427506758/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117045565427506758
+  - _No text content captured._
 - [20:16 UTC - I was 28-1 last night on Endorsements, and numerous of them were outliers, but if you stud...](117044740155920219/)
   - Source: https://truthsocial.com/@realDonaldTrump/117044740155920219
   - I was 28-1 last night on Endorsements, and numerous of them were outliers, but if you studied the Fake News, you would think it was just the opposite, 1-28. All they talked about w...
