@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/fQ6eDZylUkY: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=fQ6eDZylUkY! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=fQ6eDZylUkY&ei=L11zauHlG4r0y_sPz5HxiAo&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1785970591&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=0FCA16439DA53DA53FDF467BEB51193575791D71.8D42A495851BCF98311FCD93CA5262B66EE14A45&key=yt8&kind=asr&lang=en&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/U-KkyBGvAdM: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=U-KkyBGvAdM! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -175080,6 +175080,17 @@
       "title": "President Trump Participates in a Bilateral Meeting with the President of El Salvador",
       "url": "https://www.youtube.com/watch?v=A6iphPzEGtw"
     },
+    "youtube:whitehouse:A7Mn0KhYXIs": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-08-05T17:23:53.761966+00:00",
+      "path": "YouTube/WhiteHouse/2026/08/05/A7Mn0KhYXIs",
+      "platform": "youtube",
+      "post_id": "A7Mn0KhYXIs",
+      "published": "2026-08-05T14:00:33+00:00",
+      "title": "President Trump Gaggles With Press at Los Angeles International Airport, Aug. 4, 2026",
+      "url": "https://www.youtube.com/watch?v=A7Mn0KhYXIs"
+    },
     "youtube:whitehouse:A7NlvYO3GjE": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -185035,6 +185046,17 @@
       "title": "President Trump Visits the Federal Reserve",
       "url": "https://www.youtube.com/watch?v=fO9_N_2yY8M"
     },
+    "youtube:whitehouse:fQ6eDZylUkY": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-08-05T17:23:52.153390+00:00",
+      "path": "YouTube/WhiteHouse/2026/08/05/fQ6eDZylUkY",
+      "platform": "youtube",
+      "post_id": "fQ6eDZylUkY",
+      "published": "2026-08-05T15:20:22+00:00",
+      "title": "Stealing from the American people is unacceptable. VP and the Fraud Task Force fight to stop it. \ud83c\uddfa\ud83c\uddf8",
+      "url": "https://www.youtube.com/shorts/fQ6eDZylUkY"
+    },
     "youtube:whitehouse:fRjdcEYTZy4": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -191634,6 +191656,17 @@
       "published": "2025-04-18T00:18:18+00:00",
       "title": "President Trump & Italian PM Meloni at the White House, Apr. 17, 2025",
       "url": "https://www.youtube.com/watch?v=zoi6HKpUDLI"
+    },
+    "youtube:whitehouse:zot3Hx4EQig": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-08-05T17:23:52.918817+00:00",
+      "path": "YouTube/WhiteHouse/2026/08/05/zot3Hx4EQig",
+      "platform": "youtube",
+      "post_id": "zot3Hx4EQig",
+      "published": "2026-08-05T14:44:31+00:00",
+      "title": "Vice President JD Vance Holds a Fraud Task Force Roundtable with Members of Congress",
+      "url": "https://www.youtube.com/watch?v=zot3Hx4EQig"
     },
     "youtube:whitehouse:zyM6IyDl7rw": {
       "account": "WhiteHouse",

@@ -1,0 +1,674 @@
+<!-- source: https://www.youtube.com/watch?v=zot3Hx4EQig -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: zot3Hx4EQig -->
+<!-- date_published: 2026-08-05T14:44:31+00:00 -->
+<!-- date_accessed: 2026-08-05T17:23:52.918817+00:00 -->
+
+# Transcript: Vice President JD Vance Holds a Fraud Task Force Roundtable with Members of Congress
+
+- [27:52.720] President of the United Eight.
+- [28:14.399] Thank you all. See you guys. Thank you.
+- [28:16.880] Here. Have a seat, please.
+- [28:23.120] Well, good morning everybody. It's good
+- [28:24.399] to see you all and uh we are here uh to
+- [28:28.559] kick off what is at this point been an
+- [28:31.200] informal effort which is working with
+- [28:34.240] Congress to help us combat fraud. So, as
+- [28:36.399] you know, uh, when the president of the
+- [28:38.159] United States started the fraud task
+- [28:39.919] force and really set the federal
+- [28:41.440] government to taking a whole of
+- [28:43.120] government approach to the anti-fraud
+- [28:44.799] issue, that was mainly an administrative
+- [28:47.679] thing. That was something we were
+- [28:48.799] working with our colleagues at H&HS, at
+- [28:51.440] DOJ, at all of the various agencies of
+- [28:53.840] the federal government and trying to
+- [28:54.799] root out fraud. And I'd remind all of
+- [28:56.640] you and remind the American people and
+- [28:58.559] remind what these congressmen and
+- [29:00.399] senators don't need reminding, which is
+- [29:02.320] that fraud is really a dual victim
+- [29:04.559] crime. The most obvious victim, of
+- [29:06.320] course, is the American taxpayer who has
+- [29:08.559] their hard-earned tax dollars stolen
+- [29:10.720] from them to enrich people who are
+- [29:12.640] violating our laws and taking advantage
+- [29:14.240] of our country. But I think more
+- [29:16.000] profoundly and more sadly, the the
+- [29:19.039] second victim of fraud are the people
+- [29:20.480] who benefit from programs that the
+- [29:22.240] American people have set up in their
+- [29:24.080] generosity and in their kindness of
+- [29:26.000] spirit. and those programs don't
+- [29:27.919] function as well or don't even have the
+- [29:29.760] resources necessary to work because
+- [29:32.480] they've been stolen from by fraudsters.
+- [29:35.360] I think an example that is particularly
+- [29:38.240] close to my heart because we have a
+- [29:39.600] two-week old newborn at home is a
+- [29:42.159] program that we set up through the
+- [29:43.360] Medicaid program to actually provide
+- [29:45.360] highquality health care to new moms and
+- [29:47.919] to newborn infants. to people who can't
+- [29:49.919] afford high-quality health care. We as a
+- [29:52.480] generous nation ensure that they have
+- [29:54.240] access to the resources that they need.
+- [29:56.559] And yet we have with working with DOJ
+- [29:59.520] and others, we have identified
+- [30:01.279] prosecuted a number of cases of people
+- [30:04.000] where they have taken from this program,
+- [30:07.279] not provided an ounce of service to a
+- [30:09.600] new mom or a young baby and enriched
+- [30:12.080] themselves by literally taking money
+- [30:14.880] from the medical care of newborn
+- [30:17.520] infants. This is despicable be behavior
+- [30:20.080] and it's something that we've allowed to
+- [30:21.760] go on for too long in the United States
+- [30:23.840] of America. I'm very proud that you can
+- [30:26.720] not just look at these sort of
+- [30:28.240] qualitative stories about what's going
+- [30:30.880] on, but we can actually measure the
+- [30:32.640] success of the fraud task force. working
+- [30:35.360] uh with Andrew Ferguson and with with
+- [30:37.279] Steve Miller, two of the great allstars
+- [30:39.600] of the Trump administration, uh we have
+- [30:41.840] been able to identify $230
+- [30:45.440] billion of fraud just since the fraud
+- [30:48.559] task force was set up. And that's
+- [30:50.080] frankly by conservatively estimating it.
+- [30:52.640] Andrew and I had a meeting in my office
+- [30:54.240] last week and he said, "Do you want to
+- [30:55.760] estimate it conservatively or do you
+- [30:57.200] want to estimate it aggressively?" And I
+- [30:58.640] said, "Well, I kind of want to estimate
+- [31:00.320] it aggressively, but then all you people
+- [31:01.919] will criticize us. So, let's estimate it
+- [31:03.679] conservatively so that we can give the
+- [31:05.520] American people the most rocksolid
+- [31:07.760] explanation of how this task force is
+- [31:09.679] working to protect their money. We've
+- [31:11.760] been able to stop $56 billion in
+- [31:14.799] fraudulent payments that would have
+- [31:16.240] otherwise gone to fraudsters rather than
+- [31:18.480] to the people who need them. And in the
+- [31:20.159] process, we've saved obviously the
+- [31:22.159] American people a lot of money. But as
+- [31:24.640] much as we've done and as much as we've
+- [31:26.559] had great successes, and this brings me
+- [31:28.159] to my final point before I I kick it
+- [31:29.919] over to Andrew, this effort will
+- [31:32.399] fundamentally always have a limitation
+- [31:34.960] unless our colleagues in the House and
+- [31:37.519] the Senate are working with us. We don't
+- [31:40.159] want the next administration, whoever,
+- [31:42.480] you know, god forbid you're going to
+- [31:44.240] have President Elsa in three years. We
+- [31:46.720] don't want him to undo all the
+- [31:48.399] incredible work that we've been doing
+- [31:50.320] when we've been taking out the
+- [31:53.200] fraudsters and saving the American
+- [31:55.200] people money. And in order to make this
+- [31:56.960] really work, we need our our colleagues
+- [31:59.360] in Congress to really codify some of
+- [32:01.200] this stuff to make sure that it becomes
+- [32:03.120] law. And again, this is the sort of
+- [32:04.960] thing where while I I you know, I see
+- [32:07.120] only Republicans surrounding us today,
+- [32:09.360] we really have been able to work in some
+- [32:11.519] cases with Democratic governors and
+- [32:13.840] Democratic attorneys generals on the
+- [32:15.679] anti-fraud task force. And we would
+- [32:17.760] love, I'm not necessarily holding my
+- [32:19.360] breath, but we would love to work with
+- [32:21.039] Democrats in Washington to codify some
+- [32:23.679] of the anti-fraud actions that we've
+- [32:25.200] taken and to take it to the next level.
+- [32:28.080] There are a few things that we really
+- [32:30.640] need to do and that we can't do at the
+- [32:32.640] federal government without the
+- [32:33.919] cooperation of the Congress. And the
+- [32:36.080] first and I would say the most important
+- [32:37.600] of these is data sharing. So when we've
+- [32:40.720] looked at the anti-fraud efforts that
+- [32:42.320] we've taken, one of the weirdest and
+- [32:44.159] most difficult parts of this is the
+- [32:46.320] black box that exist black box that
+- [32:48.480] exists around certain state programs.
+- [32:50.640] So, for example, the SNAP program, which
+- [32:54.000] provides food resources to low-income
+- [32:56.799] people, it quite literally feeds hungry
+- [32:58.480] moms and children in our country,
+- [32:59.919] something that is very important and
+- [33:01.440] that I know every person at this table
+- [33:03.039] supports. We know that there is a lot of
+- [33:05.440] fraud in the SNAP program. We know that
+- [33:07.200] there are illegal aliens who benefit
+- [33:08.720] from the SNAP program, people who have
+- [33:10.159] no legal right to be in the country. We
+- [33:12.399] would like to stop that. But I think the
+- [33:14.159] American people would be shocked to
+- [33:15.519] learn, because I was certainly shocked
+- [33:17.120] when I learned it a few months ago, that
+- [33:19.120] when we send tax dollars to the states
+- [33:21.760] to administer the stat program, we have
+- [33:25.200] no visibility into who is ultimately
+- [33:27.840] getting those benefits. In other words,
+- [33:29.120] if the state of California gives those
+- [33:31.440] food stamp benefits to an illegal alien,
+- [33:34.240] to a violent criminal, the federal
+- [33:36.480] government has no visibility and
+- [33:38.080] sometimes the states themselves have no
+- [33:40.080] visibility. So, we need to work with
+- [33:42.320] Congress and we need some legislation
+- [33:44.240] that would actually force some data
+- [33:47.760] sharing between the state governments
+- [33:49.440] and the federal governments. We need to
+- [33:51.440] know where your tax dollars are going.
+- [33:53.600] And if the state of California or the
+- [33:55.120] state of New York isn't going to tell
+- [33:56.320] us, we need Congress to force them to
+- [33:58.399] tell us. And I think that's the first
+- [33:59.760] and most important thing that we would
+- [34:01.760] like to do. Uh the second is that we
+- [34:03.840] would like to see stiffer penalties for
+- [34:05.360] fraudsters. One of the things I said at
+- [34:07.039] the very beginning of the task force is
+- [34:08.800] that I was shocked by how often we would
+- [34:11.919] just let low-level fraud go. Like a
+- [34:14.720] million dollars of fraud, that's a lot
+- [34:16.240] of money. A person who had enriched
+- [34:17.679] themselves to the tune of a million
+- [34:19.200] dollars, sometimes we wouldn't even
+- [34:20.879] prosecute this stuff. And even when we
+- [34:23.119] do prosecute it, we are limited by the
+- [34:25.440] penalties applied. The most important
+- [34:28.480] thing that we can do in prosecuting
+- [34:31.280] fraud is to make sure that the people
+- [34:32.720] who engage in fraud actually suffer some
+- [34:35.200] real penalties. And so we would love to
+- [34:37.119] work with all of you and see some
+- [34:38.399] stiffer penalties for the people that
+- [34:40.320] were successfully prosecuting. We are
+- [34:42.079] throwing a lot of people behind bars,
+- [34:44.079] but we're limited by some ways in some
+- [34:46.560] ways by the statutes that exist. We'd
+- [34:49.200] like to change those statutes and
+- [34:50.480] actually make it harder for people to
+- [34:52.399] commit fraud and make sure that when
+- [34:54.079] they do commit fraud, they go to jail
+- [34:55.599] and they go to jail for a long time. And
+- [34:58.320] finally, uh we need a little bit of
+- [35:00.240] money, not a lot of money. And frankly,
+- [35:01.760] we're saving way more money than we're
+- [35:04.000] taking in. But the fraud task force is
+- [35:06.240] in it involves every single agency of
+- [35:08.800] the federal government. Every single
+- [35:10.960] cabinet secretary has been great. And I
+- [35:12.880] want to give a special shout out to some
+- [35:14.640] of our allstars. Bobby Kennedy at H&HS,
+- [35:17.119] Kelly Leler at SBA, uh Brooke at the
+- [35:19.839] Department of Agriculture, just we've
+- [35:21.599] really had a whole of government. Our
+- [35:22.960] our our soontobe new attorney general,
+- [35:25.280] uh Todd Blanch has just been amazing to
+- [35:27.359] work with. And I know other people will
+- [35:28.880] say more about that. But we need a
+- [35:30.880] little bit of resources because while
+- [35:32.960] we're saving the American people
+- [35:34.400] billions and billions of dollars and
+- [35:36.240] we're not spending very much, we need a
+- [35:38.079] little bit more appropriated to expand
+- [35:39.839] this fraud effort. I think we'll save
+- [35:41.440] even more money in the process. It's the
+- [35:43.760] sort of investment that, you know,
+- [35:45.760] unlike most of the money you guys spend,
+- [35:47.440] it never comes back to DC. Every dollar
+- [35:49.119] you give us comes back at least five or
+- [35:51.200] tenfold. So, it's a good investment and
+- [35:53.359] it's the sort of thing that we need to
+- [35:54.640] see happen. Uh, but without further ado,
+- [35:56.640] I want to kick it over to our amazing um
+- [35:59.359] co-chair of the task force, Andrew
+- [36:00.960] Ferguson. You see him on TV. He's
+- [36:03.520] amazing. But most importantly, behind
+- [36:05.440] the scenes when he's not on TV, he's
+- [36:06.960] doing amazing things for the American
+- [36:08.480] people. this whole thing would not work
+- [36:11.200] and would not work as well were it not
+- [36:12.800] for Andrew's hard work. So, great job.
+- [36:15.119] Great to see you.
+- [36:16.079] >> Thank you, Mr. Vice President, and
+- [36:17.520] welcome to all my friends from the
+- [36:19.040] Senate and from the House. We're very
+- [36:20.560] pleased that you're here. I want to
+- [36:22.160] thank President Trump for creating this
+- [36:23.920] task force and assembling us here today.
+- [36:25.760] He is the first president in American
+- [36:27.599] history, to take this fraud issue, which
+- [36:30.079] is an existential crisis for the
+- [36:31.760] American Republic, seriously. And none
+- [36:33.760] of this would have been possible without
+- [36:35.119] him. And second, the vice president. The
+- [36:37.760] only way to confront fraud through the
+- [36:39.760] whole federal government is to have the
+- [36:41.280] guy that sits at top the rest of the
+- [36:43.119] federal government in charge of it.
+- [36:44.960] Nothing that this task force has
+- [36:46.560] accomplished and the vice president just
+- [36:48.079] read a lot of the amazing
+- [36:49.920] accomplishments of the task force, the
+- [36:51.200] whole federal government is possible
+- [36:52.960] without the leadership of the vice
+- [36:54.480] president of the United States. Fraud is
+- [36:57.599] not just about the numbers. We hear
+- [36:59.760] about the big numbers. We just heard
+- [37:01.119] them today. But fraud hurts real people.
+- [37:04.480] It hurts all of us by taking our
+- [37:06.800] hard-earned money out of our pockets and
+- [37:08.800] putting it into the hands of the most
+- [37:10.720] reprehensible people in this country.
+- [37:13.040] And second, it hurts real people in
+- [37:15.520] specific physical ways. The best example
+- [37:17.599] I have of this involves skin
+- [37:19.280] substitutes. Fraudsters up until this
+- [37:22.160] year were performing unnecessary
+- [37:24.320] surgeries on elderly Americans in
+- [37:26.480] hospices and nursing homes because they
+- [37:28.960] would then submit those claims to HHS.
+- [37:31.680] And HHS was reimbursing those claims to
+- [37:34.160] the tune of billions and billions of
+- [37:36.400] dollars a year. Fraud doesn't just hurt
+- [37:38.720] us all in our pocketbooks. It physically
+- [37:40.800] is maming real Americans. And that's
+- [37:43.119] what this is about. It's not about the
+- [37:45.200] numbers at the end of the day. It is
+- [37:46.400] about protecting ordinary Americans from
+- [37:48.720] the worst of us.
+- [37:50.240] The second thing about this fraud effort
+- [37:52.240] that is so important is that it is about
+- [37:54.079] restoring social trust in America. All
+- [37:57.520] of the programs that the fraud effort
+- [37:59.680] has focused on were set up for a high
+- [38:01.520] trust society. The vice president was
+- [38:03.680] just explaining the difficulty in
+- [38:05.440] obtaining data to fight fraud. When
+- [38:07.839] Congress was creating these programs,
+- [38:09.280] some of them almost a hundred years ago,
+- [38:11.280] we didn't expect that these programs
+- [38:13.040] were going to be attacked by fraudsters
+- [38:15.839] in the to the tunes of billions and
+- [38:17.680] billions of dollars a year. We expected
+- [38:19.599] because that's the America that we were
+- [38:21.599] that everyone would play by the rules
+- [38:23.359] that the money turned over to help our
+- [38:25.040] friends, our families and neighbors
+- [38:26.560] would be made available only to the
+- [38:28.480] people who really needed it. And that is
+- [38:30.560] just not true anymore. And so this
+- [38:33.359] effort is not just about protecting our
+- [38:35.280] programs, making sure that fraudsters
+- [38:36.960] don't bleed them so dry that they cease
+- [38:39.280] to exist. It's also about restoring
+- [38:42.000] social trust in this country. And so
+- [38:44.320] with that, I want to talk about two of
+- [38:46.240] the things that I think Congress can do
+- [38:47.920] to help us address both of those
+- [38:49.520] problems. The first is on social trust.
+- [38:52.079] And the vice president touched on this
+- [38:53.599] just a minute ago. People commit fraud
+- [38:56.880] against our programs because it is
+- [38:58.640] relatively easy. And one of the reasons
+- [39:00.960] that it is easy is that the punishments
+- [39:03.040] associated with much of the fraud are
+- [39:05.280] relatively low. We have seen what can
+- [39:08.000] happen in America when you really
+- [39:09.920] vigorously enforce the laws. Just take
+- [39:12.400] the last year and a half in this
+- [39:13.760] country. Violent crime is at an all-time
+- [39:15.599] low. And that's for two reasons. Number
+- [39:17.200] one, thanks to President Trump and
+- [39:19.040] Steven Miller and others in the
+- [39:20.480] administration, the border is sealed and
+- [39:22.320] the criminals are not coming here
+- [39:23.680] anymore. And number two, thanks to Todd
+- [39:25.760] Bla Blanch and the men and women of the
+- [39:27.520] Justice Department, we are vigorously
+- [39:29.200] enforcing our criminal laws and making
+- [39:31.200] sure that people who commit crimes
+- [39:33.040] suffer the consequences. That has to be
+- [39:35.359] true for the fraudsters. Every single
+- [39:37.680] person who considers raiding one of our
+- [39:39.839] agencies and taking money out of our
+- [39:41.680] pockets needs to think long and hard
+- [39:43.920] about what might happen to them if they
+- [39:45.920] are caught. And under this Justice
+- [39:47.359] Department, they will be caught. And so
+- [39:49.280] we want to work with Congress to
+- [39:51.280] dramatically increase the sentences
+- [39:53.280] associated even with low-level frauds to
+- [39:56.240] incent both the justice department to
+- [39:58.320] prosecute all fraud all the time and to
+- [40:01.119] make every fraudster think long and hard
+- [40:03.119] about whether it's worth facing a long
+- [40:05.040] time in jail before deciding to raid our
+- [40:07.440] programs. And then the second thing that
+- [40:09.359] we need to focus on has to do with
+- [40:11.200] another thing that the vice president
+- [40:12.480] talked about which is data sharing.
+- [40:15.359] Fraud is easy because data is difficult
+- [40:18.400] to get and data is the enemy of fraud.
+- [40:21.359] One of the things that the vice
+- [40:22.560] president has accomplished and using
+- [40:24.560] this task force is that almost all of
+- [40:26.400] the agencies are now using automated
+- [40:28.560] AIdriven tools to find the fraud before
+- [40:32.000] the money leaves the agency. But the
+- [40:33.920] only way that works is if we have data.
+- [40:37.440] And right now data sharing is difficult.
+- [40:39.599] And for a lot of our programs like SNAP,
+- [40:41.839] which is an incredibly important program
+- [40:43.440] that we want to protect in this country,
+- [40:45.119] like the vice president was just
+- [40:46.480] explaining, states don't have to share
+- [40:48.800] data with us in order to participate in
+- [40:50.880] the program. Data sharing should be a
+- [40:53.119] requirement for participating in these
+- [40:55.359] programs because that will unleash the
+- [40:57.839] power of American AI ingenuity and
+- [41:00.240] innovation in these agencies to stop the
+- [41:02.400] fraud before it happens because once it
+- [41:04.400] goes out the door, it's very difficult
+- [41:06.240] to get back. The pay and chase doesn't
+- [41:08.240] work. And so the way you stop fraud is
+- [41:10.560] you keep Americans hard-earned money in
+- [41:12.880] the agencies unless it's going to
+- [41:14.400] someone who actually needs it. And for
+- [41:16.720] that we need data. We need data to make
+- [41:18.560] sure fraudsters don't get it,
+- [41:20.000] non-citizens don't get it. And the only
+- [41:22.400] way for that to happen is if we have
+- [41:24.319] data. And the easiest way for that to
+- [41:26.160] happen is not through rulemakings. It's
+- [41:27.839] not through guidance. It's Congress
+- [41:29.440] stepping up and saying if you want to
+- [41:31.280] participate in these programs, if you
+- [41:32.640] want access to American taxpayer
+- [41:34.319] dollars, you have to share data so that
+- [41:36.560] we can fight fraud. And any state who
+- [41:39.119] doesn't want to share data, we should
+- [41:41.440] learn a lot about the leadership of that
+- [41:42.880] state. If they want to protect fraud
+- [41:44.720] more than they want to protect ordinary
+- [41:46.240] Americans, something really rotten is
+- [41:48.079] happening in that state. So those are
+- [41:50.000] just two of the things that we want to
+- [41:51.760] work with Congress to accomplish here
+- [41:53.760] under the Vice President's Task Force.
+- [41:55.680] And with that, I'll turn it over to
+- [41:56.800] Steven Miller.
+- [42:00.720] >> Thank you very much. Thank you, Mr. Vice
+- [42:02.640] President for your leadership on this
+- [42:05.839] bold and existentially important
+- [42:08.640] initiative. Thank you to Mr. Ferguson,
+- [42:11.680] for your incredible work and stewardship
+- [42:15.200] of this task force. And of course, thank
+- [42:17.040] you to President Trump for his
+- [42:19.359] extraordinary leadership in establishing
+- [42:22.000] this task force, assigning this
+- [42:23.839] portfolio to the vice president, and
+- [42:25.680] providing direction, focus, and
+- [42:28.240] determination to the whole US
+- [42:29.680] government. It's great to see all of my
+- [42:31.760] my friends in the House and Senate who
+- [42:34.560] are here today who have been such
+- [42:36.000] tremendous allies not only on this issue
+- [42:38.319] but so many issues and in some cases for
+- [42:41.359] a very very long time uh since 2015 and
+- [42:45.680] before and so thank you all. I want to
+- [42:48.560] pick up because this is something that I
+- [42:50.160] I've encountered on a daily basis on a
+- [42:52.079] theme that both the vice president and
+- [42:54.640] Andrew Ferguson have mentioned which is
+- [42:56.319] the lack of criminal responsibility. uh
+- [42:58.880] the lack of criminal punishment for
+- [43:02.240] egregious fraud in this country. It is
+- [43:06.079] first of all true as the vice president
+- [43:08.720] said as hard as it is to believe that
+- [43:11.200] for most recent history which in the
+- [43:13.920] case of these programs would be in the
+- [43:15.200] history of these programs if you
+- [43:17.280] committed a million dollars of fraud or
+- [43:19.760] less you were unlikely to ever be
+- [43:21.599] criminally punished in any way at all.
+- [43:23.920] And if in for some strange reason in the
+- [43:26.319] past uh the a bureaucrat had the the
+- [43:29.680] courage to defy that agency guidance and
+- [43:31.520] actually bring you to trial and put you
+- [43:33.839] u in front of a jury, you'd be unlikely
+- [43:35.680] to do any real jail time at all. And
+- [43:38.800] this may be hard to believe that you
+- [43:41.200] could steal hundreds of thousands and
+- [43:42.640] ultimately millions of dollars and not
+- [43:44.000] do any significant jail time. Again, you
+- [43:45.599] can look at the sentences for the the
+- [43:47.920] feeding our futures fraud, which is one
+- [43:49.920] of the largest frauds in the history of
+- [43:51.680] any country anywhere in Minnesota to see
+- [43:54.400] this. And there's a lot of reasons for
+- [43:56.800] that. I think probably the simplest
+- [44:00.000] least conspiratorial explanation is that
+- [44:03.599] when Congress was drafting these
+- [44:04.960] statutes, they still lived to use the
+- [44:07.040] phrase left in a highris society and
+- [44:09.280] itclipsed their imagination that there
+- [44:12.480] would be systemic widespread continual
+- [44:15.680] lying, fleecing and organized crime to
+- [44:18.880] rip off hundreds of billions of dollars
+- [44:21.359] from the American taxpayer which is what
+- [44:23.200] has happened. So there needs to be
+- [44:25.839] strict, clear, mandatory minimums
+- [44:28.800] because by the time you've been
+- [44:29.839] convicted, you have already proven to a
+- [44:32.480] jury, this is not a a civil punishment.
+- [44:34.400] This is you've proven to a jury beyond a
+- [44:36.880] reasonable doubt that you deliberately,
+- [44:40.240] willfully, maliciously engage in a
+- [44:42.960] scheme to steal from the American
+- [44:45.599] taxpayer and from those in genuine need.
+- [44:48.000] And when you've satisfied 12 jurors of
+- [44:50.000] that fact and been convicted, you
+- [44:52.240] deserve to have a very substantial
+- [44:54.880] prison sentence. That change alone would
+- [44:57.920] be watershed for fighting fraud because
+- [45:00.720] it would mean that the Department of
+- [45:02.000] Justice would be able to through
+- [45:04.720] prosecuting a few hundred or thousand
+- [45:06.640] cases in a year be able to chill the
+- [45:08.800] criminal conduct of millions. Whereas
+- [45:11.839] right now, no matter how many people you
+- [45:14.160] prosecute, you're still left with the
+- [45:16.319] criminal element, thinking, "I'm willing
+- [45:18.400] to risk six months in jail for $5
+- [45:21.599] million in illotten gains." And we we've
+- [45:24.400] reached a point, and again, only because
+- [45:26.319] of President Trump and the vice
+- [45:27.440] president's leadership is this
+- [45:28.480] happening. We've reached a point as a
+- [45:30.240] country until we came along, as hard as
+- [45:32.640] it is to believe, where we have federal
+- [45:35.520] law enforcement in cities around the
+- [45:38.240] country who have to conduct weeks or
+- [45:41.359] monthslong investigations
+- [45:43.680] of daycarees where there are no children
+- [45:46.240] present at all to be able to then go
+- [45:48.640] into a court of law and say, "No kids on
+- [45:51.359] Monday, no kids on Tuesday, no kids on
+- [45:53.520] Wednesday, no kids on Thursday." Right?
+- [45:55.520] And this is a real thing. We have
+- [45:57.760] federal law enforcement officers who
+- [45:59.520] then they have to issue subpoenas and
+- [46:01.280] search warrants to get phone records,
+- [46:03.280] email records, financial records. And
+- [46:04.800] what does it all end up with? You go to
+- [46:06.720] a jury in Minnesota and you say the
+- [46:09.520] defendant has collected $7 million for a
+- [46:13.040] daycare claiming to be taking care of a
+- [46:14.560] hundred children for 6 months and we
+- [46:16.720] found one kid attended in the entire
+- [46:18.240] time and he was the nephew. So you spent
+- [46:20.720] months of federal effort. When you do
+- [46:22.720] that and you're found guilty, you belong
+- [46:25.119] in jail for a very long time. I'm almost
+- [46:29.520] over my own time here, so I'll just add
+- [46:30.880] to the other point the vice president
+- [46:32.240] said, which is on data sharing and
+- [46:35.599] technology and integrity. You can solve
+- [46:39.040] 95% of this problem with simple
+- [46:42.480] technological verification and data
+- [46:44.880] sharing measures. That is in technology
+- [46:47.200] that was invented 20 years ago. Now, the
+- [46:49.680] technology today, of course, is even
+- [46:51.200] more astonishing. But if every single
+- [46:53.440] person who wanted to enroll in SNAP or
+- [46:55.520] enroll in Medicaid or enroll in public
+- [46:57.760] housing was in a shared database that
+- [47:00.640] the federal government had access to to
+- [47:02.880] verify age, citizenship, criminal
+- [47:06.160] record, other basic biographic facts.
+- [47:09.680] That single step alone would save
+- [47:12.079] taxpayers hundreds of billions of
+- [47:14.079] dollars. And you have to ask yourself,
+- [47:16.480] why would any politician oppose
+- [47:19.200] something so fundamental? We're not even
+- [47:20.560] debating eligibility rules. An important
+- [47:22.720] but separate debate. We are debating
+- [47:24.480] whether or not a person is lying to the
+- [47:26.880] government to extract funds for which
+- [47:29.599] they are plainly and clearly ineligible.
+- [47:31.839] The time has come to implement these
+- [47:33.280] reforms. Thank you, Mr. Vice President.
+- [47:34.800] >> Thanks, BS.
+- [47:39.359] >> Thank you, and good morning, everyone.
+- [47:41.280] We gathered today because President
+- [47:42.720] Trump has made stopping the fraud and
+- [47:44.400] corruption in our welfare programs a
+- [47:46.400] governing priority. Thank you to Vice
+- [47:48.960] President Vance, Chairman Ferguson,
+- [47:50.480] Steven Miller, and Executive Director
+- [47:52.240] Brady for their leadership in carrying
+- [47:53.680] out this duty. And to the members of
+- [47:55.440] Congress here for joining in this
+- [47:56.800] important work. In the time I have, I
+- [47:59.040] wish to offer 10 very practical, common
+- [48:00.960] sense, and likely very popular proposals
+- [48:03.200] to fight fraud in our welfare programs
+- [48:05.440] for congressional consideration. One,
+- [48:07.839] all government agencies must verify that
+- [48:09.760] every Medicaid provider or SNAP retail
+- [48:11.760] store is actually legitimate and
+- [48:13.359] eligible for payment before any payment
+- [48:15.599] is issued rather than paying first and
+- [48:17.839] checking later. Two, require criminal
+- [48:20.400] background checks and fingerprinting for
+- [48:22.000] healthcare providers in categories with
+- [48:23.599] high rates of Medicaid fraud and
+- [48:25.440] reverify provider credentials at least
+- [48:27.359] every three years. Three, require states
+- [48:30.240] to verify every welfare applicant
+- [48:32.000] through the federal government's free
+- [48:33.200] database system that verifies
+- [48:35.200] immigration status in real time before
+- [48:36.960] issuing any taxpayer funded benefits.
+- [48:39.599] Four, require states to compare welfare
+- [48:42.079] roles every month against death records,
+- [48:43.920] wage records, and incarceration records.
+- [48:46.160] Five, double the number of welfare fraud
+- [48:48.400] investigators so that more fraud and
+- [48:50.400] corruption cases can be aggressively
+- [48:51.920] investigated and prosecuted. Six,
+- [48:54.559] upgrade welfare benefit cards used for
+- [48:56.640] food and cash assistance to have secure
+- [48:58.960] chip technology with a photo and
+- [49:00.880] expiration date. Seven, prohibit
+- [49:03.359] high-risisk retailers such as some
+- [49:04.880] liquor stores and smoke shops from
+- [49:06.720] accepting taxpayer funded food stamp
+- [49:08.480] benefits. Eight, end the use of
+- [49:10.720] governmentissued pre-populated forms to
+- [49:13.119] do automatic reenrollments into
+- [49:14.880] Medicaid. Nine, eliminate so-called self
+- [49:18.400] addestation, which allows applicants to
+- [49:20.640] simply report their own income and
+- [49:22.079] household information on welfare
+- [49:23.920] applications without providing
+- [49:25.280] documentation and instead requiring
+- [49:27.359] proof of income and eligibility before
+- [49:29.680] benefits are approved. 10. require state
+- [49:33.680] taxpayer funded Medicaid programs that
+- [49:35.599] issue payments to health insurance
+- [49:37.040] companies on behalf of people who had
+- [49:39.200] already died to stop immediately once a
+- [49:41.520] death is recorded and require those
+- [49:43.200] insurance companies to return any money
+- [49:44.960] collected after the enrolly's death.
+- [49:47.680] Finally, I suggest that members of
+- [49:49.839] Congress Congress call out as corruption
+- [49:52.720] the behavior of state and local leaders
+- [49:54.559] who refuse to enforce common sense fraud
+- [49:56.880] controls or purposely embrace loopholes
+- [49:59.119] that avoid individual eligibility
+- [50:00.800] validation, allow self-certification of
+- [50:03.200] eligibility, expand eligibility far
+- [50:04.960] beyond what Congress intended, and as a
+- [50:07.040] result trap millions of able-bodied
+- [50:08.640] adults into a life of dependency. Fraud
+- [50:11.520] steals taxpayer dollars, but such
+- [50:13.440] corruption steals something even more
+- [50:14.960] precious. It steals the blessings and
+- [50:16.960] benefits of work. The greater injustice
+- [50:19.359] is not stealing money from taxpayers. It
+- [50:21.599] is taking purpose from another human
+- [50:23.200] being and diverting resources from the
+- [50:25.040] truly needy. Every year an able-bodied
+- [50:27.520] person spends trapped in unnecessary
+- [50:29.280] dependency is a year not spent
+- [50:30.960] developing skills, earning promotions,
+- [50:33.280] providing for a family, serving a
+- [50:34.880] community, or discovering what they are
+- [50:36.800] capable of becoming. This corruption
+- [50:39.040] fraud occurs when public officials
+- [50:40.640] knowingly tolerate or design systems
+- [50:42.559] that deny people the benefits and
+- [50:44.640] blessings of work because dependency
+- [50:46.480] serves personal, political, or
+- [50:47.839] institutional interest. Whenever public
+- [50:50.240] officials knowingly preserve systems
+- [50:51.839] that deny able-bodied Americans the
+- [50:53.599] blessings of work, whenever they choose
+- [50:55.839] to look away because dependency serves
+- [50:58.960] such interest, people suffer. Not
+- [51:01.040] because they lack talent, not because
+- [51:02.480] they lack dignity, but because those
+- [51:04.400] entrusted with public authority failed
+- [51:06.640] to act.
+- [51:08.319] Our responsibility is to root out fraud
+- [51:10.240] and corruption in our welfare systems,
+- [51:12.400] send people to jail who steal benefits,
+- [51:14.960] and make it impossible for public
+- [51:16.559] officials to escape their responsibility
+- [51:18.640] to establish systems of accountability
+- [51:21.200] and program integrity so that more
+- [51:23.280] Americans will realize the benefits and
+- [51:25.119] blessings of work. Thank you.
+- [51:28.160] >> Great. Well, uh, thank you, Vince, and
+- [51:30.079] thanks to everybody else for being here.
+- [51:31.440] We are now going to have a conversation
+- [51:33.359] about exactly how we can better work
+- [51:35.359] together about how we can advance some
+- [51:36.640] of these legislative priorities. Uh, but
+- [51:38.640] we're going to do that conversation
+- [51:39.920] without a 100 cameras in the room. So,
+- [51:41.760] to the press, thank you for being here.
+- [51:43.440] We'll see you soon.

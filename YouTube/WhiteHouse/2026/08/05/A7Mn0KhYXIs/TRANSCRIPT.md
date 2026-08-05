@@ -1,0 +1,104 @@
+<!-- source: https://www.youtube.com/watch?v=A7Mn0KhYXIs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: A7Mn0KhYXIs -->
+<!-- date_published: 2026-08-05T14:00:33+00:00 -->
+<!-- date_accessed: 2026-08-05T17:23:53.761966+00:00 -->
+
+# Transcript: President Trump Gaggles With Press at Los Angeles International Airport, Aug. 4, 2026
+
+- [00:00.960] Thank you very much.
+- [00:02.639] >> So, we had a very successful event as
+- [00:04.880] you probably know. A lot of good things
+- [00:07.520] happened. I have not found out who won
+- [00:10.240] the election tonight with Abdul who won.
+- [00:13.519] >> Looks like it's going to go. It'll be a
+- [00:15.200] long night.
+- [00:15.759] >> Oh, really? Oh,
+- [00:18.160] >> that's interesting. That's what I heard.
+- [00:21.039] That's surprising.
+- [00:22.320] >> The GSA coair says that socialists are
+- [00:25.119] the new face of the party. Is that true
+- [00:27.199] for Democrat?
+- [00:27.760] >> It could be. I would say so. The The
+- [00:30.000] communists are the new base. Yeah, I'd
+- [00:32.559] say so.
+- [00:35.680] >> I mean, don't forget Abdul was way down
+- [00:37.520] a few weeks ago. Now, I guess it looks
+- [00:39.360] like it's going to be a little bit of a
+- [00:41.360] horse race.
+- [00:44.559] >> Mr. President, where are we with?
+- [00:46.640] >> We're moving along very nicely.
+- [00:48.719] >> We'll find out. We'll know in 48 hours.
+- [00:51.440] President Bush here say hero yesterday
+- [00:54.559] in the Oval Office. And how did she
+- [00:57.199] explain what happened to these guys?
+- [00:58.879] >> Well, I just think she was totally
+- [01:00.320] wrong. Uh they did a beautiful job.
+- [01:04.320] There were a couple of little things,
+- [01:05.600] but that was not a big deal. And
+- [01:08.159] everybody saw the vandalism. All you
+- [01:09.840] have to do is look at the tape. If you
+- [01:11.920] look at the tape, plus we have a witness
+- [01:13.600] or two witnesses that saw the vandalism.
+- [01:16.960] So certainly where there was vandalism,
+- [01:18.720] it was actually in my opinion it was
+- [01:20.880] major vandalism and I told her I was not
+- [01:23.920] happy.
+- [01:24.400] >> Is she safe?
+- [01:25.280] >> Are you going to keep her in the
+- [01:26.240] position?
+- [01:27.439] >> Uh I haven't made a determination.
+- [01:29.840] >> Will socialist if more socialists
+- [01:31.600] prevail for Democrats? Does that hurt
+- [01:33.439] Democrats in the midterm so Republicans
+- [01:35.360] keep what does what hurt?
+- [01:36.880] >> If more socialists keep winning.
+- [01:41.119] >> Look, they've got a party. It's a mess.
+- [01:44.960] I think it's a mess. I think they should
+- [01:47.360] form another party, the Communists of
+- [01:49.360] America Party.
+- [01:51.360] >> Republicans have
+- [01:52.320] >> I I think they should should have a new
+- [01:55.040] party, the Communists of America, and it
+- [01:59.600] will do well. It'll get about 10% of the
+- [02:01.520] vote
+- [02:01.920] >> on the straight of Hormuz. AIOS is
+- [02:04.560] reporting that you might open as soon as
+- [02:07.200] tomorrow.
+- [02:07.840] >> Could happen tomorrow
+- [02:10.000] or Thursday. A
+- [02:10.560] >> lot of progress has been made
+- [02:12.400] >> and they called me and they said,
+- [02:13.840] "Please, let's talk. They want to talk.
+- [02:17.280] The funny thing is they never mention
+- [02:18.800] that. They always say, "We're not
+- [02:20.080] talking." But they called, they wanted
+- [02:22.720] to talk. We've been talking. They want
+- [02:24.879] to make a deal. They do not want to be
+- [02:26.560] hit. This was the biggest hit since
+- [02:29.760] World War II. As I've said, they did
+- [02:31.920] not. And they saw it happening. They saw
+- [02:34.480] all the goods being loaded. They saw
+- [02:36.319] everything. They knew exactly what was
+- [02:37.840] happening. And
+- [02:40.800] I think it'd be very smart to make a
+- [02:42.480] deal. We'll see what happens. Uh they
+- [02:44.800] had a very good day. The negotiations
+- [02:47.360] were good. The stock market was up
+- [02:50.080] tremendously over the last three four
+- [02:51.920] days. We set new records today in the
+- [02:55.040] stock market. Yesterday, today I think
+- [02:57.760] it's like 78 times now during a very
+- [03:00.959] short period of time. So a lot of good
+- [03:03.599] things are happening. The trade numbers
+- [03:05.599] are phenomenal. You saw that. Our
+- [03:08.080] economic numbers are unbelievable like
+- [03:11.120] never ever before. The investment into
+- [03:14.400] our country is at a number that nobody's
+- [03:16.560] ever even imagined. We are doing really
+- [03:19.680] well. Uh I'll see you on the plane.
+- [03:21.680] Okay. Miller, comment or representative
+- [03:24.720] Miller.
+- [03:27.599] >> I hope he dances to work it out. I feel
+- [03:29.599] badly for
