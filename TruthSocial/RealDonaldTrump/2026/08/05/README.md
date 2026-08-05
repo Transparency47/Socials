@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-08-05
 
-- Posts: 37
+- Posts: 38
 
+- [14:10 UTC - Great news for the Republican Party. El-Sayed, a Communist loser who hates Jews and Israel...](117043300198873853/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117043300198873853
+  - Great news for the Republican Party. El-Sayed, a Communist loser who hates Jews and Israel, is the projected winner in his race with the Socialist. As usual, the Polls were way off...
 - [13:28 UTC - Wayne County (Detroit) in Michigan is one of the most corrupt voting areas in the United S...](117043133534824966/)
   - Source: https://truthsocial.com/@realDonaldTrump/117043133534824966
   - Wayne County (Detroit) in Michigan is one of the most corrupt voting areas in the United States, if not the World. It is strictly Third World! Miracles happen in Wayne County, incl...
