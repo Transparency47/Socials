@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=VYAl-Vx4uak: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=VYAl-Vx4uak! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=VYAl-Vx4uak&ei=_nhyaoOwOvTFy_sPo_O72AU&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1785912174&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=06A4B775F41E00DE4A8A4312380297CCB51DEC8A.AE4DAB02513CD64D8E0B3173EEC79CC560082A94&key=yt8&kind=asr&lang=en&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=VYAl-Vx4uak: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=VYAl-Vx4uak! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=VYAl-Vx4uak&ei=T4xyaqTUGrCdj-8PncWJkQE&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1785917119&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=6866E83D8733EE3C88128550C0B984A5B6F67CC0.D04923AB4990EFCE0AB0C12CE9A44AB727A9BF2A&key=yt8&kind=asr&lang=en&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -130837,6 +130837,116 @@
       "published": "2026-08-04T22:52:51.270000+00:00",
       "title": "For far too long, Radical Climate Activists attempted to hold our Great Country hostage by...",
       "url": "https://truthsocial.com/@realDonaldTrump/117039691941169240"
+    },
+    "truthsocial:realdonaldtrump:117040167456122545": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-05T01:04:58.238283+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/05/117040167456122545",
+      "platform": "truthsocial",
+      "post_id": "117040167456122545",
+      "published": "2026-08-05T00:53:47.053000+00:00",
+      "title": "Truth Social post 117040167456122545",
+      "url": "https://truthsocial.com/@realDonaldTrump/117040167456122545"
+    },
+    "truthsocial:realdonaldtrump:117040167964936362": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-05T01:04:58.238037+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/05/117040167964936362",
+      "platform": "truthsocial",
+      "post_id": "117040167964936362",
+      "published": "2026-08-05T00:53:54.816000+00:00",
+      "title": "Truth Social post 117040167964936362",
+      "url": "https://truthsocial.com/@realDonaldTrump/117040167964936362"
+    },
+    "truthsocial:realdonaldtrump:117040168521088182": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-05T01:04:58.237795+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/05/117040168521088182",
+      "platform": "truthsocial",
+      "post_id": "117040168521088182",
+      "published": "2026-08-05T00:54:03.303000+00:00",
+      "title": "Truth Social post 117040168521088182",
+      "url": "https://truthsocial.com/@realDonaldTrump/117040168521088182"
+    },
+    "truthsocial:realdonaldtrump:117040169267016241": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-05T01:04:58.237558+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/05/117040169267016241",
+      "platform": "truthsocial",
+      "post_id": "117040169267016241",
+      "published": "2026-08-05T00:54:14.685000+00:00",
+      "title": "Truth Social post 117040169267016241",
+      "url": "https://truthsocial.com/@realDonaldTrump/117040169267016241"
+    },
+    "truthsocial:realdonaldtrump:117040169824233765": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-05T01:04:58.237300+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/05/117040169824233765",
+      "platform": "truthsocial",
+      "post_id": "117040169824233765",
+      "published": "2026-08-05T00:54:23.188000+00:00",
+      "title": "Truth Social post 117040169824233765",
+      "url": "https://truthsocial.com/@realDonaldTrump/117040169824233765"
+    },
+    "truthsocial:realdonaldtrump:117040203381137684": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-05T01:04:58.237031+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/05/117040203381137684",
+      "platform": "truthsocial",
+      "post_id": "117040203381137684",
+      "published": "2026-08-05T01:02:55.224000+00:00",
+      "title": "Truth Social post 117040203381137684",
+      "url": "https://truthsocial.com/@realDonaldTrump/117040203381137684"
+    },
+    "truthsocial:realdonaldtrump:117040204257088710": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-05T01:04:58.236767+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/05/117040204257088710",
+      "platform": "truthsocial",
+      "post_id": "117040204257088710",
+      "published": "2026-08-05T01:03:08.591000+00:00",
+      "title": "Truth Social post 117040204257088710",
+      "url": "https://truthsocial.com/@realDonaldTrump/117040204257088710"
+    },
+    "truthsocial:realdonaldtrump:117040204917041054": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-05T01:04:58.236511+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/05/117040204917041054",
+      "platform": "truthsocial",
+      "post_id": "117040204917041054",
+      "published": "2026-08-05T01:03:18.660000+00:00",
+      "title": "Truth Social post 117040204917041054",
+      "url": "https://truthsocial.com/@realDonaldTrump/117040204917041054"
+    },
+    "truthsocial:realdonaldtrump:117040205845663428": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-05T01:04:58.236239+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/05/117040205845663428",
+      "platform": "truthsocial",
+      "post_id": "117040205845663428",
+      "published": "2026-08-05T01:03:32.831000+00:00",
+      "title": "Truth Social post 117040205845663428",
+      "url": "https://truthsocial.com/@realDonaldTrump/117040205845663428"
+    },
+    "truthsocial:realdonaldtrump:117040206417406024": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-05T01:04:58.235886+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/05/117040206417406024",
+      "platform": "truthsocial",
+      "post_id": "117040206417406024",
+      "published": "2026-08-05T01:03:41.555000+00:00",
+      "title": "Truth Social post 117040206417406024",
+      "url": "https://truthsocial.com/@realDonaldTrump/117040206417406024"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
