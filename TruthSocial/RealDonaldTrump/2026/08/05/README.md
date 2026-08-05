@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-08-05
 
-- Posts: 36
+- Posts: 37
 
+- [13:28 UTC - Wayne County (Detroit) in Michigan is one of the most corrupt voting areas in the United S...](117043133534824966/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117043133534824966
+  - Wayne County (Detroit) in Michigan is one of the most corrupt voting areas in the United States, if not the World. It is strictly Third World! Miracles happen in Wayne County, incl...
 - [05:15 UTC - Truth Social post 117041195479952455](117041195479952455/)
   - Source: https://truthsocial.com/@realDonaldTrump/117041195479952455
   - _No text content captured._
