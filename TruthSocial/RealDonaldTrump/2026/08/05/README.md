@@ -1,7 +1,31 @@
 # TruthSocial / RealDonaldTrump / 2026-08-05
 
-- Posts: 28
+- Posts: 36
 
+- [05:15 UTC - Truth Social post 117041195479952455](117041195479952455/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117041195479952455
+  - _No text content captured._
+- [05:06 UTC - Truth Social post 117041161539866498](117041161539866498/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117041161539866498
+  - _No text content captured._
+- [05:05 UTC - Truth Social post 117041158422911455](117041158422911455/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117041158422911455
+  - _No text content captured._
+- [04:56 UTC - Truth Social post 117041120956382251](117041120956382251/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117041120956382251
+  - _No text content captured._
+- [04:55 UTC - Truth Social post 117041117042291502](117041117042291502/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117041117042291502
+  - _No text content captured._
+- [04:54 UTC - Truth Social post 117041114881709573](117041114881709573/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117041114881709573
+  - _No text content captured._
+- [04:54 UTC - Truth Social post 117041112088450376](117041112088450376/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117041112088450376
+  - _No text content captured._
+- [04:35 UTC - Scott Bessent interviewed by Joe Kernen! [https://www. cnbc.com/video/2026/08/04/watc h-cn...](117041037772264187/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117041037772264187
+  - Scott Bessent interviewed by Joe Kernen! [https://www. cnbc.com/video/2026/08/04/watc h-cnbcs-full-interview-with-treasury-secretary-scott-bessent.html](https://www.cnbc.com/video/...
 - [04:05 UTC - Truth Social post 117040922129425317](117040922129425317/)
   - Source: https://truthsocial.com/@realDonaldTrump/117040922129425317
   - _No text content captured._
