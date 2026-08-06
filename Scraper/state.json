@@ -10,8 +10,7 @@
     "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/U-KkyBGvAdM: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=U-KkyBGvAdM! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle."
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -10959,6 +10958,17 @@
       "published": "2026-08-05T19:41:08+00:00",
       "title": "People be hatin but he\u2019s literally just saving America",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7670634888332201230"
+    },
+    "tiktok:whitehouse:7670926415432273166": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-08-06T14:44:28.232132+00:00",
+      "path": "TikTok/WhiteHouse/2026/08/06/7670926415432273166",
+      "platform": "tiktok",
+      "post_id": "7670926415432273166",
+      "published": "2026-08-06T14:32:26+00:00",
+      "title": "NO TAX ON TIPS \ud83d\udcb8 NO TAX ON OVERTIME \ud83d\udcb8",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7670926415432273166"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -180887,6 +180897,17 @@
       "published": "2025-10-12T22:55:55+00:00",
       "title": "President Trump Gaggles with Press at Joint Base Andrews, Oct. 12, 2025",
       "url": "https://www.youtube.com/watch?v=SIoucVD9S2M"
+    },
+    "youtube:whitehouse:SJ8-DNGfvtk": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-08-06T14:44:32.650722+00:00",
+      "path": "YouTube/WhiteHouse/2026/08/06/SJ8_DNGfvtk",
+      "platform": "youtube",
+      "post_id": "SJ8-DNGfvtk",
+      "published": "2026-08-06T13:41:34+00:00",
+      "title": "President Donald J. Trump talks SAVE AMERICA ACT with FOX5 Las Vegas \ud83c\uddfa\ud83c\uddf8",
+      "url": "https://www.youtube.com/shorts/SJ8-DNGfvtk"
     },
     "youtube:whitehouse:SMqhlkSu-tc": {
       "account": "WhiteHouse",
