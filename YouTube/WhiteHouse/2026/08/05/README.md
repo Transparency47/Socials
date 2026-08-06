@@ -1,7 +1,10 @@
 # YouTube / WhiteHouse / 2026-08-05
 
-- Posts: 3
+- Posts: 4
 
+- [22:30 UTC - President Trump Delivers Remarks, Aug. 5, 2026](khgwrHbUKnA/)
+  - Source: https://www.youtube.com/watch?v=khgwrHbUKnA
+  - [00:03.280] be an America. - [00:42.000] From the leaves of Minnesota - [00:45.360] to the hills of Tennessee, - [00:49.039] across the plains of Texas, from sea to - [00:53.120]...
 - [15:20 UTC - Stealing from the American people is unacceptable. VP and the Fraud Task Force fight to stop it. 🇺🇸](fQ6eDZylUkY/)
   - Source: https://www.youtube.com/shorts/fQ6eDZylUkY
   - [00:00.080] Fraud is really a dual victim crime. The - [00:02.800] most obvious victim, of course, is the - [00:04.480] American taxpayer who has their - [00:06.319] hard-earned...
