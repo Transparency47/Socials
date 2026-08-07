@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-08-07
 
-- Posts: 24
+- Posts: 26
 
+- [20:52 UTC - THE PROTECT COLLEGE SPORTS ACT is a great Bill, and the Senate will hopefully stay in D.C....](117056206935468126/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117056206935468126
+  - THE PROTECT COLLEGE SPORTS ACT is a great Bill, and the Senate will hopefully stay in D.C. until it passes. Without this Bill, millions of young Athletes will be hurt, programs wil...
+- [20:48 UTC - Now that people are able to see it up close, they are reporting pure VANDALISM at The Refl...](117056188782446044/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117056188782446044
+  - Now that people are able to see it up close, they are reporting pure VANDALISM at The Reflecting Pool. Thank you Andrew Leyden for your observation! The material was cut right wher...
 - [16:48 UTC - Two Obama and Biden Appellate Court Judges just voted against the desperately needed Milit...](117055247374455490/)
   - Source: https://truthsocial.com/@realDonaldTrump/117055247374455490
   - Two Obama and Biden Appellate Court Judges just voted against the desperately needed Military Center, required for the National Security of Washington, D.C., and our Country, itsel...
