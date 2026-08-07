@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-08-07
 
-- Posts: 19
+- Posts: 20
 
+- [11:34 UTC - They should say, instead, it was the most CROOKED & CORRUPT Election in History! Pass The ...](117054012075663349/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117054012075663349
+  - They should say, instead, it was the most CROOKED & CORRUPT Election in History! Pass The Save America Act, NOW. President DJT New evidence further undermines claim that 2020 elect...
 - [02:18 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Donald Trump Won The Iran...](117051823334652132/)
   - Source: https://truthsocial.com/@realDonaldTrump/117051823334652132
   - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Donald Trump Won The Iran War: [https://www. 19fortyfive.com/2026/08/donald -trump-won-the-iran-war/](https://www.1...
