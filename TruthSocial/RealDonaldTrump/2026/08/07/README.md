@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-08-07
 
-- Posts: 20
+- Posts: 21
 
+- [13:36 UTC - A must read! Thank you to James Jay Carafano! Donald Trump Won The Iran War: [https://www....](117054491639962487/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117054491639962487
+  - A must read! Thank you to James Jay Carafano! Donald Trump Won The Iran War: [https://www. 19fortyfive.com/2026/08/donald -trump-won-the-iran-war/](https://www.19fortyfive.com/2026...
 - [11:34 UTC - They should say, instead, it was the most CROOKED & CORRUPT Election in History! Pass The ...](117054012075663349/)
   - Source: https://truthsocial.com/@realDonaldTrump/117054012075663349
   - They should say, instead, it was the most CROOKED & CORRUPT Election in History! Pass The Save America Act, NOW. President DJT New evidence further undermines claim that 2020 elect...
