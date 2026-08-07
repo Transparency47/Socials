@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-08-07
 
-- Posts: 23
+- Posts: 24
 
+- [16:48 UTC - Two Obama and Biden Appellate Court Judges just voted against the desperately needed Milit...](117055247374455490/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117055247374455490
+  - Two Obama and Biden Appellate Court Judges just voted against the desperately needed Military Center, required for the National Security of Washington, D.C., and our Country, itsel...
 - [15:43 UTC - Last night was another good night for Endorsements, 8-1, and the 1 was a person who I rema...](117054989318193595/)
   - Source: https://truthsocial.com/@realDonaldTrump/117054989318193595
   - Last night was another good night for Endorsements, 8-1, and the 1 was a person who I remained loyal to even though he had virtually no chance of winning, and was running against a...
