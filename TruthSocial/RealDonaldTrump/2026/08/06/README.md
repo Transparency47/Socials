@@ -1,7 +1,46 @@
 # TruthSocial / RealDonaldTrump / 2026-08-06
 
-- Posts: 4
+- Posts: 17
 
+- [20:39 UTC - Abdulrahman Mohamed El-Sayed wants to terminate the Filibuster, and so do I — At least we ...](117050493832354795/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117050493832354795
+  - Abdulrahman Mohamed El-Sayed wants to terminate the Filibuster, and so do I — At least we have something in common! President DONALD J. TRUMP
+- [20:38 UTC - Trump allies push to arm president with new tariff weapon to punish countries 'ripping off...](117050488103108270/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117050488103108270
+  - Trump allies push to arm president with new tariff weapon to punish countries 'ripping off' America: [https://www. foxnews.com/politics/trump-all ies-push-arm-president-new-tariff-...
+- [20:06 UTC - For our Great Republican Senators, friends of mine “all,” please be advised that the Commu...](117050361920371748/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117050361920371748
+  - For our Great Republican Senators, friends of mine “all,” please be advised that the Communist Dumocrat Senate Candidate from Michigan, Abdulrahman Mohamed El-Sayed, is touting, as...
+- [16:51 UTC - The Fake News, as usual, is spreading false and completely unfounded rumors. I am extremel...](117049594693768642/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117049594693768642
+  - The Fake News, as usual, is spreading false and completely unfounded rumors. I am extremely happy with the job that Pete Hegseth is doing. Everything has been extraordinary, includ...
+- [16:20 UTC - It is my Great Honor to endorse Highly Respected State Senator, Brent Taylor, who is runni...](117049474829164828/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117049474829164828
+  - It is my Great Honor to endorse Highly Respected State Senator, Brent Taylor, who is running to represent the Incredible People of Tennessee’s 9th Congressional District. Brent is...
+- [16:20 UTC - Congressman David Kustoff is a Tremendous Champion for Tennessee’s 8th Congressional Distr...](117049474518698544/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117049474518698544
+  - Congressman David Kustoff is a Tremendous Champion for Tennessee’s 8th Congressional District! As a former Criminal Prosecutor, David knows the Wisdom and Courage required to uphol...
+- [16:20 UTC - I am proud to, once again, endorse the GREAT Congressman from Tennessee’s 7th Congressiona...](117049474220855459/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117049474220855459
+  - I am proud to, once again, endorse the GREAT Congressman from Tennessee’s 7th Congressional District, Matt Van Epps. I strongly campaigned with Matt to defeat the Radical Left in h...
+- [16:20 UTC - Congressman Andy Ogles is doing a fantastic job representing the incredible people of Tenn...](117049473842173374/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117049473842173374
+  - Congressman Andy Ogles is doing a fantastic job representing the incredible people of Tennessee’s 5th Congressional District! Andy is a Conservative Warrior who has strong support...
+- [16:20 UTC - Congressman Scott DesJarlais is a Fantastic Advocate for Tennessee’s 4th Congressional Dis...](117049473317689588/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117049473317689588
+  - Congressman Scott DesJarlais is a Fantastic Advocate for Tennessee’s 4th Congressional District! As a Member of the House Agriculture Committee, Scott is a strong and effective voi...
+- [16:20 UTC - Congressman Chuck Fleischmann is a terrific Representative for the incredible people of Te...](117049472907086315/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117049472907086315
+  - Congressman Chuck Fleischmann is a terrific Representative for the incredible people of Tennessee’s 3rd Congressional District! Chuck is a MAGA Warrior with a Strong Record of Succ...
+- [16:20 UTC - Congressman Tim Burchett is an America First Patriot who is doing a fantastic job represen...](117049472526313388/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117049472526313388
+  - Congressman Tim Burchett is an America First Patriot who is doing a fantastic job representing Tennessee’s 2nd Congressional District! A former Mayor of Knox County, State Legislat...
+- [16:17 UTC - Congresswoman Diana Harshbarger is doing an incredible job representing the wonderful peop...](117049463846113769/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117049463846113769
+  - Congresswoman Diana Harshbarger is doing an incredible job representing the wonderful people of Tennessee’s 1st Congressional District! A very successful Pharmacist and Businesswom...
+- [16:17 UTC - Senator Bill Hagerty is doing a fantastic job representing the Great People of Tennessee! ...](117049463454091819/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117049463454091819
+  - Senator Bill Hagerty is doing a fantastic job representing the Great People of Tennessee! I have known Bill for a long time, as both a Highly Successful Businessman, and outstandin...
 - [04:40 UTC - Cash is king: Washington Republicans bankroll midterms as National Democrat coffers are in...](117046722881418522/)
   - Source: https://truthsocial.com/@realDonaldTrump/117046722881418522
   - Cash is king: Washington Republicans bankroll midterms as National Democrat coffers are in the red: [https:// justthenews.com/politics-polic y/elections/cash-king-republicans-bankr...

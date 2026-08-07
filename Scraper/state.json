@@ -10,7 +10,8 @@
     "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle."
+    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/s7Z6qCVbTcA: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=s7Z6qCVbTcA! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -10969,6 +10970,28 @@
       "published": "2026-08-06T14:32:26+00:00",
       "title": "NO TAX ON TIPS \ud83d\udcb8 NO TAX ON OVERTIME \ud83d\udcb8",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7670926415432273166"
+    },
+    "tiktok:whitehouse:7670977862563876109": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-08-07T00:14:14.050100+00:00",
+      "path": "TikTok/WhiteHouse/2026/08/06/7670977862563876109",
+      "platform": "tiktok",
+      "post_id": "7670977862563876109",
+      "published": "2026-08-06T17:52:06+00:00",
+      "title": "With great power comes great responsibility \ud83c\uddfa\ud83c\uddf8",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7670977862563876109"
+    },
+    "tiktok:whitehouse:7671025124170042638": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-08-07T00:14:14.050073+00:00",
+      "path": "TikTok/WhiteHouse/2026/08/06/7671025124170042638",
+      "platform": "tiktok",
+      "post_id": "7671025124170042638",
+      "published": "2026-08-06T20:55:28+00:00",
+      "title": "\"I would put this in the TOP 3 EVER in terms of importance, it ends one of the most EGREGI...",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7671025124170042638"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -131342,6 +131365,149 @@
       "published": "2026-08-06T04:40:54.904000+00:00",
       "title": "Cash is king: Washington Republicans bankroll midterms as National Democrat coffers are in...",
       "url": "https://truthsocial.com/@realDonaldTrump/117046722881418522"
+    },
+    "truthsocial:realdonaldtrump:117049463454091819": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-07T00:13:57.698993+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/06/117049463454091819",
+      "platform": "truthsocial",
+      "post_id": "117049463454091819",
+      "published": "2026-08-06T16:17:52.724000+00:00",
+      "title": "Senator Bill Hagerty is doing a fantastic job representing the Great People of Tennessee! ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117049463454091819"
+    },
+    "truthsocial:realdonaldtrump:117049463846113769": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-07T00:13:57.698406+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/06/117049463846113769",
+      "platform": "truthsocial",
+      "post_id": "117049463846113769",
+      "published": "2026-08-06T16:17:58.706000+00:00",
+      "title": "Congresswoman Diana Harshbarger is doing an incredible job representing the wonderful peop...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117049463846113769"
+    },
+    "truthsocial:realdonaldtrump:117049472526313388": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-07T00:13:57.697651+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/06/117049472526313388",
+      "platform": "truthsocial",
+      "post_id": "117049472526313388",
+      "published": "2026-08-06T16:20:11.154000+00:00",
+      "title": "Congressman Tim Burchett is an America First Patriot who is doing a fantastic job represen...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117049472526313388"
+    },
+    "truthsocial:realdonaldtrump:117049472907086315": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-07T00:13:57.697015+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/06/117049472907086315",
+      "platform": "truthsocial",
+      "post_id": "117049472907086315",
+      "published": "2026-08-06T16:20:16.965000+00:00",
+      "title": "Congressman Chuck Fleischmann is a terrific Representative for the incredible people of Te...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117049472907086315"
+    },
+    "truthsocial:realdonaldtrump:117049473317689588": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-07T00:13:57.696430+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/06/117049473317689588",
+      "platform": "truthsocial",
+      "post_id": "117049473317689588",
+      "published": "2026-08-06T16:20:23.231000+00:00",
+      "title": "Congressman Scott DesJarlais is a Fantastic Advocate for Tennessee\u2019s 4th Congressional Dis...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117049473317689588"
+    },
+    "truthsocial:realdonaldtrump:117049473842173374": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-07T00:13:57.695808+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/06/117049473842173374",
+      "platform": "truthsocial",
+      "post_id": "117049473842173374",
+      "published": "2026-08-06T16:20:31.234000+00:00",
+      "title": "Congressman Andy Ogles is doing a fantastic job representing the incredible people of Tenn...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117049473842173374"
+    },
+    "truthsocial:realdonaldtrump:117049474220855459": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-07T00:13:57.695212+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/06/117049474220855459",
+      "platform": "truthsocial",
+      "post_id": "117049474220855459",
+      "published": "2026-08-06T16:20:37.011000+00:00",
+      "title": "I am proud to, once again, endorse the GREAT Congressman from Tennessee\u2019s 7th Congressiona...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117049474220855459"
+    },
+    "truthsocial:realdonaldtrump:117049474518698544": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-07T00:13:57.694572+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/06/117049474518698544",
+      "platform": "truthsocial",
+      "post_id": "117049474518698544",
+      "published": "2026-08-06T16:20:41.557000+00:00",
+      "title": "Congressman David Kustoff is a Tremendous Champion for Tennessee\u2019s 8th Congressional Distr...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117049474518698544"
+    },
+    "truthsocial:realdonaldtrump:117049474829164828": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-07T00:13:57.693905+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/06/117049474829164828",
+      "platform": "truthsocial",
+      "post_id": "117049474829164828",
+      "published": "2026-08-06T16:20:46.294000+00:00",
+      "title": "It is my Great Honor to endorse Highly Respected State Senator, Brent Taylor, who is runni...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117049474829164828"
+    },
+    "truthsocial:realdonaldtrump:117049594693768642": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-07T00:13:57.693192+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/06/117049594693768642",
+      "platform": "truthsocial",
+      "post_id": "117049594693768642",
+      "published": "2026-08-06T16:51:15.283000+00:00",
+      "title": "The Fake News, as usual, is spreading false and completely unfounded rumors. I am extremel...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117049594693768642"
+    },
+    "truthsocial:realdonaldtrump:117050361920371748": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-07T00:13:57.692847+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/06/117050361920371748",
+      "platform": "truthsocial",
+      "post_id": "117050361920371748",
+      "published": "2026-08-06T20:06:22.232000+00:00",
+      "title": "For our Great Republican Senators, friends of mine \u201call,\u201d please be advised that the Commu...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117050361920371748"
+    },
+    "truthsocial:realdonaldtrump:117050488103108270": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-07T00:13:57.692530+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/06/117050488103108270",
+      "platform": "truthsocial",
+      "post_id": "117050488103108270",
+      "published": "2026-08-06T20:38:27.627000+00:00",
+      "title": "Trump allies push to arm president with new tariff weapon to punish countries 'ripping off...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117050488103108270"
+    },
+    "truthsocial:realdonaldtrump:117050493832354795": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-07T00:13:57.691962+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/06/117050493832354795",
+      "platform": "truthsocial",
+      "post_id": "117050493832354795",
+      "published": "2026-08-06T20:39:55.049000+00:00",
+      "title": "Abdulrahman Mohamed El-Sayed wants to terminate the Filibuster, and so do I \u2014 At least we ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117050493832354795"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
