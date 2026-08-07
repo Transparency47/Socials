@@ -1,0 +1,61 @@
+# TruthSocial / RealDonaldTrump / 2026-08-07
+
+- Posts: 19
+
+- [02:18 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Donald Trump Won The Iran...](117051823334652132/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117051823334652132
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Donald Trump Won The Iran War: [https://www. 19fortyfive.com/2026/08/donald -trump-won-the-iran-war/](https://www.1...
+- [02:17 UTC - Truth Social post 117051821416334863](117051821416334863/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117051821416334863
+  - _No text content captured._
+- [02:17 UTC - Truth Social post 117051820850638344](117051820850638344/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117051820850638344
+  - _No text content captured._
+- [02:17 UTC - Truth Social post 117051820321214036](117051820321214036/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117051820321214036
+  - _No text content captured._
+- [02:17 UTC - Truth Social post 117051819608621322](117051819608621322/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117051819608621322
+  - _No text content captured._
+- [02:16 UTC - Truth Social post 117051819027001118](117051819027001118/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117051819027001118
+  - _No text content captured._
+- [02:16 UTC - Truth Social post 117051818499563426](117051818499563426/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117051818499563426
+  - _No text content captured._
+- [02:16 UTC - Truth Social post 117051817871512048](117051817871512048/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117051817871512048
+  - _No text content captured._
+- [02:16 UTC - Truth Social post 117051817199880380](117051817199880380/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117051817199880380
+  - _No text content captured._
+- [01:57 UTC - Donald Trump Won The Iran War: [https://www. 19fortyfive.com/2026/08/donald -trump-won-the...](117051741714223391/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117051741714223391
+  - Donald Trump Won The Iran War: [https://www. 19fortyfive.com/2026/08/donald -trump-won-the-iran-war/](https://www.19fortyfive.com/2026/08/donald-trump-won-the-iran-war/)
+- [01:17 UTC - Truth Social post 117051584852814396](117051584852814396/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117051584852814396
+  - _No text content captured._
+- [00:33 UTC - Truth Social post 117051410601436605](117051410601436605/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117051410601436605
+  - _No text content captured._
+- [00:30 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)](117051398671535118/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117051398671535118
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+- [00:29 UTC - Truth Social post 117051395919942149](117051395919942149/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117051395919942149
+  - _No text content captured._
+- [00:29 UTC - Truth Social post 117051395561975802](117051395561975802/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117051395561975802
+  - _No text content captured._
+- [00:29 UTC - Truth Social post 117051394979234323](117051394979234323/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117051394979234323
+  - _No text content captured._
+- [00:28 UTC - Truth Social post 117051392252882278](117051392252882278/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117051392252882278
+  - _No text content captured._
+- [00:28 UTC - Truth Social post 117051391491903440](117051391491903440/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117051391491903440
+  - _No text content captured._
+- [00:27 UTC - Truth Social post 117051390549999528](117051390549999528/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117051390549999528
+  - _No text content captured._
