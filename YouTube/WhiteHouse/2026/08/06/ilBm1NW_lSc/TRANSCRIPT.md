@@ -1,0 +1,444 @@
+<!-- source: https://www.youtube.com/watch?v=ilBm1NW-lSc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ilBm1NW-lSc -->
+<!-- date_published: 2026-08-06T23:28:37+00:00 -->
+<!-- date_accessed: 2026-08-07T07:50:37.424845+00:00 -->
+
+# Transcript: President Trump Participates in a Team USA Reception
+
+- [00:06.550] [music]
+- [00:10.559] Ladies and gentlemen, the President of
+- [00:12.400] the United States, Donald J. Trump.
+- [00:17.685] [music]
+- [00:26.200] [music]
+- [00:33.405] >> [music]
+- [00:36.680] [applause]
+- [00:38.079] >> Great athletes. Great athletes. Thank
+- [00:40.320] you very much. It's a real honor to be
+- [00:42.960] with stars. I like being with stars.
+- [00:46.000] Like being with winners. You're winners
+- [00:48.480] like nobody. Thank you very much.
+- [00:50.960] Fantastic. It's fantastic. Today, we're
+- [00:54.640] truly honored to welcome to the White
+- [00:56.640] House perhaps the greatest group of
+- [00:59.039] Winter Olympians in American history. At
+- [01:02.800] the 2026 Olympic Games, Team USA won
+- [01:07.119] more gold medals than any American
+- [01:09.200] Winter Olympic team has ever won before.
+- [01:12.400] And what an amazing achievement.
+- [01:14.015] [applause]
+- [01:15.119] Not bad.
+- [01:17.280] That's not bad. [applause]
+- [01:22.479] That's pretty good, isn't it? Huh? We
+- [01:24.400] had some good teams, Sue. We're also
+- [01:27.200] honored to be joined by many of the
+- [01:29.360] members of the US Parolympic team who
+- [01:32.240] are fantastic. I watched so much of that
+- [01:34.960] and showed unbelievable strength and
+- [01:37.280] persistence and skill and brought home
+- [01:39.840] an incredible 13 Parolympic gold medals
+- [01:43.200] to America. Congratulations. That's a
+- [01:45.439] lot of medals. It's a record. [applause]
+- [01:49.040] Fantastic.
+- [01:54.320] That's a record. [applause]
+- [01:56.640] Along with the athletes, I want to thank
+- [01:58.479] the team USA coaches and staff members
+- [02:01.119] who are here today as well as CEO of the
+- [02:04.079] US Olympic and Parolympic committees
+- [02:06.960] Sarah Hland. Sarah, wherever you may be,
+- [02:09.280] we're [applause] Thank you. Please
+- [02:10.720] stand. Great. Thank you, Sarah. Thank
+- [02:14.239] you very much. [applause]
+- [02:17.120] Treasur of the United States. Well, and
+- [02:20.000] this is a very good friend of mine.
+- [02:21.280] Where's Brandon? Brandon Beach. He's the
+- [02:24.560] That's a good That's a good position.
+- [02:26.800] Treasure. [applause] Think of that.
+- [02:28.879] Treasurer of the United States of
+- [02:30.480] America. That's good. He controls a lot
+- [02:32.400] of money. And the director of the United
+- [02:35.280] States, Mint, Paul Hollis. Thank you,
+- [02:38.239] Paul. [applause] Thank you. Great job.
+- [02:42.400] So last February, these incredible
+- [02:44.879] Olympians traveled to northern Italy and
+- [02:48.080] they returned home to America wearing
+- [02:50.080] nine bronze medals, 12 civil uh silver
+- [02:53.519] medals, and a record 12 Winter Olympic
+- [02:57.920] golds. Nothing like that. That
+- [03:00.127] [applause] was the all-time record.
+- [03:04.000] These men and women sacrifice years of
+- [03:06.239] their lives and countless early mornings
+- [03:08.319] to be the best in the world. That's
+- [03:09.760] right. I guess you get up early in the
+- [03:11.599] morning, don't you? I remember those
+- [03:13.200] days, but I didn't do it as well as you.
+- [03:15.599] Not quite. It's really something. And
+- [03:18.480] they were early mornings. And they did
+- [03:20.640] it for the highest privilege in all of
+- [03:22.480] sports, wearing the red, white, and blue
+- [03:25.200] while representing those three proud
+- [03:27.840] letters on their uniform. It's called
+- [03:30.239] USA. And that's what you
+- [03:32.222] [applause and cheering] did.
+- [03:36.807] [applause]
+- [03:38.799] Among the great medalists with us this
+- [03:41.840] evening is one of those who helped bring
+- [03:44.000] home the team figure skating gold, Danny
+- [03:48.239] O'Shea. Where's Danny O'Shea? Where's
+- [03:50.560] Danny? [applause]
+- [03:52.400] Where's Danny?
+- [03:54.480] Huh? [applause]
+- [03:56.720] Not not bad, Danny.
+- [03:59.439] That's pretty good.
+- [04:01.439] I watched that one. Great going, Danny.
+- [04:04.720] You look better in person if you want.
+- [04:09.040] >> When it mattered most, Danny skated the
+- [04:11.280] best he has ever skated. Would you say
+- [04:13.120] that was the best you've ever The best.
+- [04:15.680] You're never going to do it again. Are
+- [04:16.959] you going to do it again? You'll do it
+- [04:19.040] again. Do it again. That's great. But he
+- [04:22.560] said it was the best he ever skated and
+- [04:24.400] other people too in his entire life. and
+- [04:26.400] his performance helped the US edge out
+- [04:29.040] Japan who's a very great team in the
+- [04:31.600] team event by a single point 69 to 68.
+- [04:35.520] And I want to just say again because I
+- [04:37.040] watched that Danny well done and the
+- [04:38.720] whole team well done. That's incredible.
+- [04:40.960] That's incredible. [applause] Thank you.
+- [04:44.240] That's great.
+- [04:47.120] Also with us is the single most
+- [04:49.199] decorated American Olympian from the
+- [04:51.520] 2026 game, speed skater Jordan Stalls.
+- [04:55.520] And I watched that one too. Legs, strong
+- [04:57.680] legs, very strong legs. So I said, "How
+- [05:00.720] do I get my legs to look like that? I
+- [05:03.280] don't have any time to work like that."
+- [05:05.759] But it's uh You were amazing. And
+- [05:08.160] historic victories, Jordan broke the
+- [05:10.800] Olympic record in the men's 500 meter,
+- [05:13.600] 1,000 meter speed skating, winning
+- [05:16.240] double gold medals. In addition, Jordan
+- [05:18.800] brought home the silver in the 1500
+- [05:21.120] meter competition. And he just did a
+- [05:23.600] great job. Everybody's still talking
+- [05:25.440] about it. So, Jordan, where where are
+- [05:27.520] you? Jordan,
+- [05:29.468] [applause]
+- [05:38.638] [applause]
+- [05:41.199] I met Jordan before and he's a fantastic
+- [05:43.919] young man. Great future. We also have
+- [05:47.440] the gold medal champion in women's
+- [05:49.680] mogul, Elizabeth Lemley. I don't know
+- [05:52.320] how you do that, Elizabeth. That's
+- [05:54.320] amazing stuff. Where's Elizabeth?
+- [05:56.960] >> Elizabeth
+- [05:59.599] [applause]
+- [06:08.800] along with gold medal winning mixed
+- [06:11.039] aerial freestyle skiing team consisting
+- [06:13.759] of Christopher Lilis, Connor Curran, and
+- [06:17.360] Kayla Thank you very much. Well,
+- [06:19.919] where are you? [applause]
+- [06:25.759] Good job.
+- [06:27.840] Great job. [applause]
+- [06:29.919] I also have to mention the team that won
+- [06:32.400] perhaps the greatest victory on the
+- [06:34.319] hockey rink since the original Miracle
+- [06:37.280] on Ice and they were here in February
+- [06:39.759] and it was an amazing moment at just an
+- [06:42.800] incredible the 2026 men's Olympic hockey
+- [06:46.479] team. We celebrated together and it was
+- [06:48.560] something special. It was really an
+- [06:51.039] amazing period of time and the women's
+- [06:53.039] team and the men's team. It was just
+- [06:54.800] incredible. And in that overtime
+- [06:56.960] thriller, Team USA beat Canada two to
+- [06:59.199] one thanks to many memorable
+- [07:01.759] performances and clutch plays including
+- [07:03.840] the golden goal. They they scored it.
+- [07:06.400] They called it the golden It sounds like
+- [07:08.240] me naming it. I call it the golden age
+- [07:10.080] of America. The golden age of America.
+- [07:13.120] Now we have the golden goal. But uh
+- [07:16.000] that's okay. And that was done by Jack
+- [07:17.840] use as you know. great guy and a record
+- [07:20.720] 41 saves by goalie Connor Hellabuk and
+- [07:24.880] he was MVP everybody would agree to that
+- [07:27.599] he was unbelievable he was something and
+- [07:30.160] of course we can't forget and never
+- [07:32.400] would and nobody would have the courage
+- [07:34.960] to forget either because they are
+- [07:36.880] amazing the history making women's
+- [07:39.199] hockey team this team left all
+- [07:41.919] everything right on the ice and they
+- [07:44.000] beat Canada and clinched the Olympic
+- [07:45.919] gold with with us today are two of the
+- [07:48.639] key contributors to that winning effort,
+- [07:50.800] Abby Murphy and Joy Dunn. And I want to
+- [07:53.680] thank you, Abby and Joy, for an incred
+- [07:56.479] memorable period of time. It was just an
+- [07:58.560] amazing time for our country. Uh where
+- [08:00.720] are you Abby and Joy? [applause]
+- [08:11.255] [applause]
+- [08:15.840] >> [applause]
+- [08:20.425] [cheering]
+- [08:25.010] [applause]
+- [08:29.595] [applause]
+- [08:30.560] >> That was really something. But never
+- [08:33.120] before in history have both of our men's
+- [08:34.880] and women's hockey teams won gold in a
+- [08:37.120] single season. This is truly the and I
+- [08:40.479] say it it's just a period of time our
+- [08:43.440] our country has never done better than
+- [08:45.120] it's doing right now in so many
+- [08:46.480] different ways. Even in terms of
+- [08:48.480] investment of 19.2 trillion is pouring
+- [08:52.000] into our country making them richer.
+- [08:54.240] It's making everybody in this room
+- [08:55.839] richer including my man. [applause]
+- [08:59.920] But it's been uh it's been a great it's
+- [09:02.160] been a great period of time. And I will
+- [09:04.320] say this, the whole world is know and
+- [09:06.720] they know it and they say it. We we have
+- [09:09.120] right now we have the hottest country
+- [09:11.440] anywhere in the world and a big factor
+- [09:14.000] is right standing behind me and what a
+- [09:15.920] future they have. Every one of them.
+- [09:17.440] Thank you very much. Such an honor.
+- [09:20.686] [applause]
+- [09:22.160] So
+- [09:23.760] adding to this historic success, our
+- [09:26.000] parolympians brought home their fifth
+- [09:28.720] straight gold medal in sled hockey and
+- [09:33.131] >> [applause and cheering]
+- [09:36.000] >> and extended one of the greatest
+- [09:37.920] dynasties in all of international
+- [09:40.399] sports. And it's amazing what you've
+- [09:43.120] done. Nobody's ever done anything like
+- [09:44.880] it. Where are you? Let me just see.
+- [09:48.160] >> Congratulations.
+- [09:50.816] [applause]
+- [09:55.401] >> [applause]
+- [09:57.680] >> And congratulations to Brett Bolton,
+- [10:01.040] David Eustus, Jack Wallace, Kaden
+- [10:03.760] Beasley, Kevin McKe, Landon Utkay, Liam
+- [10:08.320] Cunningham, Malik Jones, Declan Farmer,
+- [10:12.320] and Jen Lee. You are really an
+- [10:14.880] inspiration and thank you very much.
+- [10:16.720] It's an amazing amazing achievement that
+- [10:19.760] we'll never forget and it was a record.
+- [10:22.320] There's something nice about record
+- [10:23.760] performances. It was a record. It's one
+- [10:25.680] of the highest pleasures of the
+- [10:27.920] presidency to be able to support our
+- [10:30.240] nation's best athletes and that's what
+- [10:32.240] they are and celebrate the champions of
+- [10:34.640] Team USA under the Trump administration.
+- [10:37.760] We're doing everything we can to protect
+- [10:39.680] the cherish sporting traditions that
+- [10:42.160] have long been part of our nation from
+- [10:44.160] the beginning. Right from the beginning.
+- [10:46.640] And already we've uh done a lot to help
+- [10:49.200] save women's sports and we're also
+- [10:51.519] saving college sports. We're in the
+- [10:53.120] process of working very hard. We had a
+- [10:56.000] bad judges decision and uh a judge that
+- [10:59.680] knew nothing about sports declared
+- [11:02.079] sports unconstitutional. Can you believe
+- [11:04.480] it? And we had to come and put something
+- [11:07.120] together. And we had the help of so many
+- [11:09.600] great people. They all came together.
+- [11:11.200] And we have a bill uh right now that
+- [11:13.839] we're trying to get passed. And if it
+- [11:15.680] does, we'll be bringing sports back and
+- [11:17.920] you'll all be protected and your sports
+- [11:19.760] will be protected and frankly women will
+- [11:22.320] be protected because with what happened,
+- [11:25.040] that was the worst thing that happened
+- [11:26.320] to women sports. You understand that? Um
+- [11:29.279] and we're working very hard with a lot
+- [11:31.120] of great people. Uh Nick Sabin as an
+- [11:33.519] example was so instrumental. Andy
+- [11:35.839] Lavine, he's the president of the New
+- [11:38.000] York Yankees. and just so many they all
+- [11:40.079] came together. The Big 10, the SEC,
+- [11:43.600] and what a mess it was, a court case
+- [11:45.839] that was a disaster. And why they didn't
+- [11:48.320] appeal that case, I have no idea. I
+- [11:50.079] won't ask about that. But they didn't
+- [11:51.600] appeal it. Some genius said, "Let's not
+- [11:53.360] appeal it." And that was a perfect
+- [11:55.839] perfect case to win an appeal. But the
+- [11:57.839] people that were running things did not
+- [12:00.079] appeal it. So so foolish. But we have it
+- [12:03.519] going and we're very close to a deal
+- [12:05.279] that will be terrific, I think, and
+- [12:08.079] really save college sports and save
+- [12:10.320] colleges if you want to know the tr the
+- [12:12.560] money that was being spent because of
+- [12:15.120] this ridiculous decision that was made.
+- [12:17.680] But the collegiate athletic system is
+- [12:19.920] the engine of American Olympic
+- [12:22.880] dominance. And you know, you produce the
+- [12:24.959] great Olympians, they they really can
+- [12:27.360] compete in college and all sports, every
+- [12:30.240] sport, producing 88 Team USA athletes
+- [12:33.440] for the 2026 Winter Games alone. And to
+- [12:36.720] that end, I am urging the House and the
+- [12:39.360] Senate to come together, bipartisan if
+- [12:43.200] possible, and it looks like that's what
+- [12:44.560] they have done together and send the
+- [12:47.440] bill to my desk. I will sign it
+- [12:49.600] immediately. Done by some of the the
+- [12:52.000] greatest people in sports. And uh I
+- [12:55.200] think we have no choice. We have to get
+- [12:56.880] that done, right? We have to get that
+- [12:58.560] done. And if we don't, we're very
+- [13:00.720] foolish. Nobody knows what's going to
+- [13:02.720] happen. We're we're in Never Neverland.
+- [13:05.360] And we're not going to let that be
+- [13:07.519] happening. We're just not going to let
+- [13:08.720] it happen to these great people and
+- [13:10.399] others. But we're not going to let that
+- [13:12.720] happen. I know many of the Olympians
+- [13:14.720] here today are already training for the
+- [13:17.600] next winter games and eight years from
+- [13:19.440] now. Who who is expecting and hoping to
+- [13:21.519] be in the Olympic the next Olympics
+- [13:23.680] because well we're going to run that
+- [13:25.360] good like we did the world. [applause]
+- [13:31.920] That's [applause] great.
+- [13:34.720] That's great. Well, we're going to do a
+- [13:36.480] real job. You know, we had the greatest,
+- [13:38.160] most successful the FIFA, the World Cup
+- [13:41.920] was the most. And I want to just pay a
+- [13:44.320] special thanks to Andrew. You did a
+- [13:46.560] fantastic job, Andrew Giuliani.
+- [13:48.584] [applause]
+- [13:51.839] Great job. It was like a flawless thing.
+- [13:54.480] It was four times more successful than
+- [13:57.360] monetarily in every other way. I think
+- [13:59.680] other ways even more than that. But it
+- [14:02.160] was Well, thank you. But we're going to
+- [14:03.839] do it again now for them. we have to do
+- [14:05.440] it again for them. So, we're going to
+- [14:07.120] make this one of the best, maybe the
+- [14:08.560] best. But that was the most successful
+- [14:12.160] World Cup they've ever had by far. They
+- [14:14.399] actually say by four times greater. I
+- [14:16.560] said, "Let's do it again in four years."
+- [14:18.079] But other countries had problems with
+- [14:19.680] it, right? But, uh, in eight years from
+- [14:22.399] now, some of you may even have a chance
+- [14:24.800] to compete on American soil on the 2034
+- [14:28.399] Winter Win winter Olympics where it's
+- [14:30.160] going to be in Salt Lake City. And of
+- [14:32.160] course, [applause]
+- [14:36.800] and that'll be great. And of course,
+- [14:38.880] we're all looking forward to the 2028
+- [14:41.519] Summer Olympics in Los Angeles. So, we
+- [14:44.079] got a lot of We got a lot of action.
+- [14:46.880] [applause]
+- [14:49.040] We have a lot of action going. So, it's
+- [14:51.120] really going to be something. And it's
+- [14:52.959] going to be wellrun. It's been wellrun.
+- [14:55.040] Just like FIFA, not a We didn't have a
+- [14:57.360] problem. It was so smooth. All of those
+- [14:59.760] games. It was sort of like they said
+- [15:01.600] having a Super Bowl every day and
+- [15:03.680] actually in some cases having about four
+- [15:05.519] Super Bowls a day, but it worked out so
+- [15:08.079] flawlessly. We're very proud of it. And
+- [15:10.079] so I want to just once again thank
+- [15:11.920] everybody representing our nation so
+- [15:14.399] incredibly and setting all of those
+- [15:16.079] records because you really many of you
+- [15:17.760] set records. Setting a record is a big
+- [15:20.079] deal all those years and you showed the
+- [15:22.639] entire world that the Americans really
+- [15:25.279] they know how to fight fight fight and
+- [15:27.120] win win win. And you can do that better
+- [15:28.959] than anybody. and I'm going to be
+- [15:30.720] watching you again very soon. And now,
+- [15:33.279] let's have two of the team USA's flag
+- [15:36.160] bearers, the great flag bearers, uh,
+- [15:38.480] this past winter Olympics come forward
+- [15:41.199] for a special gift presentation, one of
+- [15:43.519] the most decorated parolympians in US
+- [15:46.480] history, a phenomenal athlete, Lori
+- [15:49.519] Stevens, along with US Army Sergeant and
+- [15:52.320] bobsled team member, a great talent,
+- [15:54.959] Frank Deluka. Do you know Frank Dela?
+- [15:58.320] Where's Frank Deluk? Is that Frank? Come
+- [16:00.240] here, Frank. [applause]
+- [16:02.240] Strong, strong, very strong hands.
+- [16:09.411] [applause]
+- [16:16.079] >> Mr. President, my name is Frank Deluca
+- [16:18.959] and I'm joined here with my teammate,
+- [16:21.839] sixtime parolympian Lorie Stevens.
+- [16:25.786] [applause]
+- [16:30.371] >> [applause]
+- [16:31.680] >> We had the unique privilege of serving
+- [16:33.519] as team USA's flag bears at the opening
+- [16:36.240] ceremony of the Olympic Games and
+- [16:38.079] Parolympic Games in Milano Cortina.
+- [16:40.800] Thank you for welcoming us to the White
+- [16:42.399] House. It's an honor to be here. Thank
+- [16:45.040] you for your support of America's
+- [16:47.279] Olympic and Parolympic athletes and for
+- [16:49.759] helping to celebrate the movement that
+- [16:51.440] unites and inspires so many across our
+- [16:54.079] country.
+- [16:55.680] On behalf of Team USA, we would like to
+- [16:57.839] gift you these keepsakes. We hope you'll
+- [17:00.000] wear them proudly as you continue to
+- [17:01.680] cheer on Team USA.
+- [17:02.959] >> I will be. Thank you very much.
+- [17:05.741] [applause]
+- [17:14.256] [applause]
+- [17:28.319] Thank you very much.
+- [17:30.632] [applause]
+- [17:35.872] [applause]
+- [17:39.919] USA.
+- [17:42.799] USA. USA. USA. USA. USA. USA. USA. USA.
+- [18:00.960] really beautiful coins. I love coins. I
+- [18:04.400] love
+- [18:05.919] I love always love coins, but we have
+- [18:07.919] the best of them. We're going to give
+- [18:09.600] everybody here a very special drawing
+- [18:11.840] and if we can we get down and I'll show
+- [18:13.760] you the Oval Office. You'll see the
+- [18:15.760] office
+- [18:21.120] and most of them I just want to get out
+- [18:22.799] of there. Some of them I like, some of
+- [18:24.400] them I don't like. Some of them I love
+- [18:26.799] and some of them I don't like so much.
+- [18:29.760] But, uh, they all come here. We just had
+- [18:31.520] the Dodgers. They were fantastic. The,
+- [18:34.320] uh, Super Bowl winner. We have
+- [18:36.320] everybody. And this is one of the great
+- [18:38.480] honors. And really, you're tremendous
+- [18:40.880] athletes. I mean, to do it six times.
+- [18:42.799] How do you do it six times? That's a lot
+- [18:45.280] of heart. That's a lot of heart. So,
+- [18:47.520] we're going to come down to the Oval
+- [18:48.799] Office together. We're going to take one
+- [18:50.400] picture here. And then, uh, we're going
+- [18:52.960] to present you all with a very special,
+- [18:55.520] really something that you're going to
+- [18:57.039] like. a coin but very special coin from
+- [18:59.440] the White House. Okay. Thank you. Does
+- [19:01.760] anybody not want to go?
+- [19:08.480] Great job. Great job. Let's go.
+- [19:12.158] [applause]
+- [19:20.799] Right up there everybody.
+- [19:23.039] And one, two, three. One, two, three.
+- [19:26.480] And one more. One, two, three.
+- [19:33.200] >> Okay.
+- [19:40.240] Try it a little bit.
+- [19:43.598] [music]
+- [19:55.039] Heat. [music]
+- [20:07.833] [music]
+- [20:16.720] Heat.

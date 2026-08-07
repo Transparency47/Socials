@@ -10,8 +10,7 @@
     "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: ScrapeError: Could not fetch YouTube feed. https://www.youtube.com/feeds/videos.xml?user=WhiteHouse: HTTP 500; https://www.youtube.com/feeds/videos.xml?user=whitehouse: HTTP 404"
+    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle."
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -172407,6 +172406,17 @@
       "title": "President Trump is jumpstarting the AMERICAN DREAM for millions of children. \ud83c\uddfa\ud83c\uddf8",
       "url": "https://www.youtube.com/watch?v=0TlTTPq2p74"
     },
+    "youtube:whitehouse:0VTaVDkSWx4": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-08-07T07:50:38.190253+00:00",
+      "path": "YouTube/WhiteHouse/2026/08/06/0VTaVDkSWx4",
+      "platform": "youtube",
+      "post_id": "0VTaVDkSWx4",
+      "published": "2026-08-06T20:35:02+00:00",
+      "title": "President Trump Participates in Signing Time, Aug. 6, 2026",
+      "url": "https://www.youtube.com/watch?v=0VTaVDkSWx4"
+    },
     "youtube:whitehouse:0_0E-C96Q4Q": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -186410,6 +186420,17 @@
       "title": "President Trump Addresses the Army Academy\u2019s Class of 2025",
       "url": "https://www.youtube.com/watch?v=hyULwVCcgJw"
     },
+    "youtube:whitehouse:i1Aocuh2Qoc": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-08-07T07:50:39.060048+00:00",
+      "path": "YouTube/WhiteHouse/2026/08/06/i1Aocuh2Qoc",
+      "platform": "youtube",
+      "post_id": "i1Aocuh2Qoc",
+      "published": "2026-08-06T15:06:25+00:00",
+      "title": "President Trump Delivers Remarks in Las Vegas",
+      "url": "https://www.youtube.com/watch?v=i1Aocuh2Qoc"
+    },
     "youtube:whitehouse:i3JO64ojEQI": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -186651,6 +186672,17 @@
       "published": "2025-07-03T23:47:10+00:00",
       "title": "President Trump Gaggles with Press at Joint Base Andrews, July 03, 2025",
       "url": "https://www.youtube.com/watch?v=ih5818qTGcE"
+    },
+    "youtube:whitehouse:ilBm1NW-lSc": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-08-07T07:50:37.424845+00:00",
+      "path": "YouTube/WhiteHouse/2026/08/06/ilBm1NW_lSc",
+      "platform": "youtube",
+      "post_id": "ilBm1NW-lSc",
+      "published": "2026-08-06T23:28:37+00:00",
+      "title": "President Trump Participates in a Team USA Reception",
+      "url": "https://www.youtube.com/watch?v=ilBm1NW-lSc"
     },
     "youtube:whitehouse:im5y3yC16WM": {
       "account": "WhiteHouse",
@@ -189764,6 +189796,17 @@
       "published": "2025-07-10T01:19:41+00:00",
       "title": "Bank of America: Trump\u2019s One Big Beautiful Bill Gives Uber Drivers $1B Pay Bump",
       "url": "https://www.youtube.com/watch?v=s5q_ooS1Yv8"
+    },
+    "youtube:whitehouse:s7Z6qCVbTcA": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-08-07T07:50:36.757377+00:00",
+      "path": "YouTube/WhiteHouse/2026/08/06/s7Z6qCVbTcA",
+      "platform": "youtube",
+      "post_id": "s7Z6qCVbTcA",
+      "published": "2026-08-06T23:37:42+00:00",
+      "title": "President Trump hosts 2026 American Winter Olympians and Paralympians at the White House! \ud83c\uddfa\ud83c\uddf8\ud83e\udd47",
+      "url": "https://www.youtube.com/shorts/s7Z6qCVbTcA"
     },
     "youtube:whitehouse:s8-xoV70o_U": {
       "account": "WhiteHouse",

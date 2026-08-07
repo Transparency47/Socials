@@ -1,0 +1,541 @@
+<!-- source: https://www.youtube.com/watch?v=0VTaVDkSWx4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 0VTaVDkSWx4 -->
+<!-- date_published: 2026-08-06T20:35:02+00:00 -->
+<!-- date_accessed: 2026-08-07T07:50:38.190253+00:00 -->
+
+# Transcript: President Trump Participates in Signing Time, Aug. 6, 2026
+
+- [00:09.599] Okay, thank you very much. We have a few
+- [00:11.759] subjects that we're going to discuss.
+- [00:13.599] Uh, all important, but one in particular
+- [00:16.320] important having to do with birthright
+- [00:18.240] citizenship.
+- [00:19.760] And Will, if you would, maybe you could
+- [00:21.600] uh we'll start it off with what Howard's
+- [00:23.840] going to be discussing.
+- [00:25.680] So uh a short while ago sir you signed
+- [00:28.880] an order uh relating to the polysilicon
+- [00:31.679] industry. Um this is a series of trade
+- [00:34.239] and tariff actions under section 232
+- [00:37.440] intended to ensure that domestic
+- [00:39.760] polysilicon manufacturing uh is properly
+- [00:42.879] supported and protected uh from overseas
+- [00:45.360] dumping and offshore threats. Howard can
+- [00:47.760] speak more to the details. Uh but poly
+- [00:50.160] silicon is incredibly important in the
+- [00:52.160] chipm industry and a number of other
+- [00:53.840] industries as well. And like many of
+- [00:56.239] your uh previous trade actions, sir,
+- [00:58.239] this is intended to ensure that we're
+- [01:00.239] onshoring manufacturing capacity, that
+- [01:02.719] we're onshoring our own supply of of
+- [01:05.519] critical products uh and that we're
+- [01:07.520] protecting American industry from malign
+- [01:09.600] foreign actors in that space.
+- [01:11.360] >> Thank you. So poly silicon is sort of
+- [01:14.400] the foundational product that makes
+- [01:18.000] silicon wafers that become the AI chips
+- [01:22.560] and the chips that are in our phones and
+- [01:24.479] everything. So the president's policies
+- [01:27.520] have brought 50% of production into
+- [01:31.280] America, but we need the foundational
+- [01:33.600] products made here. Otherwise, you know,
+- [01:35.600] we're making the products here, but we
+- [01:37.119] need the supply chain here. So this will
+- [01:39.280] bring the supply chain here. We're
+- [01:41.360] setting prices so that the Chinese can't
+- [01:43.520] dump anymore. And we're setting tariffs
+- [01:45.520] to say build it here. We've got the
+- [01:47.439] industry here. It's too small and it's
+- [01:49.680] going to explode under your leadership.
+- [01:52.720] >> And we're having massive numbers of uh I
+- [01:56.880] guess you call them factories or plants
+- [01:58.640] built having to do with the
+- [02:00.159] manufacturing of chips, more than we've
+- [02:02.640] ever had before. Uh Intel we're very
+- [02:05.200] proud of. They've done incredible.
+- [02:07.520] They've really been an incredible
+- [02:08.959] company. But we're doing uh some
+- [02:12.480] unbelievable business. Uh chips will
+- [02:14.640] have a big percentage of the chip
+- [02:16.160] business by the time I leave office,
+- [02:18.319] which could be a long time. Who knows?
+- [02:20.800] But it could also be fairly quick. They
+- [02:23.360] say two and a half years. We're going to
+- [02:24.959] find out. But I just want to say that
+- [02:27.440] it's an honor to have worked with a very
+- [02:29.040] smart group of people and we're bringing
+- [02:31.200] the chip business back into the United
+- [02:33.200] States in a very big way. Jameson, do
+- [02:35.200] you have anything to say about that?
+- [02:36.560] Sir, I I think you need to put this in
+- [02:38.480] the context of everything else that's
+- [02:39.920] happening. Manufacturing productivity is
+- [02:42.239] the highest it's been in years. We
+- [02:45.040] haven't seen any growth like this uh for
+- [02:47.360] forever. Under President Biden, uh the
+- [02:49.840] last part of his presidency, he lost
+- [02:51.440] 220,000 manufacturing jobs. The
+- [02:54.160] president has stabilized this. Now, the
+- [02:55.760] manufacturing jobs are going up. So, all
+- [02:58.000] of these indicators on manufacturing are
+- [02:59.840] happening. It's because of tariffs. It's
+- [03:01.840] because of trade actions. is because of
+- [03:03.760] the investment credits you've given
+- [03:05.280] people, the tax credits, everything
+- [03:07.280] you're doing. The energy policy, all of
+- [03:09.040] it is bringing manufacturing back here,
+- [03:11.360] protecting American workers and American
+- [03:12.959] jobs.
+- [03:13.360] >> Well, tariffs are bringing us hundreds
+- [03:15.280] of billions of dollars worth of dollars.
+- [03:18.640] I mean, just money, the money that we're
+- [03:20.480] we've never seen anything like it with
+- [03:22.400] no inflation, by the way. Everyone said,
+- [03:24.239] "Oh, there'll be inflation." We're very
+- [03:26.239] low inflation. We brought inflation way
+- [03:28.239] down. I inherited the worst inflation in
+- [03:31.120] the history of our country. They say 48
+- [03:33.680] years, but I say the history of our
+- [03:35.280] country and from the Biden
+- [03:37.280] administration and we're bringing it way
+- [03:39.680] down. So, uh, the numbers that of of I
+- [03:43.519] mean, beyond the money being brought in,
+- [03:45.840] the number of factories being built in
+- [03:48.159] our country is more now than we have
+- [03:50.239] ever seen before. There's never been
+- [03:53.040] anything like it. And, uh, you're going
+- [03:54.959] to see the results, and you're seeing
+- [03:56.319] the results already in construction jobs
+- [03:58.720] because they're being built all over the
+- [04:00.720] country. But uh in another year as they
+- [04:03.599] start to open uh there's never been we
+- [04:06.000] call it the golden age of America and
+- [04:07.760] that's what it is. Now if we could talk
+- [04:10.080] uh Steve maybe you could discuss what
+- [04:12.799] we're dealing with on birthright
+- [04:14.959] citizenship. We had a very unfortunate
+- [04:16.959] decision in the Supreme Court concerning
+- [04:19.759] birthright. It was close but a very very
+- [04:22.479] unfortunate decision. Uh so we're uh
+- [04:26.160] making adjustments because it's very
+- [04:28.639] unfair. This was done for a different
+- [04:30.560] reason. This was done right after the
+- [04:32.800] Civil War. This was for the babies of
+- [04:35.919] slaves.
+- [04:37.759] And uh what's happening now? People are
+- [04:40.800] building businesses around it from
+- [04:42.960] wealthy people are building businesses
+- [04:44.639] around birthright citizenship. That's
+- [04:46.800] not the way it was supposed to work.
+- [04:48.160] It's a disgrace. They're buying their
+- [04:49.680] way in and we're not going to let it
+- [04:51.919] happen. So Steve, if you will, please.
+- [04:54.320] >> Yes. So today the president signed these
+- [04:56.160] two executive orders here relating to
+- [04:59.120] birthright citizenship and birth
+- [05:00.800] tourism. As the president mentioned, the
+- [05:03.840] 14th amendment was passed exclusively in
+- [05:06.240] the aftermath of the civil war so to
+- [05:08.800] ensure that the children of slaves would
+- [05:10.639] be citizens. It had no other meaning and
+- [05:12.960] purpose outside of that. And that's been
+- [05:14.720] clear obviously since the day that it
+- [05:16.240] was passed. You can go back and you can
+- [05:17.600] read the congressional debates. This is
+- [05:19.759] not something that's even seriously
+- [05:21.360] contested by anybody. The president is
+- [05:24.240] using his authority as commanderin-chief
+- [05:27.039] to sign first an executive order using
+- [05:29.600] the new ruling the Supreme Court issued
+- [05:31.600] to expand the definitions of people who
+- [05:33.759] are ineligible for birthright
+- [05:35.120] citizenship. That includes, for example,
+- [05:38.000] alien enemies of the United States,
+- [05:39.840] members of foreign terrorist
+- [05:41.039] organizations, and large categories of
+- [05:43.280] people who lobby and act on behalf of
+- [05:45.520] foreign governments. And so with taking
+- [05:47.360] this action, it ensures that large
+- [05:49.440] numbers of people who wrongly would be
+- [05:51.919] getting birthright citizenship will no
+- [05:53.759] longer be eligible for those benefits.
+- [05:55.919] The second action that he's taking,
+- [05:58.000] which is especially historic, is for the
+- [06:00.800] first time ever in American history to
+- [06:03.280] ban birth tourism. So I want you to
+- [06:06.960] really let that sink in. This has been
+- [06:08.800] something that people have talked about
+- [06:10.160] not only for years, but for decades. the
+- [06:12.880] idea that people come here pretending to
+- [06:14.800] be a tourist, pretending to be a
+- [06:16.560] visitor, saying they want to go to
+- [06:18.000] Disneyland, they want to go visit a a
+- [06:20.639] monument or go to a national park. But
+- [06:22.639] the real reason they're here is to have
+- [06:25.680] a child, to make that child an automatic
+- [06:28.000] citizen, leave our country, and then
+- [06:30.240] have a US citizen child. It gives them
+- [06:32.400] access under this broken system to
+- [06:34.560] welfare benefits, ultimately to the
+- [06:36.720] voting booth, and all the other rights
+- [06:38.400] and privileges that belong solely to
+- [06:40.160] Americans. So that practice of birth
+- [06:43.120] tourism is as of the signing of this
+- [06:45.600] order hereby banned. And what that means
+- [06:49.280] is that no one in the world is anymore
+- [06:52.319] allowed to obtain a visa for this
+- [06:55.199] fraudulent purpose. It is probably and
+- [06:57.919] President Trump has done many historic
+- [06:59.360] things on immigration. Too many to list
+- [07:01.520] now. Seal the southern border shut.
+- [07:03.680] record deportations, record integrity,
+- [07:06.880] stopping foreign terrorist entry, record
+- [07:09.199] reduction in drug seizures, dismantling
+- [07:11.360] the criminal cartels, dismantling the
+- [07:13.280] gangs, right? Everything he's done that
+- [07:15.440] has been so unprecedented. I will put
+- [07:17.199] this in the top three in terms of
+- [07:19.280] importance because it ends what has been
+- [07:21.440] one of the gravest and most egregious
+- [07:23.520] abuses of the American system and it
+- [07:26.080] keeps American citizenship sacred.
+- [07:29.280] >> Thank you. Okay,
+- [07:31.440] >> Mr. President.
+- [07:32.160] >> That's big stuff. That's a big deal.
+- [07:36.319] >> Um, thank you. On the Burke tourism
+- [07:38.400] executive order, um, what are the plans
+- [07:40.400] for enforcement in terms of cracking
+- [07:41.919] down on B tourism hotels this common in
+- [07:44.400] parts of California?
+- [07:45.680] >> Very big,
+- [07:46.800] >> very big, big crackdowns and this will
+- [07:49.759] give us the right to do it in a much
+- [07:51.520] more forceful manner. But they've taken
+- [07:53.759] birthright citizenship and they've made
+- [07:55.520] a joke out of it. And we're actually the
+- [07:57.759] only country of of size, I think just
+- [08:01.120] about the only country, period, that
+- [08:03.680] does birthright citizenship. I thought
+- [08:05.520] we were going to win it at the Supreme
+- [08:06.800] Court. Unfortunately, we had a bad
+- [08:08.879] decision. Very unfair decision. Our
+- [08:11.199] country suffers because of it and we're
+- [08:13.759] ending it a different way. Mr.
+- [08:15.680] >> President, President President, Mr.
+- [08:17.120] President, at the Supreme Court, John
+- [08:18.879] Sauer, the solicitor general, did not
+- [08:21.360] have an answer as to how many
+- [08:22.879] individuals take advantage of birth
+- [08:25.440] tourism. Is there a number that you can
+- [08:27.440] say right now? Hundreds of thousands.
+- [08:30.160] Okay. Hundreds of thousands. You have uh
+- [08:34.320] one man came in with a family head said
+- [08:36.800] he had 56 children. Another one came in,
+- [08:39.839] they said they had 98 children. This was
+- [08:42.800] not what it was for. This was meant for
+- [08:44.640] the babies of slaves. It was it was
+- [08:47.360] right after one week or two weeks after
+- [08:49.279] the civil war ended. This wasn't for
+- [08:52.480] wealthy multi-millionaires,
+- [08:54.640] billionaires coming in and uh bringing
+- [08:58.399] 15, 20, 30 children along with them.
+- [09:01.120] It's become a big business and we're
+- [09:03.200] ending that business. Please,
+- [09:04.320] >> what makes you confident? What makes you
+- [09:05.680] confident, Mr. President, that this will
+- [09:07.120] pass constitutional?
+- [09:08.320] >> I think it will. I think in fact, I
+- [09:10.720] asked a very talented person named Will
+- [09:13.279] Sharf who's standing right behind me.
+- [09:16.000] And do you want to discuss that? Will
+- [09:17.440] you felt pretty surely strongly about
+- [09:19.920] it?
+- [09:20.399] >> The law is absolutely clear. What we're
+- [09:22.080] talking about, as Steven said, with
+- [09:23.440] respect to birth tourism, something that
+- [09:25.200] used to happen incidentally where
+- [09:26.800] somebody who happened to be on vacation
+- [09:28.399] here, went into labor early, and had a
+- [09:30.080] baby. This was sort of a a you know, a
+- [09:33.360] relatively small problem. What we've
+- [09:35.040] seen in recent years though is uh
+- [09:37.440] organized rings at times criminal rings
+- [09:40.160] setting up a system whereby tens,
+- [09:43.040] hundreds, thousands, tens of thousands
+- [09:44.959] of people can come to this country in an
+- [09:47.120] organized fashion and and give birth
+- [09:49.360] here purely for the the sake of
+- [09:51.120] obtaining birthright citizenship. This
+- [09:53.279] order takes a number of different
+- [09:54.640] actions intended to combat those sorts
+- [09:56.880] of organized practices. uh we look very
+- [09:59.440] heavily at denying visas uh to people
+- [10:02.000] that we have reason to believe are
+- [10:04.080] coming here for that purpose. Visas both
+- [10:06.320] for uh puditive parents but also for the
+- [10:09.200] people organizing these rings. Uh
+- [10:11.200] there's also obviously a law enforcement
+- [10:13.120] component. Uh we'll have a full fact
+- [10:14.880] sheet released on this soon. But what
+- [10:16.480] we're doing is taking uh legally
+- [10:19.600] validated means that are clearly within
+- [10:21.760] our disposal and targeting them square
+- [10:24.320] on uh to this birth tourism industry. Uh
+- [10:27.200] there's absolutely nothing in here that
+- [10:28.800] runs a foul of any of the Supreme
+- [10:30.240] Court's opinions on the subject. This is
+- [10:32.399] frankly it's action that's overdue. And
+- [10:34.560] I'm thankful that President Trump is
+- [10:36.079] finally taking decisive action to combat
+- [10:38.560] this this issue of birth tourism now
+- [10:40.720] that it's been queued up in the way that
+- [10:42.240] it has uh as a result of the Supreme
+- [10:44.399] Court's opinion.
+- [10:45.440] >> This should have been done a long time
+- [10:47.120] ago. This should have happened years
+- [10:49.120] ago, but we're taking care of it now.
+- [10:51.040] Please,
+- [10:51.440] >> Amy, can you help us understand how you
+- [10:53.440] distinguish between a tourist and a
+- [10:56.000] birth tourist?
+- [10:57.040] >> Well, I'll let you discuss it, please.
+- [10:58.880] >> Yes, happy to. And so, by the way,
+- [11:00.320] that's an excellent presentation.
+- [11:01.440] >> Thank you, Stephen.
+- [11:02.320] >> The for Yes. For those of you who want
+- [11:04.399] to do your uh your research on this.
+- [11:07.200] Section 215A of the Immigration
+- [11:09.600] Nationality Act gives the president this
+- [11:11.760] authority. 215A of the Immigration
+- [11:14.320] Nationality Act, very rarely used,
+- [11:16.560] probably one of the strongest laws in
+- [11:18.079] the entire federal code, gives him this
+- [11:20.079] power. That's not the only, but it's the
+- [11:21.680] main statutory authority that's being
+- [11:23.120] used in this order. So birth tourism is
+- [11:26.480] by definition a fraud on the American
+- [11:29.600] system on the American taxpayer on the
+- [11:31.760] American visa. If you're coming here and
+- [11:34.399] again your state of purpose is that
+- [11:35.760] you're a tourist, then by definition you
+- [11:38.560] are here to come for a few weeks, look
+- [11:40.720] at what we have, engage in commerce, and
+- [11:42.959] leave. So if you're telling a concert
+- [11:44.800] officer you're here as a tourist, but
+- [11:46.640] your true purpose and intent is to go to
+- [11:49.760] a baby mill, give birth, and try to mint
+- [11:52.240] an American citizen while you're here,
+- [11:54.160] then you're committing a fraud against
+- [11:55.680] the American government. And by
+- [11:57.440] definition, that visa can and should and
+- [11:59.440] will be now denied.
+- [12:01.120] >> Mr. President, there is a report that
+- [12:03.120] you told donors that they need to get JD
+- [12:05.440] Vance elected in 2028. Is that your
+- [12:07.920] official endorsement?
+- [12:09.440] >> No, it's uh I heard about it a little
+- [12:12.079] while ago. I think he's great, but we're
+- [12:14.560] way too early to even be thinking about
+- [12:16.560] that.
+- [12:17.839] >> Okay.
+- [12:18.320] >> And then, Mr. President, Republicans are
+- [12:20.800] arguing a lot right now about
+- [12:22.320] affordability. What is your message on
+- [12:25.279] affordability going into the midterms?
+- [12:26.880] >> Well, that's a good question, but it's
+- [12:28.639] sort of simple to answer. I inherited
+- [12:31.680] the highest prices ever. I inherited the
+- [12:34.480] worst inflation in the history of our
+- [12:36.160] country. And we have uh done an amazing
+- [12:39.839] job. And oil prices now are coming down
+- [12:42.480] very rapidly. If you look at what's
+- [12:44.160] going on, it's down to 75.
+- [12:46.959] When I started the very important
+- [12:50.079] excursion into the Islamic Republic of
+- [12:53.440] Iran, it was a very important excursion
+- [12:55.440] because they can't have a nuclear
+- [12:56.639] weapon. Otherwise, the whole world would
+- [12:59.360] get blown up. We're not going to let
+- [13:00.639] that happen. Not only us, not only the
+- [13:03.360] Middle East, the whole world would have
+- [13:04.639] been, it would have been catastrophic.
+- [13:06.560] We had no choice. We had oil down to
+- [13:09.200] less than two in many places like Iowa.
+- [13:11.839] Oil was down to gasoline was down at
+- [13:14.959] numbers that people hadn't seen in
+- [13:16.560] years. $185, $1.95 cents. So it passed
+- [13:20.240] Tuesday. I was in Iowa uh at a stop and
+- [13:24.320] we had 195 another one 185 a gallon. And
+- [13:29.920] we'll see those days pretty soon again
+- [13:32.000] based on everything I see. as soon as
+- [13:34.079] the war ends and uh I think it's gonna
+- [13:37.120] end pretty soon. I don't think they can
+- [13:39.760] go much longer. Yeah, please.
+- [13:41.279] >> Has a deal been reached to reopen the
+- [13:43.279] straight of
+- [13:44.480] >> Well, I don't want to say it has been.
+- [13:46.000] It's sort of open right now. You know,
+- [13:48.399] we have a thing called the blockade
+- [13:50.079] headed up by the US Navy and we control
+- [13:52.880] it and uh now we control it, but they
+- [13:56.000] can always shoot something. They always
+- [13:57.519] have something or drop a mine. And if
+- [13:59.839] you have one mine sitting out there, you
+- [14:01.600] sort of mess things up because people
+- [14:03.920] don't want to take their billion-dollar
+- [14:05.279] boats and accidentally get hit by a
+- [14:07.839] mine. But uh I think we're doing very
+- [14:10.880] well. I just, you know, I'm involved in
+- [14:13.279] the negotiation. I think we're doing
+- [14:14.800] fine.
+- [14:16.000] >> Could be. It could be soon. Yeah. Mr.
+- [14:17.440] >> President, have you lobbyed any of the
+- [14:18.959] undecided Republicans who will vote
+- [14:20.800] tomorrow on Todd Blanch's nomination?
+- [14:23.120] >> Uh I will lobby if I need to. I will
+- [14:26.399] lobby very very diligently because he's
+- [14:29.279] outstanding. He should be good. I mean,
+- [14:31.120] I can't imagine he's as good as there is
+- [14:33.680] in the country. He people have such
+- [14:36.720] unbelievable respect for Todd Blanch. So
+- [14:39.120] hopefully that won't be necessary. I
+- [14:40.800] would I spoke to some people. I did it.
+- [14:43.360] Uh but uh hopefully it'll all work out
+- [14:46.399] very well for the country because you're
+- [14:48.560] not going to find better than Todd
+- [14:49.839] Blanch.
+- [14:50.240] >> Will you reach out to Senator Marowski?
+- [14:52.320] Senator Cassidy for instance.
+- [14:53.519] >> Let's see if we need anybody. I'll reach
+- [14:55.440] out to whoever I have to, but uh anybody
+- [14:59.120] voting against him would be doing a
+- [15:00.959] great disservice to the country. Please,
+- [15:02.639] >> Mr. President, the deadline for
+- [15:04.560] Representative Max Miller to um withdraw
+- [15:07.600] from his race is coming up next week. Do
+- [15:10.720] you believe he should withdraw at this
+- [15:12.240] point?
+- [15:12.480] >> Well, I'm not going to get involved in
+- [15:13.920] that. It's a very sad situation
+- [15:16.560] and uh I know Max very well, but it's
+- [15:21.279] very very sad that a situation like that
+- [15:24.079] takes place. Yeah.
+- [15:25.199] >> Do you think the DOJ should prosecute
+- [15:27.680] Dr. Fouchy?
+- [15:29.279] >> Well, you know, they prosecuted Peter
+- [15:31.120] Navaro and they prosecuted Steve Bannon,
+- [15:34.320] two very decent people, over something
+- [15:37.519] that essentially was never prosecuted
+- [15:39.600] before. and there are sort of telltale
+- [15:43.279] signs of similarity.
+- [15:45.839] And they went to jail for a number of
+- [15:49.279] months over something that they I saw
+- [15:52.480] one of the analysts said they used to
+- [15:53.839] laugh at it in the Justice Department
+- [15:55.680] when something like that was referred,
+- [15:58.639] but uh Merritt Garland prosecuted two
+- [16:01.440] very decent people and sent them to
+- [16:04.880] jail. I wasn't president. I would have
+- [16:06.959] given him a pardon in two seconds, but I
+- [16:09.440] wasn't. which was after I left. They
+- [16:11.120] waited till after I left and then they
+- [16:12.639] prosecuted these two people and they
+- [16:15.040] ought to be ashamed of themselves. So
+- [16:17.120] when you see that happen, you sort of
+- [16:18.639] say maybe he should. What he did is far
+- [16:20.800] more serious than a lot of crimes,
+- [16:23.440] frankly. But they prosecuted two people
+- [16:26.399] when nothing like that has ever taken
+- [16:28.160] place before. Mr.
+- [16:30.079] >> President, Mr. President, am on
+- [16:31.199] munitions, you uh posted overnight that
+- [16:33.759] the US has a massive amount. You denied
+- [16:36.639] that there were any shortages. There is
+- [16:39.040] a supplemental request for $21 billion
+- [16:42.320] to to restock. So, um why is that
+- [16:45.759] request still there if there's
+- [16:46.959] >> Well, because we need more all the time.
+- [16:49.120] I mean, we need more. Look, we gave
+- [16:51.040] tremendous amount to Ukraine. The Biden
+- [16:55.040] people did. And they were given free of
+- [16:57.680] charge. No, no charge. No charge.
+- [17:00.399] Billions, hundreds of billions of
+- [17:01.920] dollars. And fortunately, I built up so
+- [17:06.000] much during my term. I rebuilt the
+- [17:08.400] military and also loaded it up with a
+- [17:10.480] lot of stuff. We have certain types of
+- [17:13.280] munitions that are very powerful that we
+- [17:16.079] have unlimited virtual unlimited supply.
+- [17:18.880] We have others where it's a little bit
+- [17:20.400] tighter and we're getting them in on a
+- [17:23.600] daily basis. As you know, our defense
+- [17:26.000] companies are building more plants right
+- [17:27.600] now than at any point in history.
+- [17:29.200] They're building plants for the
+- [17:30.240] Patriots, for the tomahawks, for
+- [17:31.840] everything. But we have uh certain types
+- [17:34.960] of munitions which are very uh they may
+- [17:37.840] not be as accurate. They may not be, you
+- [17:39.760] know, they're not as elite. We have
+- [17:41.919] elite too, but we're we're watching that
+- [17:45.120] very closely. But we have certain types
+- [17:47.679] which are very powerful and very good
+- [17:51.520] and we have an unlimited supply and uh
+- [17:55.360] so we're in great shape. But with that
+- [17:57.840] being said, uh we always want more. We
+- [18:00.640] have to have more. We have other things
+- [18:02.400] maybe come up, maybe come up and maybe
+- [18:04.480] don't come up. Hopefully nothing else
+- [18:06.000] does come up, but we're in very good
+- [18:08.000] shape. We have literally massive amounts
+- [18:09.919] of ammunition. Yeah.
+- [18:12.960] Mr.
+- [18:13.120] >> President, on Ukraine, President
+- [18:14.720] Zilinski says his country desperately
+- [18:16.799] needs long range missiles or those
+- [18:19.840] Patriot missile batteries. Is that
+- [18:21.360] something that could
+- [18:22.080] >> Well, I mean, we want missiles, too. You
+- [18:24.000] know, we when Biden gave him so much,
+- [18:26.799] Biden gave $300 billion dollar worth of
+- [18:30.240] ammunition. You know, when I left this,
+- [18:32.400] it was full and he gave a lot of it
+- [18:34.640] away. Now, we're rebuilding it and we're
+- [18:36.480] using munitions that
+- [18:39.360] are very powerful, very good, but we
+- [18:42.400] wouldn't have been using them. We could
+- [18:43.600] have used something else, but these are
+- [18:46.400] uh a little bit older type, equally as
+- [18:49.840] effective, and uh we it's things that we
+- [18:53.440] so much. Plus, we have supplies of uh
+- [18:56.480] munitions all over the world that if we
+- [18:58.640] ever needed them, we'd take that. We're
+- [19:01.120] supplied all over the world. But uh we
+- [19:03.840] have we're in very very good shape.
+- [19:06.160] >> Russia seems to have increased their
+- [19:08.080] attacks on civilian areas.
+- [19:10.480] >> That must be a concern.
+- [19:12.160] >> Well, it's look, we're not involved from
+- [19:14.559] the standpoint it it's uh we're
+- [19:16.799] separated by an ocean, but I hate to see
+- [19:19.360] 25,000 young people a month get killed.
+- [19:22.559] And that's what's happening. Between
+- [19:23.919] Russia and Ukraine, they're losing on
+- [19:26.080] average 25,000, mostly soldiers a month.
+- [19:30.480] And you know, we're working on it and I
+- [19:33.360] think we're making progress. But it's a
+- [19:36.000] violent, very violent war. There's a lot
+- [19:37.919] of hatred in that war. A lot of hatred
+- [19:39.679] between the two leaders. I settled eight
+- [19:42.240] wars. I thought this would be maybe one
+- [19:44.080] of the easier ones and it turned out to
+- [19:45.840] be the most difficult, but progress is
+- [19:48.400] being made. Thank you very much,
+- [19:49.840] everybody. Thank you. Thank you. Thank
+- [19:52.559] you guys.
+- [19:56.320] Thank you guys. Thank you guys. Keep
+- [19:58.240] going this way guys. Thank you.
+- [20:05.360] Thanks guys.
