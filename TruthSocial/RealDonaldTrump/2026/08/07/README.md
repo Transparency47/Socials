@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-08-07
 
-- Posts: 26
+- Posts: 27
 
+- [22:55 UTC - Two Judges, one appointed by Barack Hussein Obama, the other by Sleepy Joe Biden, said in ...](117056688715303369/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117056688715303369
+  - Two Judges, one appointed by Barack Hussein Obama, the other by Sleepy Joe Biden, said in a ruling on the desperately needed SECURE Ballroom/Military Complex, including a major Dro...
 - [20:52 UTC - THE PROTECT COLLEGE SPORTS ACT is a great Bill, and the Senate will hopefully stay in D.C....](117056206935468126/)
   - Source: https://truthsocial.com/@realDonaldTrump/117056206935468126
   - THE PROTECT COLLEGE SPORTS ACT is a great Bill, and the Senate will hopefully stay in D.C. until it passes. Without this Bill, millions of young Athletes will be hurt, programs wil...
