@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-08-07
 
-- Posts: 21
+- Posts: 23
 
+- [15:43 UTC - Last night was another good night for Endorsements, 8-1, and the 1 was a person who I rema...](117054989318193595/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117054989318193595
+  - Last night was another good night for Endorsements, 8-1, and the 1 was a person who I remained loyal to even though he had virtually no chance of winning, and was running against a...
+- [15:21 UTC - Congratulations to our Great Senator from Tennessee, Marsha Blackburn, who had a tremendou...](117054903519490373/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117054903519490373
+  - Congratulations to our Great Senator from Tennessee, Marsha Blackburn, who had a tremendous WIN for Governor last night, against a very strong and talented opponent, John Rose. Mar...
 - [13:36 UTC - A must read! Thank you to James Jay Carafano! Donald Trump Won The Iran War: [https://www....](117054491639962487/)
   - Source: https://truthsocial.com/@realDonaldTrump/117054491639962487
   - A must read! Thank you to James Jay Carafano! Donald Trump Won The Iran War: [https://www. 19fortyfive.com/2026/08/donald -trump-won-the-iran-war/](https://www.19fortyfive.com/2026...
