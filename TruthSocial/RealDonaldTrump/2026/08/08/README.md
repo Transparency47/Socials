@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-08-08
 
-- Posts: 25
+- Posts: 27
 
+- [19:58 UTC - RT: https://truthsocial.com/users/mrddmia/statuses/117060035123254425 Very true! President...](117061655895656555/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117061655895656555
+  - RT: https://truthsocial.com/users/mrddmia/statuses/117060035123254425 Very true! President DJT
+- [19:52 UTC - Great Poll Numbers. Thank You!!! President DJT](117061633436594617/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117061633436594617
+  - Great Poll Numbers. Thank You!!! President DJT
 - [19:51 UTC - Cash is king: Washington Republicans bankroll midterms as National Democrat coffers are in...](117061628394581449/)
   - Source: https://truthsocial.com/@realDonaldTrump/117061628394581449
   - Cash is king: Washington Republicans bankroll midterms as National Democrat coffers are in the red: [https:// justthenews.com/politics-polic y/elections/cash-king-republicans-bankr...
