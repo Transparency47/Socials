@@ -1,7 +1,28 @@
 # TruthSocial / RealDonaldTrump / 2026-08-08
 
-- Posts: 14
+- Posts: 21
 
+- [11:10 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117059577812036128](117059578415762701/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117059578415762701
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117059577812036128
+- [11:10 UTC - Truth Social post 117059577812036128](117059577812036128/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117059577812036128
+  - _No text content captured._
+- [11:09 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)](117059577111765428/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117059577111765428
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+- [11:09 UTC - Truth Social post 117059576602896182](117059576602896182/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117059576602896182
+  - _No text content captured._
+- [11:09 UTC - Truth Social post 117059576070730051](117059576070730051/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117059576070730051
+  - _No text content captured._
+- [11:09 UTC - Truth Social post 117059574061763276](117059574061763276/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117059574061763276
+  - _No text content captured._
+- [11:07 UTC - Eric Schmitt is a STAR!!! President DJT](117059569406743326/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117059569406743326
+  - Eric Schmitt is a STAR!!! President DJT
 - [02:53 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117057626226861348](117057627008755167/)
   - Source: https://truthsocial.com/@realDonaldTrump/117057627008755167
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117057626226861348
