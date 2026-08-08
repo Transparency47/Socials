@@ -1,0 +1,976 @@
+<!-- source: https://www.youtube.com/watch?v=V6VgPfBK8gQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: V6VgPfBK8gQ -->
+<!-- date_published: 2026-08-07T19:47:24+00:00 -->
+<!-- date_accessed: 2026-08-08T09:09:32.362832+00:00 -->
+
+# Transcript: President Trump Hosts a Roundtable on American Mining
+
+- [00:08.515] [music]
+- [00:14.000] Ladies and gentlemen, the President of
+- [00:15.920] the United States, Donald J. Trump.
+- [00:22.925] [music]
+- [00:29.439] Heat. [music]
+- [00:34.715] [music]
+- [00:41.265] [music]
+- [00:45.760] Heat. [music]
+- [00:53.055] >> [music]
+- [01:03.920] >> That's a very nice song. I love that
+- [01:06.159] song because that means you won
+- [01:08.320] basically.
+- [01:10.479] If we didn't, we wouldn't hear that song
+- [01:12.159] very much. But I want to thank
+- [01:14.159] everybody. Special people. People that
+- [01:17.439] built our country are here. And you
+- [01:20.799] really haven't. I was just looking at my
+- [01:24.159] notes and I could do this one without
+- [01:26.159] any notes because there's great love for
+- [01:28.159] what you do and I think you haven't been
+- [01:30.720] treated well for many years. But you're
+- [01:33.439] making up for it now. You're really
+- [01:35.439] making up for it now. So, it's an honor
+- [01:37.920] and I'm delighted to be here at the
+- [01:40.320] Department of State to announce some of
+- [01:41.920] the largest ever investments in American
+- [01:44.960] mining. Great. a great thing mining is.
+- [01:49.840] We're putting our miners back to work
+- [01:52.880] and we're reclaiming America's rightful
+- [01:54.880] place as the minerals superpower of the
+- [01:58.000] world, which is what we are. People just
+- [01:59.759] didn't know that for a while. I want to
+- [02:02.000] thank our great Secretary of State,
+- [02:03.840] Marco Rubio, for hosting us. It's
+- [02:06.159] beautiful building, but you know, I I
+- [02:08.239] look at the president's allowed to
+- [02:09.920] remove things from any building.
+- [02:11.656] [laughter]
+- [02:13.680] And I'm liking the chandeliers. I really
+- [02:16.239] I like those Corinthian columns, but I
+- [02:18.400] don't know. Cutting them out would be
+- [02:19.840] not good. Those are beautiful columns,
+- [02:23.520] but uh I'm allowed to do it. Every once
+- [02:25.599] in a while, I'll come in here and grab a
+- [02:27.280] painting and put it at the Oval Office,
+- [02:29.040] right? But not too much. But uh I want
+- [02:32.800] to thank Marco. I want to thank
+- [02:34.560] Secretary of Interior Doug Bergen, who's
+- [02:36.400] done a fantastic job. Secretary of
+- [02:39.040] Commerce Howard Lutnik likewise and as
+- [02:42.319] well as Executive Director of the
+- [02:44.000] National Energy Dominance Council Jared
+- [02:47.599] Aeen. Thank you, Jared. And thank you
+- [02:50.480] all. I love that. The Dominance Council.
+- [02:52.720] I've never heard that one before. That's
+- [02:54.720] a hell of a name. Where's Jared? Where's
+- [02:57.360] Jared?
+- [02:57.840] >> Right there.
+- [02:58.959] >> Hi Jared. That's uh I like that. Did you
+- [03:01.200] make up that? Did you come up with that?
+- [03:02.959] >> That's all you, sir. You came up with
+- [03:04.400] that. [laughter]
+- [03:06.400] >> I think it's pretty good. Thanks as well
+- [03:08.720] to the leaders of many of America's
+- [03:10.560] great mining companies who are here and
+- [03:12.959] educational institutions are also
+- [03:15.040] joining us today.
+- [03:17.120] 250 years ago, America won our political
+- [03:19.519] independence and the Revolutionary War.
+- [03:22.560] In my first term, we secured our energy
+- [03:25.360] independence. And now in my second term,
+- [03:27.920] we're achieving our economic
+- [03:29.360] independence, ensuring that America is
+- [03:31.760] never again reliant on hostile foreign
+- [03:34.560] nations for the resources our country
+- [03:37.200] needs to dominate in the future. And we
+- [03:40.560] have plenty of those resources. Critical
+- [03:42.400] minerals are the raw materials of
+- [03:45.040] American strength that power everything
+- [03:47.200] from advanced weaponry to automobiles.
+- [03:50.000] And we want these essential products to
+- [03:52.159] be mined, refined, and made right here
+- [03:54.720] in the USA with the American skill and
+- [03:58.560] American hands. We have better skill. We
+- [04:01.040] have better hands than anybody in the
+- [04:02.560] world. For decades, politicians let
+- [04:05.439] other countries steal our mines and
+- [04:08.159] mining jobs. They close up mines. They'd
+- [04:11.599] buy a mine and close it because it was
+- [04:14.400] good for them and put American producers
+- [04:16.400] out of business. The United States lost
+- [04:18.400] more than 3,400 mines over. Can you
+- [04:22.000] imagine 3,400?
+- [04:24.479] I thought they're going to say miners or
+- [04:26.240] jobs. It's mines. 3,400
+- [04:30.479] mines over the past three decades.
+- [04:32.880] That's sad. But now they're coming back
+- [04:35.040] and they're coming back fast. There many
+- [04:37.120] of those mines are being reopened and a
+- [04:39.199] lot of new mines are being built. Over
+- [04:41.440] the past 18 months, our administration
+- [04:43.360] has signed or approved more than 160
+- [04:46.800] minerals deals worth nearly $40 billion.
+- [04:50.000] And today, the United States is opening
+- [04:51.919] up new mines at the fastest pace since
+- [04:54.160] the 1950s. There's never nobody's seen
+- [04:57.040] anything like it. And that goes for auto
+- [04:59.199] plants, too, and AI and so many other
+- [05:01.680] kinds of plants. We have nine. Think of
+- [05:04.320] this. We have in a short period of time,
+- [05:07.840] a year and a half, and it's uh the
+- [05:10.320] numbers are for the first 12 months
+- [05:11.840] actually, but figure a year and a half,
+- [05:14.400] we have 19.2 trillion dollars being
+- [05:17.120] invested. Uh the previous administration
+- [05:19.919] had much less than 1 trillion in four
+- [05:22.080] years. We have 19.2 in actually 12
+- [05:25.360] months, but we'll add something to it.
+- [05:27.759] So, it's now going to be over 20
+- [05:30.000] trillion dollars. And by the way, no
+- [05:32.400] country ever in history has done
+- [05:33.840] anywhere near that number. We're five to
+- [05:36.320] six times higher than uh certain of our
+- [05:39.520] competitors from very successful
+- [05:42.080] competitors, but we're much higher.
+- [05:43.759] Nobody's seen what's happening today in
+- [05:45.440] our country. Nobody has seen anything
+- [05:47.600] like it. And uh hopefully you'll see it
+- [05:50.160] again, but only for us. I think it's
+- [05:52.320] going to be hard to match. However,
+- [05:53.759] today the United States is opening new
+- [05:56.400] mines at the fastest pace. So, we opened
+- [05:58.479] the first American rare earth mine in
+- [06:01.280] more than 70 years. What's that all
+- [06:03.199] about, Marco? We've announced the
+- [06:05.759] construction of the first new aluminum
+- [06:07.520] smelter since 1980. It's going to be a
+- [06:10.639] big one. I mean, if it's the same one,
+- [06:13.199] building a massive, beautiful job
+- [06:16.639] producing smelter in uh Oklahoma. I love
+- [06:20.800] Oklahoma because they have 77 counties.
+- [06:23.520] I won all 77 three times, right? you
+- [06:26.479] know, oh, he's looking, right? Nobody's,
+- [06:29.039] you know, who second was Ronald Reagan,
+- [06:30.960] 56. That's pretty good, right? I like
+- [06:33.919] Oklahoma. Uh, we authorized deep sea
+- [06:37.120] mining to unlock vast untapped resources
+- [06:39.680] off our coast. And we're rebuilding the
+- [06:42.880] National Defense Stockpile and investing
+- [06:45.280] more than 12 billion dollars in a brand
+- [06:47.680] new strategic mineral reserve. And we're
+- [06:50.400] protecting American workers with
+- [06:52.160] historic tariffs on foreign copper,
+- [06:54.160] aluminum, steel so that our people are
+- [06:56.880] protected. And the tariffs are what uh
+- [06:59.759] what made this so successful, the proper
+- [07:01.759] use of tariffs. But they're really what
+- [07:04.080] made this so successful. You probably
+- [07:06.400] heard me during my campaign. I used to
+- [07:08.160] say the word tariff is my favorite word
+- [07:10.800] and the fake news. See them back there?
+- [07:12.479] They're all back there. And they'd say,
+- [07:14.880] "What a terrible thing to say. What
+- [07:16.720] about God, wife, country, love? I said,
+- [07:21.199] it's all right. So, I made it my fifth
+- [07:22.720] favorite word. Now I have no problem. I
+- [07:25.440] would have hit me hard when I said
+- [07:26.800] tariff was my all-time favorite word. It
+- [07:29.520] didn't play well, but it's it's a solid
+- [07:32.160] number five. And now I'm okay. But
+- [07:34.880] American miners have never had a greater
+- [07:36.960] champion in the White House than
+- [07:38.880] President Donald Trump. And before I
+- [07:41.680] took office federal mining permits took
+- [07:44.160] three, four, or even five years. Now
+- [07:46.319] they take as little as 25 days. So we
+- [07:49.520] went from 5 years for approvals to get
+- [07:52.639] them and nobody was doing it anyway.
+- [07:54.800] Took too long and just wasn't working.
+- [07:57.360] Uh so now we go from 5 years to 25 days
+- [08:00.080] for approval. Under the great big
+- [08:02.240] beautiful bill, we secured an
+- [08:03.680] unprecedented $100 billion to underwrite
+- [08:06.639] critical investments in our mineral
+- [08:09.039] supply. And for the first time ever, we
+- [08:11.599] are even making direct equity
+- [08:13.840] investments in critical mineral mineral
+- [08:16.400] production. Last July, the Department of
+- [08:19.039] War took a $400 million stake in MP
+- [08:22.720] materials, which is already worth nearly
+- [08:25.680] $1.2 billion. It's gone up greatly in
+- [08:28.879] value. I did one of those two, but not
+- [08:31.280] quite in the same business. Intel.
+- [08:34.000] We
+- [08:35.519] had a problem with Intel and we settled
+- [08:39.360] the problem. They gave us 10% of the
+- [08:42.479] company that was worth 12 billion. And
+- [08:45.279] since we had the company, the you saw,
+- [08:47.760] you probably been watching the stock has
+- [08:49.920] gone up many, many times, just about
+- [08:51.600] number one. And we made $82 billion. Do
+- [08:54.959] I get credit for that? No. Did anybody
+- [08:57.440] say great job? And by the way, it's for
+- [08:59.360] the country. It's not for me. It's for
+- [09:00.720] the country. I have to be very plain
+- [09:02.959] about that. But no, we've made about 80
+- [09:06.080] Howard is pretty close to 80 billion a
+- [09:08.640] profit of $80 billion by helping the
+- [09:12.240] company out. We're doing it a lot.
+- [09:13.760] Actually, we're doing it a lot. Today,
+- [09:15.839] we're taking another historic action
+- [09:17.600] toward the future of American mining.
+- [09:19.440] For years, mining schools and colleges
+- [09:21.600] that are essential to training the
+- [09:23.760] future leaders of this industry have
+- [09:25.600] been absolutely and sadly disappearing.
+- [09:28.800] accredited mining programs in the United
+- [09:31.519] States now graduate less than 170 mining
+- [09:34.720] engineers each year while China
+- [09:36.959] graduates more than 3,000 and half of
+- [09:39.200] our current mining workforce is set to
+- [09:41.680] retire within the next three years. Wow.
+- [09:45.120] That's why my administration is making
+- [09:47.120] an unprecedented financial commitment to
+- [09:50.080] our nation's mining schools. It's going
+- [09:52.560] to keep us nice and young and vibrant.
+- [09:55.920] The schools came to us seeking $10
+- [09:58.240] million per year in funding. Instead,
+- [10:00.800] I'm thrilled to announce that we're
+- [10:02.160] delivering $100 million to train the
+- [10:04.399] next generation of American miners. And
+- [10:07.680] you have a lot of a lot of you are in
+- [10:09.120] the room right now.
+- [10:11.777] [applause]
+- [10:20.946] [applause] And you know, I'm not doing
+- [10:22.160] that because I'm a nice person. And I'm
+- [10:23.839] doing that because it's great for the
+- [10:25.279] country. It's great for the country and
+- [10:27.279] it also helps a lot of people and they
+- [10:29.600] want to mine. You know, I've seen it and
+- [10:32.399] we had a little campaign against
+- [10:34.240] somebody named Hillary Clinton and she
+- [10:36.880] wanted the miners of West Virginia to
+- [10:39.360] learn how to make chips, little tiny
+- [10:40.959] chips with their big strong hands. And
+- [10:43.600] they were not uh I won by 55 points.
+- [10:46.640] They were not thrilled. They didn't want
+- [10:48.160] to be doing they wanted to be in the
+- [10:50.079] mines. That's what they want to do. They
+- [10:51.680] want they don't want to do anything
+- [10:53.040] else. I remember that. Uh it was so
+- [10:56.320] unbelievable. It was very very good for
+- [10:58.880] me. I tell you what, she didn't get
+- [11:01.200] that. We did very well with that kind of
+- [11:03.600] thinking. But we're also making major
+- [11:06.000] grants to the Colorado School of Minds,
+- [11:08.320] the South Dakota School of Minds, and
+- [11:10.800] the John's Hopkins RTX Partnership. And
+- [11:14.000] together, those grants are worth $81
+- [11:15.839] million. It's going to train people,
+- [11:17.600] work with people, and we're going to put
+- [11:19.839] you right back on the front pages.
+- [11:21.519] That's what you have to be. In addition,
+- [11:23.839] today my administration is announcing a
+- [11:25.920] series of historic mining projects worth
+- [11:28.560] $3 billion, which will create thousands
+- [11:30.800] of jobs and promote our economic
+- [11:33.440] stability and security. The Department
+- [11:36.560] of War's Office of Strategic Capital is
+- [11:39.440] signing a massive $ 1.4 4 billion loan
+- [11:42.079] agreement with CELAN Nano Technologies
+- [11:45.440] to build a next generation battery
+- [11:48.240] facility in Washington State using what
+- [11:51.120] we have right under our feet. The Export
+- [11:54.399] Import Bank is working to provide more
+- [11:56.480] than $1 billion to finance the Ivano
+- [11:59.360] Electrics Santa Cruz copper project in
+- [12:02.240] Arizona, one of the biggest anywhere in
+- [12:04.000] the world. The XM Bank is launching the
+- [12:07.760] Alabama graphite project, a $25 million
+- [12:10.560] investment, as well as the Fort Katy
+- [12:13.600] integrated boron facility in Southern
+- [12:17.680] California.
+- [12:19.279] And it's going to be something. Uh, we
+- [12:21.760] broke out. We broke through the
+- [12:23.360] environmental disasters. You had
+- [12:26.079] environmentals people, you look, I'm an
+- [12:29.120] environmental person, believe it or not,
+- [12:31.279] but you had people that were just
+- [12:32.639] stopping it. They were using the
+- [12:33.920] environment to stop all of these things.
+- [12:36.480] The Department of War is investing $400
+- [12:38.639] million to expand production of
+- [12:41.680] Scandium, one of the world's most
+- [12:43.600] valuable aerospace and defense materials
+- [12:46.320] in Australia. The Department of War is
+- [12:49.040] also investing $150 million with Nyron
+- [12:52.639] Magnetics in Min Minnesota. Minnesota.
+- [12:56.240] Whoa. What the hell happened to
+- [12:58.240] Minnesota?
+- [13:00.720] The governor is totally corrupt, but we
+- [13:02.560] won't talk about that. Now, that's for
+- [13:04.079] another day. Corrupt and incompetent. A
+- [13:06.320] bad combination to build rare earth
+- [13:08.880] magnets. Magnets. You got to go with
+- [13:10.800] magnets. That's a good one. Everybody
+- [13:13.120] should go for magnets. Really badly
+- [13:15.440] needed. And Global Advanced Metals will
+- [13:17.920] build a major new factory in
+- [13:19.920] southeastern Pennsylvania to support
+- [13:21.920] cuttingedge defense and aerospace
+- [13:24.480] systems. Together, we're reawakening the
+- [13:27.519] spirit of the gold rush. the prospectors
+- [13:30.160] and the great pioneers of this country,
+- [13:32.240] people who built the United States of
+- [13:34.720] America. And very simply, we're making
+- [13:36.560] mining great again. And the United
+- [13:39.200] States is doing better than it's ever
+- [13:40.800] done, maybe ever done. So, I just want
+- [13:43.360] to thank you. And I'll now ask Secretary
+- [13:45.600] Rubio to say a few words, and then we'll
+- [13:47.760] hear from some of the wonderful people
+- [13:50.880] we have up here. Secretary Bergam in
+- [13:52.880] this order. Secretary Lutnik, executive
+- [13:55.440] director of the University of Arizona
+- [13:57.120] School of Mining and Engineering and
+- [13:59.120] Minerals. Craig Luxbacher, president of
+- [14:03.040] Colorado School of Mines. Paul Johnson,
+- [14:05.519] CEO of MP Materials. Jim Latinski, who I
+- [14:09.600] know your brother. He's a nice guy, by
+- [14:11.120] the way. I assume it's your brother.
+- [14:12.480] Where is right?
+- [14:14.560] >> That's right. Andy.
+- [14:16.800] >> Yes.
+- [14:17.199] >> Your brother.
+- [14:17.839] >> Yes.
+- [14:18.240] >> Okay. Well, he's a smart guy. And so you
+- [14:20.560] and president of Resolution Copper,
+- [14:23.279] Vicky Py. So, uh, we'll go. I didn't
+- [14:26.800] know I was going to have so many people.
+- [14:28.000] I'll be here all day. If you could go
+- [14:30.079] quickly, I would appreciate it because
+- [14:31.600] we have a war to prosecute. Okay, that's
+- [14:34.160] my excuse for getting out of here a
+- [14:35.760] little bit early. But I've done my thing
+- [14:37.680] only in the sense that we're spending
+- [14:39.920] hundreds of millions of dollars and even
+- [14:42.399] billions of dollars in bringing your
+- [14:44.720] industry back. And we need your
+- [14:46.160] industry. We're not doing you favors.
+- [14:47.680] We're doing oursel favors. We need your
+- [14:49.839] industry. People wouldn't talk about it,
+- [14:52.240] but we do indeed. Marco, please.
+- [14:54.160] >> Thank you, Mr. President. Thank you for
+- [14:55.440] coming to the State Department. Uh, we
+- [14:58.240] like this room a lot, too. And
+- [14:59.440] obviously, uh, don't look back. There's
+- [15:00.880] a painting up here. Just
+- [15:03.839] uh
+- [15:04.000] >> Oh, [laughter] that's a good one.
+- [15:08.079] >> I'm taking it with me.
+- [15:10.320] >> I shouldn't have said anything. But, uh,
+- [15:11.839] anyway, Mr. President, thank you for
+- [15:13.199] being here. Thank you for your
+- [15:14.079] leadership on this topic. It's uh it's a
+- [15:16.320] challenge we face in this domain that
+- [15:18.160] actually goes to the very survival of
+- [15:19.600] the country and thank you for giving it
+- [15:21.440] a priority in your presidency. This has
+- [15:22.959] been going on for 25 years. We've been
+- [15:24.560] walking away from the importance of this
+- [15:26.160] and now we're trying to make up for 25
+- [15:28.079] or 30 years of mistakes under your
+- [15:29.839] presidency. So we we appreciate your
+- [15:31.760] presidency valuing this when other
+- [15:34.000] presidents did not. The group of people
+- [15:35.440] that are here today represent the whole
+- [15:37.120] nation effort that's involved in this.
+- [15:38.560] It's because at the core of this is our
+- [15:40.639] industrial strength but also our
+- [15:42.480] national sovereignty that we never
+- [15:44.000] depend on other countries for things we
+- [15:45.760] need to prosper and to defend ourselves
+- [15:47.519] as a people. And so you'll see here
+- [15:49.199] today as you've already pointed out we
+- [15:50.480] have leaders not just from government
+- [15:51.680] but from universities from private
+- [15:53.279] industry from students who are going to
+- [15:55.120] be the future of this industry. They
+- [15:57.600] wanted to briefly very briefly touch on
+- [15:59.519] what the state department's done. You
+- [16:00.800] know earlier this year we had a critical
+- [16:02.560] minerals ministerial. We brought in
+- [16:04.240] countries from all over the world uh to
+- [16:06.240] and announced the creation of something
+- [16:07.680] called Forge which is an international
+- [16:09.519] partnership chaired by us in the United
+- [16:11.680] States to leverage public finance and
+- [16:13.680] coordinate diplomatic support to secure
+- [16:15.440] these supply chains around the world. At
+- [16:18.240] that meeting we signed 11 new critical
+- [16:21.279] minerals agreements with countries
+- [16:22.720] adding to the ones that already existed
+- [16:24.320] today. Under your administration we've
+- [16:25.839] already signed 27 critical mineral
+- [16:28.160] agreements with other countries. Um, we
+- [16:30.639] also under the leadership of someone who
+- [16:32.560] needs to be recognized, our under
+- [16:33.920] secretary, Jacob Hellberg. I don't know
+- [16:35.360] if Jacob is here, but uh, Jacob's been
+- [16:37.759] phenomenal. He came up with something
+- [16:39.040] called Paxilica, and it's an initiative
+- [16:40.720] that leads our efforts to partner with
+- [16:42.720] the private sector and and invest in
+- [16:44.720] mining and refining and in processing as
+- [16:46.639] well as the enduse applications of that.
+- [16:48.720] There's still a lot of work left to do,
+- [16:50.079] but we at the State Department are
+- [16:51.440] willing to utilize uh our unmatched
+- [16:53.759] global presence, our presence all over
+- [16:55.759] the world to ensure that we're working
+- [16:57.279] on this and and we're committed to
+- [16:58.959] working with industry, with
+- [17:00.320] universities, with all the elements of
+- [17:01.920] our national power to bring this about.
+- [17:04.240] And uh so, thank you, Mr. President, for
+- [17:05.919] prioritizing this. And I think we all
+- [17:07.839] look forward to working not just
+- [17:09.600] nationally but with our allies around
+- [17:11.199] the world to ensure that we have supply
+- [17:13.360] chains that are diversified and reliable
+- [17:15.600] and no country can ever hold this over
+- [17:17.360] our head and threaten us in the future.
+- [17:19.360] Thank you.
+- [17:19.839] >> Thank you Marco very much. Thank you
+- [17:22.000] doing a fantastic job too. I will tell
+- [17:24.000] you that Doug. Uh well sir, today's a
+- [17:26.880] day of gratitude and we're grateful
+- [17:28.799] first of all to have a president that
+- [17:30.320] understands the importance of this of
+- [17:32.480] this industry and and understand that
+- [17:34.559] our future depends on restoring American
+- [17:36.880] mining. Uh and I'm also grateful that
+- [17:38.799] we've got students, educators, and
+- [17:40.559] industry leaders together in this room
+- [17:42.320] for the first time we think in the
+- [17:44.080] history that any president has called
+- [17:45.679] this group together. Uh so again, thank
+- [17:47.840] you all for being here for this historic
+- [17:49.600] day. Uh it's true the president has
+- [17:51.679] supported American mining more than any
+- [17:53.360] other president in history. Uh and it's
+- [17:55.600] true that with the announcements made
+- [17:57.039] today uh he's now supported uh mining
+- [18:00.080] education more than any other president
+- [18:02.000] in history. Uh and we owe you a lot for
+- [18:04.640] that, Mr. President. Uh we also when you
+- [18:06.960] first took office, you declared an
+- [18:08.400] energy emergency which included the
+- [18:10.240] critical minerals as part of that. You
+- [18:11.760] created the National Energy Dominance
+- [18:13.280] Council. We've got some of those
+- [18:15.360] partners that are right here. And
+- [18:16.559] whether it's Marco with the 27 bilateral
+- [18:19.520] agreements, you know, going to 51
+- [18:21.280] countries, whether it's Howard with the
+- [18:23.360] uh trade deals and the investments that
+- [18:25.120] are being made, then the National
+- [18:26.640] Security Council, David CPPley and
+- [18:28.880] everybody working on supply chain, Jared
+- [18:30.720] Aen and the NEDC uh doing all of this
+- [18:33.280] work. It's a whole of government
+- [18:34.720] approach. You understood that we had to
+- [18:36.480] turn the ship around. It took every
+- [18:38.160] agency, every working together, and your
+- [18:40.400] leadership has driven that across
+- [18:42.240] interior. It's included the US Geologic
+- [18:44.160] Survey. got Andrew Travnik here in the
+- [18:46.160] front row who's uh the assistant
+- [18:48.080] secretary for uh water and science which
+- [18:50.640] include that but getting getting these
+- [18:52.320] things like geologic survey back to
+- [18:53.919] their core mission which is mapping uh
+- [18:56.720] the critical minerals list comes out of
+- [18:58.480] the US geologic survey we've expanded
+- [19:00.320] that to 60 critical minerals and for the
+- [19:02.720] first time we've put coal back on that
+- [19:04.880] list because that's also such an
+- [19:06.320] important part of mining and as you know
+- [19:08.160] President Trump everybody in your
+- [19:09.520] administration is slashing red tape
+- [19:11.440] accelerating permitting but permits
+- [19:13.520] don't build mine people do and and
+- [19:16.320] that's why the investments that are made
+- [19:18.320] today uh related to reimagining uh the
+- [19:21.679] workforce and supporting the these uh
+- [19:24.240] institutions are so great. America it's
+- [19:26.480] estimated graduates more than 30,000
+- [19:28.559] lawyers every year, but you heard the
+- [19:30.000] president say less than 200 mining and
+- [19:32.480] metallurgical uh degree students. That
+- [19:35.440] has to change with a hundred million
+- [19:37.440] historic investment and the other
+- [19:38.880] investments announced today. uh the
+- [19:40.720] anticipation and the challenge to those
+- [19:42.799] 14 schools that are all here today is to
+- [19:44.720] double or triple the number of graduates
+- [19:46.880] in the next uh two years and and again
+- [19:50.640] uh President Trump even though that
+- [19:53.200] those are all amazing things the most
+- [19:54.960] important thing that you've done is
+- [19:56.080] you've restored America's belief that we
+- [19:58.240] can do big bold hard things again. Uh
+- [20:01.200] you when you were campaigning you talked
+- [20:02.960] about drill baby drill and some people
+- [20:05.520] scoffed at that but under that vision of
+- [20:08.240] energy abundance America now number one
+- [20:10.799] oil producer uh number one natural gas
+- [20:13.360] producer number one LG exporter all of
+- [20:15.760] that in 18 months this industry has is
+- [20:18.799] poised to do the exactly same thing to
+- [20:20.880] revive itself and become a world leader
+- [20:23.600] and it's going to be powered by the next
+- [20:25.200] generation of American entrepreneurs
+- [20:26.799] engineers geologists and skilled miners
+- [20:29.039] and so President Trump this group is
+- [20:30.799] here. Uh you've proven that we can drill
+- [20:32.960] baby girl. This group is here to prove
+- [20:35.039] that we can mine baby mine. Uh and with
+- [20:37.360] the to supporting that uh we're going to
+- [20:39.200] map baby map and we're going to put
+- [20:40.880] American mining back on the map. So
+- [20:43.039] thank you.
+- [20:43.520] >> Thank you very much. And it's something
+- [20:45.280] that we maybe should say we do more oil
+- [20:48.240] right now than Russia and Saudi Arabia
+- [20:51.520] combined. And that's not including
+- [20:53.520] Venezuela where we're getting a lot of
+- [20:55.840] oil and good relationship we have with
+- [20:57.840] them too. but a lot of oil. But we do
+- [21:00.000] without even including Venezuela, we're
+- [21:02.480] doing more oil than Russia and Saudi
+- [21:04.960] Arabia combined. Isn't that something?
+- [21:06.720] That's that's a big difference. Howard,
+- [21:08.640] please. So, let's be clear. Critical
+- [21:11.360] minerals are more than an economic
+- [21:13.360] issue. They are national security issue.
+- [21:15.760] If we want to lead in advanced
+- [21:17.200] manufacturing, AI, semiconductors,
+- [21:19.600] energy, defense, we can't depend on our
+- [21:22.000] foreign adversaries for the materials
+- [21:24.720] that underpin our industries. We we just
+- [21:28.000] can't. And that's why the president
+- [21:30.080] tasked us to rebuild the supply chain
+- [21:32.320] and make it a top priority of his
+- [21:34.159] administration and my department. So our
+- [21:36.799] objective is very simple. We're going to
+- [21:39.280] mine here. We're going to process here.
+- [21:41.520] We're going to refine here. We're going
+- [21:42.960] to manufacture here. And we're going to
+- [21:44.880] create those American jobs right here.
+- [21:47.760] So our section 232 tariffs, right, where
+- [21:50.880] we strengthened our steel, our aluminum,
+- [21:53.280] and our copper industries. And let's
+- [21:55.440] just talk about what that's created. So,
+- [21:56.960] I have a Jesse Garry on my left. I went
+- [21:58.880] down to visit his aluminum smelter and
+- [22:01.679] he's building the one in Oklahoma.
+- [22:04.799] >> No,
+- [22:05.200] >> Jesse's doing the one in Oklahoma where
+- [22:06.880] he's going to double the aluminum
+- [22:08.799] production by the United States of
+- [22:10.159] America. So, that's pretty amazing.
+- [22:11.520] >> Great success,
+- [22:12.159] >> right? Then, of course, we're doing
+- [22:13.280] steel in Alabama. I mean, these are the
+- [22:16.320] first types of smelters and furnaces
+- [22:20.000] that America's had in 40 or 50 years.
+- [22:23.360] And it's only because of your leadership
+- [22:25.600] and the 232 tariffs which you've been
+- [22:27.919] driving. So the chips program right we
+- [22:31.200] gave Korea zinc $7.4 billion to build a
+- [22:34.799] critical mineral smelter right here in
+- [22:36.640] the United States. Vulcan elements $1.4
+- [22:39.360] billion also to build right here in the
+- [22:42.000] United States. Right. Another uh Robert
+- [22:45.200] is sitting next to me. We invested in
+- [22:46.799] Ipulse that's his high techch mining
+- [22:49.360] company to change the way mining is
+- [22:51.600] done. And so we have an investment with
+- [22:53.360] him. And the goal of course is not just
+- [22:55.440] more minerals. It's the full industrial
+- [22:58.159] supply chain on American soil. You have
+- [23:00.799] to remember we lost critical minerals
+- [23:03.760] not because of free markets. It's
+- [23:05.840] because of foreign subsidies, market
+- [23:08.159] distortion, export restrictions,
+- [23:10.480] stockpiling. These adversaries have just
+- [23:12.960] cheated their way to market strength.
+- [23:15.919] And we are back and we're fighting it.
+- [23:17.600] So we're not going to accept dependence
+- [23:19.360] on foreign supplies. We're just not.
+- [23:21.440] That's why we're working across the
+- [23:23.280] world, as Marco pointed out, to expand
+- [23:26.320] our global allies and make sure we're
+- [23:28.320] doing it together. So, we're going to
+- [23:30.159] secure reliable supply. We're going to
+- [23:32.480] strengthen our global partnerships,
+- [23:34.480] right? We're going to back American
+- [23:35.919] companies and we're going to make sure
+- [23:37.120] the United States, not our adversaries,
+- [23:39.840] controls the supply chains of power and
+- [23:43.679] critical minerals for our country and
+- [23:46.240] our future. The bottom line, we need to
+- [23:47.840] control our supply chain. And under your
+- [23:50.480] leadership, we are executing on that and
+- [23:53.600] it is coming. We will mine, we will
+- [23:56.159] process, we will refine right here in
+- [23:58.559] America under the Trump presidency.
+- [24:01.520] >> Thank you. Thank you, Aaron, very much.
+- [24:03.039] And Craig, where's Cray?
+- [24:05.280] >> I'm here, sir.
+- [24:06.159] >> Thank you,
+- [24:07.039] >> Mr. President. First, I want to to thank
+- [24:08.880] you. Uh this is a historic investment in
+- [24:10.960] American mining engineering schools, and
+- [24:12.559] we're really grateful. I also want to
+- [24:14.880] say thank you for what you've already
+- [24:16.240] done towards uh accelerating permitting
+- [24:18.159] for mining in the United States. Uh it's
+- [24:20.559] really been unbelievable. Uh and you've
+- [24:23.279] created pathways for industry and now in
+- [24:25.520] order to achieve American mineral
+- [24:26.960] dominance, we really need technology and
+- [24:28.960] talent and your American mining schools
+- [24:31.279] are ready to get to work. So thank you.
+- [24:33.520] >> Thank you very much. Thank you. Please.
+- [24:36.480] >> Thank you, Mr. President, and thank you
+- [24:37.919] so much for your leadership. I think the
+- [24:39.760] message of the day is we need to mine,
+- [24:42.480] refine, and make things in America. And
+- [24:45.279] I'm I'm pleased to report to you
+- [24:46.880] actually this has been because this has
+- [24:48.799] been a call to action uh from from you
+- [24:51.600] for a long time to make magnets. I'm
+- [24:53.520] pleased to show you actually these are
+- [24:55.200] magnets that um we made at MP for GM.
+- [24:58.799] >> These uh these magnets uh were mined and
+- [25:02.240] refined in the state of California and
+- [25:04.400] made in the state of Texas. 100%
+- [25:07.440] Americanmade. Uh and thanks to your
+- [25:09.760] leadership, we are scaling up that
+- [25:11.440] facility. We're going to triple the
+- [25:13.200] capacity. So, we're delivering magnets
+- [25:14.799] to GM today. Uh next year, we'll be
+- [25:17.279] delivering uh magnetics to Apple. And
+- [25:20.240] then from there, we're going to 10x our
+- [25:22.080] capacity as a result of our our public
+- [25:24.559] private partnership together. Uh we're
+- [25:26.880] going to increase capacity uh for
+- [25:28.799] American industry, which as you
+- [25:30.880] mentioned earlier, uh is going to be uh
+- [25:33.039] the American taxpayer has already
+- [25:34.640] benefited. It'll be great for national
+- [25:36.080] security. It's really a win-winwin, sir.
+- [25:38.720] And lastly, uh that facility is going to
+- [25:40.799] be north of a billion dollars of
+- [25:42.320] investment and and a couple thousand
+- [25:44.080] jobs. So, we really are making a lot of
+- [25:46.480] progress thanks to your leadership. So,
+- [25:48.320] I appreciate
+- [25:49.279] >> Thank you very much, Jim. Great job.
+- [25:50.559] That's so important what you're doing.
+- [25:52.640] Very, very important. Those are the ones
+- [25:54.159] I'd be looking at if I were in your
+- [25:55.919] world.
+- [25:56.880] >> And thank you.
+- [25:57.919] >> Thank you.
+- [25:58.240] >> Uh is Paul Johnson right here?
+- [26:00.159] >> Yes, Mr. President, I'm here. Um Mr.
+- [26:02.159] President, I'm Paul Johnson, president
+- [26:03.600] of Color School Minds. We are the number
+- [26:05.520] one ranked program in the world. Um
+- [26:07.760] we're the largest program in the United
+- [26:09.279] States and uh we are very very excited
+- [26:11.840] about the investments that you're
+- [26:13.360] making. It's pretty hard to go anywhere
+- [26:15.360] in the world and not run across somebody
+- [26:16.640] with a with a minds connection.
+- [26:18.080] Secretary Bergam's experts in critical
+- [26:20.159] materials uh over 200 of them will be
+- [26:22.559] moving to the mines's campus in about
+- [26:24.320] six months. So we'll be looking forward
+- [26:25.679] to welcoming you there for for that
+- [26:27.200] particular ceremony. Um I want to thank
+- [26:29.120] you for two things. One is thank you for
+- [26:30.799] the investment in the mining schools. uh
+- [26:33.120] our expertise has atrophied um over time
+- [26:36.240] particularly in the processing space and
+- [26:38.159] uh this investment is going to make a
+- [26:39.679] big difference. Second thing is while
+- [26:41.840] majority of uh I think programs have
+- [26:44.000] have sort of shrunk over time, we've
+- [26:45.520] actually grown over the last two years.
+- [26:47.360] And I want to uh thank you because I
+- [26:49.039] attribute that growth to your administr
+- [26:50.720] you and your administration's
+- [26:52.240] highlighting of critical minerals uh in
+- [26:54.159] the press and the amazing team that you
+- [26:56.159] have working through you through
+- [26:57.760] interior and energy um other folks. Uh
+- [27:01.200] it has really um I think made it made
+- [27:04.400] families feel like this is a field that
+- [27:06.799] that their children can go into. And I
+- [27:08.559] think that's that's the start.
+- [27:10.480] of of getting things do there. The other
+- [27:11.840] thing I want to thank you for is the
+- [27:13.039] investment you just announced in minds
+- [27:14.880] in our commercialization hub. Um I've
+- [27:17.600] always had this dream of having a
+- [27:19.840] facility and we have a 50,000 foot
+- [27:21.600] facility that could be dedicated to
+- [27:23.919] technology um taking it taking it from
+- [27:26.720] ideas to pilot scale to
+- [27:28.720] commercialization in a very quick period
+- [27:30.559] of time. And your investment in us in
+- [27:32.799] doing that is going to enable us to be
+- [27:34.240] able to do that. We're we're up for the
+- [27:36.159] challenge. We're really excited for it.
+- [27:37.520] we were doing the happy dance a little
+- [27:38.880] earlier when we found out uh for when we
+- [27:41.600] heard your announcement and um really
+- [27:43.760] look forward to to doing what we can for
+- [27:45.520] the country. Thank you.
+- [27:46.480] >> Thank you very much. Great job. Thank
+- [27:48.080] you, Victoria.
+- [27:50.400] >> Um Mr. President, you have brought
+- [27:52.400] mining back to America single-handedly,
+- [27:54.720] you and your administration, and I just
+- [27:56.720] we wanted to thank you for your enduring
+- [27:58.640] support. I run resolution copper, which
+- [28:00.559] is one of the largest undeveloped copper
+- [28:02.480] deposits in the world. It is uh in a
+- [28:05.200] forgotten part of Arizona called the
+- [28:06.720] copper corridor and it is um we've
+- [28:10.480] already invested $3 billion so they were
+- [28:13.520] ready to go but we started permitting in
+- [28:15.679] 2005 and if it were not for your
+- [28:18.159] administration we finally got it over
+- [28:20.080] the line in in this year earlier this
+- [28:22.320] year. So we have 4,000 people that will
+- [28:25.279] work at our facility 4,000 miners. We
+- [28:27.279] hope to work closely with the mining
+- [28:28.880] schools and hire many of the students
+- [28:30.559] that will be graduating. Uh a billion
+- [28:32.880] dollars every year for 60 years invested
+- [28:35.360] into the economy. And we also have a
+- [28:38.080] smelter and I think that's the thing
+- [28:39.600] that makes it very unique. We can keep
+- [28:41.120] everything in the United States and a
+- [28:42.960] host of critical mineral co-products as
+- [28:45.200] well.
+- [28:46.080] >> So um thank you again on behalf of
+- [28:47.600] Riotinto um BHP and the hundreds of
+- [28:50.960] underground miners who are absolutely
+- [28:52.880] fabulous that run the mine today. Uh
+- [28:55.520] thank you very much. We are rolling in
+- [28:57.039] drill rigs. We are rolling in equipment
+- [28:58.960] and we're getting on with it.
+- [29:00.720] >> Good luck.
+- [29:01.520] >> Thank you.
+- [29:01.919] >> Great. I don't think you're going to
+- [29:02.960] need too much luck. Tom and David, go
+- [29:05.440] ahead, please.
+- [29:08.240] >> Mr. President, I'm a very, very proud
+- [29:11.520] former alumni of the University of
+- [29:13.600] Alaska Fairbanks School of Minds. So, on
+- [29:16.159] behalf of all the faculty here, the
+- [29:18.000] students here, I am thrilled with all of
+- [29:20.320] your announcements today. I mean, we've
+- [29:21.919] all been frustrated over over over over
+- [29:24.720] over decades. You're you're making
+- [29:27.120] something happen. I really appreciate
+- [29:28.720] that. My first mining job was in Alaska
+- [29:30.799] staking the claims near the Amler
+- [29:32.880] district. And we were in a rush then.
+- [29:34.480] This was 1975,
+- [29:36.559] 1976, and it's still not permanent.
+- [29:39.120] Thank you for breaking that log jam. Uh
+- [29:41.440] I have present to you um a gift to the
+- [29:44.240] American people uh on a project that
+- [29:46.399] I've been very involved with. It's deep
+- [29:48.000] sea nodules. I'm like you. I'm a fan of
+- [29:50.399] gold. U and this is a solid gold replica
+- [29:53.919] of a deep sea nodule. Now I wish the
+- [29:56.399] nodules down the deep sea had a lot of
+- [29:58.159] gold in them that be more attractive,
+- [30:00.320] but they they they do contain 20
+- [30:02.399] critical metals. And these are 20
+- [30:04.320] critical metals that are going to be
+- [30:05.919] needed for the re-industrialization of
+- [30:08.000] America. They're going to be needed for
+- [30:09.760] defense purposes. They're going to be
+- [30:11.279] needed for all the technologies that we
+- [30:13.600] are relying on and every single citizen
+- [30:15.520] of the United States take for granted.
+- [30:17.600] That should be part a key part of the
+- [30:19.679] supply chain and that's what mining can
+- [30:21.120] do. Thank you very much.
+- [30:22.320] >> Thank you. Where's the gold? Come on.
+- [30:24.240] Bring it over. [laughter]
+- [30:26.000] >> Pass it down.
+- [30:26.960] >> I want the gold. He just said, "Let me
+- [30:28.960] see what it looks like."
+- [30:30.159] >> It should be very heavy. It's the heavy.
+- [30:32.320] >> The gold is more fun.
+- [30:33.360] >> Let me see.
+- [30:38.320] >> It is. It's heavy.
+- [30:39.760] >> It's real.
+- [30:40.640] >> That's fantastic.
+- [30:42.399] Oh, I like that, too. Huh? This is so
+- [30:45.520] valuable.
+- [30:46.960] Yes sir.
+- [30:47.440] >> I don't know. Do you have a lot of
+- [30:48.480] competition? I hope because people have
+- [30:50.799] to go after this is so people have no
+- [30:53.360] idea how valuable that. Thank you very
+- [30:55.520] much fellas. It's really beautiful.
+- [30:57.520] Please David.
+- [30:58.320] >> And as somebody who joined the Trump
+- [30:59.840] administration from the mining industry,
+- [31:01.200] I just want to say that absolutely
+- [31:02.880] nobody supports our industry more than
+- [31:05.120] President Trump. So for decades, we've
+- [31:07.120] felt ignored by Washington and we've
+- [31:09.279] seen our industry outsourced to our
+- [31:10.799] geopolitical competitors. So, I'm so
+- [31:12.799] grateful to work for you because you get
+- [31:14.640] it and you understand that this industry
+- [31:16.240] is foundational to our economic and
+- [31:17.919] national security. So, thank you, Mr.
+- [31:19.600] President, for your leadership on these
+- [31:20.880] issues and I know from all of us here in
+- [31:22.640] industry that we are committed to
+- [31:24.080] building the world's best mining sector
+- [31:26.240] here in the United States and
+- [31:27.200] reestablishing American mineral
+- [31:28.399] dominance. Thank you, sir.
+- [31:29.360] >> Great. Thank you very much,
+- [31:31.440] >> my friend.
+- [31:33.120] >> Well, the mining industry has no greater
+- [31:35.360] friend than President Trump. He's
+- [31:37.279] obviously everybody knows he's the
+- [31:38.799] greatest deal maker in the world. But
+- [31:40.240] what he's doing here today is bigger
+- [31:41.679] than any deal or one deal or two deals.
+- [31:44.399] This is generational. He is focusing on
+- [31:47.120] the next generation of miners. That is
+- [31:49.440] something that has never been done
+- [31:50.880] before by a president of the United
+- [31:52.399] States. He is single-handedly today
+- [31:55.039] going to change the entire next
+- [31:57.039] generation of mining in America. And he
+- [31:59.440] is making America the center of energy
+- [32:02.000] dominance for the world. So thank you,
+- [32:03.600] Mr. President. Well, thank you very much
+- [32:05.519] and great. Would you like to say
+- [32:07.200] anything, fellas?
+- [32:09.279] >> Good looking guys here.
+- [32:10.640] >> Mr. President, um this is a truly
+- [32:13.760] historic occasion to bring America back
+- [32:16.159] to the leadership of mining which built
+- [32:18.399] this building and which built this
+- [32:19.840] country. We've been sleepwalking through
+- [32:23.200] many administrations. And this is a
+- [32:25.519] revolution that will just electrify
+- [32:29.120] the millions of people in the United
+- [32:30.559] States that understand that everything
+- [32:31.919] you touch, we either mind it or we grew
+- [32:34.799] it agriculturally. And the people that
+- [32:36.399] are the farmers really need everything
+- [32:38.880] the miners produce to help them farm.
+- [32:40.880] So, this is critical to our national
+- [32:43.120] security. Uh we're elated with your
+- [32:45.840] support and we're going to use Yankee
+- [32:49.200] ingenuity to prove that we can dominate
+- [32:51.440] the supply chain again rather than have
+- [32:53.519] that used by other nations against us.
+- [32:56.640] Thank you for that.
+- [32:57.679] >> You know, you used the word
+- [32:58.799] sleepwalking. That's what our country
+- [33:00.320] was doing with respect to mining and
+- [33:02.000] many other things too by the way. But
+- [33:03.919] sleepwalking, it's a great word. Thank
+- [33:06.240] you.
+- [33:06.640] >> Thank you.
+- [33:07.120] >> Please.
+- [33:09.519] >> Yeah. Um it's an honor to be here. This
+- [33:12.080] is so exciting to see this attention.
+- [33:14.320] Um, you know, I'll just say thank you
+- [33:16.640] for your attention to this matter as you
+- [33:18.960] like to end your posts. It's it's
+- [33:20.480] awesome. And uh we're here and we're
+- [33:22.880] ready to go. So, thank you.
+- [33:25.632] [applause]
+- [33:29.840] >> Well, I just want to thank you very
+- [33:31.519] much. This is an honor for me to be
+- [33:33.360] here. Uh, I love what you do.
+- [33:37.600] Doug made a terrible mistake before when
+- [33:39.519] he said Cole. I said you have to always
+- [33:41.519] precede it by saying clean beautiful
+- [33:44.080] call. He made a speech once and it was a
+- [33:46.720] great speech but he took me very much
+- [33:49.279] you know at the word he said clean
+- [33:52.320] beautiful call. He mentioned call about
+- [33:53.760] 40 times and he kept saying clean
+- [33:55.200] beautiful. I said okay that's enough
+- [33:56.720] that's enough but it is it needs a uh
+- [34:00.000] little public relations help but it
+- [34:02.240] doesn't need so much anymore. We're
+- [34:03.760] producing more coal now than just about
+- [34:05.600] ever before. It's firing up our great
+- [34:08.800] plants and certain types of plant.
+- [34:10.560] There's, you know, nothing like it. And
+- [34:12.720] we're out of that business. If you would
+- [34:14.639] have seen the people suffer and some of
+- [34:17.520] you were those people. I believe some of
+- [34:19.040] you were the people. But, uh, this great
+- [34:22.480] big coal deposits and you couldn't touch
+- [34:25.119] them. If you touched them, you were like
+- [34:26.399] a bad person. They put you in jail. It
+- [34:28.720] was the craziest thing I've ever seen.
+- [34:31.040] And, you know, China's smart and they're
+- [34:32.879] using coal. They're building 58 coal
+- [34:34.960] plants right now. Generating plants, all
+- [34:37.599] coal. Uh they don't have too much wind.
+- [34:39.919] You know, they sell us wind turbines,
+- [34:41.520] but they don't use too many of them. So,
+- [34:43.359] it's because they're smart. They sell
+- [34:45.200] them, but they don't use them. They have
+- [34:46.720] one that's pretty big. Doesn't work. It
+- [34:49.679] just is for purposes of show. When they
+- [34:52.079] go to look at a turbine, they go and
+- [34:53.520] show them. And here we are. But they
+- [34:55.280] never work. So, it's uh it's crazy. But
+- [34:58.640] uh clean, beautiful coal is something
+- [35:00.480] special. It's all very special. and
+- [35:02.640] we're back in the mining business. And
+- [35:04.480] I'm very proud of the country. I'm very
+- [35:06.079] proud of what you do. You do. You really
+- [35:08.079] do. I say I said before walking in,
+- [35:10.160] these are the people that really built
+- [35:12.880] America. And you were not treated
+- [35:14.640] properly, but you're uh we're making up
+- [35:17.040] for lost time. You're being treated very
+- [35:19.200] properly right now. So, I just want to
+- [35:20.800] thank everybody. Great honor to be with
+- [35:22.720] you. Thank you. Congratulations.
+- [35:24.844] [applause]
+- [35:32.704] >> [music]
+- [35:37.944] [music]
+- [35:42.400] >> Heat. Heat.
+- [35:45.804] [music]
+- [36:00.214] >> [music]
+- [36:00.960] >> Heat. Heat.
+- [36:10.039] [music]
+- [36:15.935] >> [music]
