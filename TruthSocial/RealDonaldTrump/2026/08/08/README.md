@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-08-08
 
-- Posts: 22
+- Posts: 25
 
+- [19:51 UTC - Cash is king: Washington Republicans bankroll midterms as National Democrat coffers are in...](117061628394581449/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117061628394581449
+  - Cash is king: Washington Republicans bankroll midterms as National Democrat coffers are in the red: [https:// justthenews.com/politics-polic y/elections/cash-king-republicans-bankr...
+- [19:51 UTC - More than 600,000 voter files ripped off Arizona site in 2020 by hacker, but DOJ didn't pr...](117061626683883531/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117061626683883531
+  - More than 600,000 voter files ripped off Arizona site in 2020 by hacker, but DOJ didn't prosecute: [https:// justthenews.com/government/cou rts-law/6amhundreds-thousands-voter-file...
+- [19:50 UTC - New evidence further undermines claim that 2020 election was ‘most secure’ in history: [ht...](117061625172029469/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117061625172029469
+  - New evidence further undermines claim that 2020 election was ‘most secure’ in history: [https:// justthenews.com/politics-polic y/elections/new-evidence-further-undermines-claim-20...
 - [17:08 UTC - Truth Social post 117060987719435030](117060987719435030/)
   - Source: https://truthsocial.com/@realDonaldTrump/117060987719435030
   - _No text content captured._
