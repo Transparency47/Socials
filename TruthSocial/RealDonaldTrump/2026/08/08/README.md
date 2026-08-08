@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2026-08-08
+
+- Posts: 14
+
+- [02:53 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117057626226861348](117057627008755167/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117057627008755167
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117057626226861348
+- [02:53 UTC - Truth Social post 117057626226861348](117057626226861348/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117057626226861348
+  - _No text content captured._
+- [02:24 UTC - Truth Social post 117057509638719175](117057509638719175/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117057509638719175
+  - _No text content captured._
+- [02:16 UTC - Truth Social post 117057479378658176](117057479378658176/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117057479378658176
+  - _No text content captured._
+- [02:15 UTC - Truth Social post 117057476992290409](117057476992290409/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117057476992290409
+  - _No text content captured._
+- [02:15 UTC - Truth Social post 117057476136418935](117057476136418935/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117057476136418935
+  - _No text content captured._
+- [02:15 UTC - Truth Social post 117057475422420857](117057475422420857/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117057475422420857
+  - _No text content captured._
+- [02:04 UTC - This great and very important military asset sits atop the heavily protected Ballroom at t...](117057432376326350/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117057432376326350
+  - This great and very important military asset sits atop the heavily protected Ballroom at the White House. It provides National Security for Washington, D.C., and will protect futur...
+- [01:41 UTC - Donald Trump Won The Iran War: [https://www. 19fortyfive.com/2026/08/donald -trump-won-the...](117057342760619458/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117057342760619458
+  - Donald Trump Won The Iran War: [https://www. 19fortyfive.com/2026/08/donald -trump-won-the-iran-war/](https://www.19fortyfive.com/2026/08/donald-trump-won-the-iran-war/)
+- [01:41 UTC - Just kidding!](117057340319953837/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117057340319953837
+  - Just kidding!
+- [01:40 UTC - Truth Social post 117057337894030242](117057337894030242/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117057337894030242
+  - _No text content captured._
+- [01:40 UTC - Truth Social post 117057337168849076](117057337168849076/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117057337168849076
+  - _No text content captured._
+- [01:40 UTC - Truth Social post 117057336381597225](117057336381597225/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117057336381597225
+  - _No text content captured._
+- [01:39 UTC - Truth Social post 117057335936702979](117057335936702979/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117057335936702979
+  - _No text content captured._
