@@ -1,16 +1,16 @@
 {
   "last_errors": [
     "X/DHSgov: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/EnvoyNoem: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/EnvoyNoem",
+    "X/EnvoyNoem: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/FBIDirectorKash: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/ICEgov: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/ICEgov",
-    "X/POTUS: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/POTUS",
-    "X/PressSec: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/PressSec",
-    "X/RapidResponse47: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/RapidResponse47",
-    "X/RealDonaldTrump: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/RealDonaldTrump",
-    "X/SecMullinDHS: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/SecMullinDHS",
-    "X/VP: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/VP",
-    "X/WhiteHouse: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/WhiteHouse",
+    "X/ICEgov: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "X/POTUS: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "X/PressSec: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "X/RapidResponse47: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/gFlszhSr3uE: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=gFlszhSr3uE! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
@@ -11025,6 +11025,17 @@
       "published": "2026-08-08T13:46:37+00:00",
       "title": "Gotta get it \ud83d\udd7a",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7671656597504019725"
+    },
+    "tiktok:whitehouse:7672036955378421006": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-08-09T15:05:51.708919+00:00",
+      "path": "TikTok/WhiteHouse/2026/08/09/7672036955378421006",
+      "platform": "tiktok",
+      "post_id": "7672036955378421006",
+      "published": "2026-08-09T14:22:15+00:00",
+      "title": "\ud83c\uddfa\ud83c\uddf8\ud83c\uddfa\ud83c\uddf8\ud83c\uddfa\ud83c\uddf8",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7672036955378421006"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
