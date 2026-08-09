@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-08-09
 
-- Posts: 22
+- Posts: 25
 
+- [20:51 UTC - With the great Gary Player, today, at Bedminster!](117067527191152715/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117067527191152715
+  - With the great Gary Player, today, at Bedminster!
+- [20:50 UTC - 51 years of bad behavior!](117067520999490226/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117067520999490226
+  - 51 years of bad behavior!
+- [20:44 UTC - The 10th Hole at Trump International Golf Club, Palm Beach County, Florida!](117067497912465638/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117067497912465638
+  - The 10th Hole at Trump International Golf Club, Palm Beach County, Florida!
 - [20:19 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117067399388398239](117067400225404799/)
   - Source: https://truthsocial.com/@realDonaldTrump/117067400225404799
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117067399388398239
