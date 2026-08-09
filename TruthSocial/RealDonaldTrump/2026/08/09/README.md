@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-08-09
 
-- Posts: 20
+- Posts: 22
 
+- [20:19 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117067399388398239](117067400225404799/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117067400225404799
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/117067399388398239
+- [20:19 UTC - Truth Social post 117067399388398239](117067399388398239/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117067399388398239
+  - _No text content captured._
 - [16:55 UTC - Gary Player at Trump Turnberry!](117066600252281502/)
   - Source: https://truthsocial.com/@realDonaldTrump/117066600252281502
   - Gary Player at Trump Turnberry!
