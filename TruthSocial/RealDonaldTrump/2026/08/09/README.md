@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-08-09
 
-- Posts: 31
+- Posts: 32
 
+- [23:17 UTC - Exclusive — Inside Greece’s Migrant Control Operation Center: Migration Minister Reveals H...](117068101532228577/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117068101532228577
+  - Exclusive — Inside Greece’s Migrant Control Operation Center: Migration Minister Reveals How Trump Win Sparked Worldwide Border Crackdown: [https://www. breitbart.com/europe/2026/0...
 - [22:46 UTC - Truth Social post 117067979698523937](117067979698523937/)
   - Source: https://truthsocial.com/@realDonaldTrump/117067979698523937
   - _No text content captured._
