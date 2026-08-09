@@ -1,7 +1,52 @@
 # TruthSocial / RealDonaldTrump / 2026-08-09
 
-- Posts: 2
+- Posts: 17
 
+- [02:22 UTC - Truth Social post 117063165801239278](117063165801239278/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117063165801239278
+  - _No text content captured._
+- [02:22 UTC - Truth Social post 117063165308639374](117063165308639374/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117063165308639374
+  - _No text content captured._
+- [02:22 UTC - Truth Social post 117063164763452313](117063164763452313/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117063164763452313
+  - _No text content captured._
+- [02:22 UTC - Truth Social post 117063164025384663](117063164025384663/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117063164025384663
+  - _No text content captured._
+- [02:22 UTC - Truth Social post 117063163593295206](117063163593295206/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117063163593295206
+  - _No text content captured._
+- [02:21 UTC - Truth Social post 117063162955258981](117063162955258981/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117063162955258981
+  - _No text content captured._
+- [02:21 UTC - Truth Social post 117063162328917337](117063162328917337/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117063162328917337
+  - _No text content captured._
+- [02:21 UTC - Truth Social post 117063161789642512](117063161789642512/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117063161789642512
+  - _No text content captured._
+- [02:21 UTC - Truth Social post 117063161687061697](117063161687061697/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117063161687061697
+  - _No text content captured._
+- [02:20 UTC - Trump's Vegas Visit Hammers Tax Wins: [https:// townhall.com/news/cameron-arca nd/2026/08/...](117063159545723427/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117063159545723427
+  - Trump's Vegas Visit Hammers Tax Wins: [https:// townhall.com/news/cameron-arca nd/2026/08/05/trumps-vegas-hit-hammers-tax-wins-n2680764](https://townhall.com/news/cameron-arcand/20...
+- [02:20 UTC - Jobless Claims Remain Below 200,000 For Third Straight Week—First Time in 57 Years: [https...](117063158411074182/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117063158411074182
+  - Jobless Claims Remain Below 200,000 For Third Straight Week—First Time in 57 Years: [https://www. breitbart.com/economy/2026/08/ 06/jobless-claims-remain-below-200000-for-third-str...
+- [02:20 UTC - Trump: US Has 'Massive' Amounts of Munitions: [https://www. newsmax.com/politics/donald-tr...](117063157165945336/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117063157165945336
+  - Trump: US Has 'Massive' Amounts of Munitions: [https://www. newsmax.com/politics/donald-tr ump-munitions-shortages/2026/08/06/id/1265250/](https://www.newsmax.com/politics/donald-t...
+- [02:20 UTC - Trump to host more than 120 Team USA Winter Olympians and Paralympians: [https://www. usat...](117063156331577591/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117063156331577591
+  - Trump to host more than 120 Team USA Winter Olympians and Paralympians: [https://www. usatoday.com/story/news/politi cs/2026/08/06/trump-hosts-winter-olympians-paralympians-white-h...
+- [02:19 UTC - Trump gets immigration victory as federal judge clears path to end Haiti TPS following Sup...](117063155226329500/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117063155226329500
+  - Trump gets immigration victory as federal judge clears path to end Haiti TPS following Supreme Court ruling: [https:// nypost.com/2026/08/05/us-news/ trump-gets-immigration-victory...
+- [02:19 UTC - EXCLUSIVE: White House Launches Fraud Website To Highlight Successes Of Task Force: [https...](117063154145033716/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117063154145033716
+  - EXCLUSIVE: White House Launches Fraud Website To Highlight Successes Of Task Force: [https://www. dailywire.com/news/exclusive-w hite-house-launches-fraud-website-to-highlight-succ...
 - [00:49 UTC - Truth Social post 117062801672258297](117062801672258297/)
   - Source: https://truthsocial.com/@realDonaldTrump/117062801672258297
   - _No text content captured._
