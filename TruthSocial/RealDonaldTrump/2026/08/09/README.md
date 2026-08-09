@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-08-09
 
-- Posts: 19
+- Posts: 20
 
+- [16:55 UTC - Gary Player at Trump Turnberry!](117066600252281502/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117066600252281502
+  - Gary Player at Trump Turnberry!
 - [16:51 UTC - Hillary Clinton: “The world may not like Trump’s Gaza plan — but there is no alternative: ...](117066584024874286/)
   - Source: https://truthsocial.com/@realDonaldTrump/117066584024874286
   - Hillary Clinton: “The world may not like Trump’s Gaza plan — but there is no alternative: If even I, an implacable opponent of the president, can accept this as the best option, th...
