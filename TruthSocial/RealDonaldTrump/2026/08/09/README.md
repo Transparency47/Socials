@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-08-09
 
-- Posts: 28
+- Posts: 31
 
+- [22:46 UTC - Truth Social post 117067979698523937](117067979698523937/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117067979698523937
+  - _No text content captured._
+- [22:45 UTC - Truth Social post 117067974981018254](117067974981018254/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117067974981018254
+  - _No text content captured._
+- [22:43 UTC - Truth Social post 117067966397933602](117067966397933602/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117067966397933602
+  - _No text content captured._
 - [22:10 UTC - ALERT: A National Park Service career employee, a highly credible witness, saw David Hearn...](117067837821298859/)
   - Source: https://truthsocial.com/@realDonaldTrump/117067837821298859
   - ALERT: A National Park Service career employee, a highly credible witness, saw David Hearn (ActBlue) in broad daylight vandalize the Reflecting Pool by “violently” ripping and tugg...
