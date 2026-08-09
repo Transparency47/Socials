@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-08-09
 
-- Posts: 18
+- Posts: 19
 
+- [16:51 UTC - Hillary Clinton: “The world may not like Trump’s Gaza plan — but there is no alternative: ...](117066584024874286/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117066584024874286
+  - Hillary Clinton: “The world may not like Trump’s Gaza plan — but there is no alternative: If even I, an implacable opponent of the president, can accept this as the best option, th...
 - [13:32 UTC - Truth Social post 117065799723188252](117065799723188252/)
   - Source: https://truthsocial.com/@realDonaldTrump/117065799723188252
   - _No text content captured._
