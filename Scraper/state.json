@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=xPpt_gT1iRM: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=xPpt_gT1iRM! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=xPpt_gT1iRM&ei=kep4au-sPKGm0_wPpseFqAw&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1786334466&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=CC8A354636FCAE20C8D0779142CF34CF81CD1059.5338A6E0428701B24533C1F5CC2E96545DDB602B&key=yt8&kind=asr&lang=en&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=xPpt_gT1iRM: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=xPpt_gT1iRM! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=xPpt_gT1iRM&ei=MfV4asbrO43jy_sP-bme6Qk&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1786337185&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=CB53BA081B4009C072A425F8FB5848DAA81995D8.6F2EEFB3FB2EE1DAEE17888C296ECD3EC4ACE95D&key=yt8&kind=asr&lang=en&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -132421,6 +132421,28 @@
       "published": "2026-08-09T20:51:43.479000+00:00",
       "title": "With the great Gary Player, today, at Bedminster!",
       "url": "https://truthsocial.com/@realDonaldTrump/117067527191152715"
+    },
+    "truthsocial:realdonaldtrump:117067614963933704": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-09T21:46:11.183903+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/09/117067614963933704",
+      "platform": "truthsocial",
+      "post_id": "117067614963933704",
+      "published": "2026-08-09T21:14:02.784000+00:00",
+      "title": "Black and Brown Voters don\u2019t want Communism or Socialism \u2014 Not surprisingly, they are floc...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117067614963933704"
+    },
+    "truthsocial:realdonaldtrump:117067668006565228": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-08-09T21:46:11.183551+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/08/09/117067668006565228",
+      "platform": "truthsocial",
+      "post_id": "117067668006565228",
+      "published": "2026-08-09T21:27:32.150000+00:00",
+      "title": "It is my Great Honor to announce that, effective September 1st, Will Scharf will become As...",
+      "url": "https://truthsocial.com/@realDonaldTrump/117067668006565228"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",

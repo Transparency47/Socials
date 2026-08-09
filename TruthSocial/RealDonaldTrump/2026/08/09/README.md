@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-08-09
 
-- Posts: 25
+- Posts: 27
 
+- [21:27 UTC - It is my Great Honor to announce that, effective September 1st, Will Scharf will become As...](117067668006565228/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117067668006565228
+  - It is my Great Honor to announce that, effective September 1st, Will Scharf will become Assistant to the President and White House Counsel, replacing a man, David Warrington, who h...
+- [21:14 UTC - Black and Brown Voters don’t want Communism or Socialism — Not surprisingly, they are floc...](117067614963933704/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117067614963933704
+  - Black and Brown Voters don’t want Communism or Socialism — Not surprisingly, they are flocking to the Republican Party! They remember that Abraham Lincoln was a Republican! Preside...
 - [20:51 UTC - With the great Gary Player, today, at Bedminster!](117067527191152715/)
   - Source: https://truthsocial.com/@realDonaldTrump/117067527191152715
   - With the great Gary Player, today, at Bedminster!
