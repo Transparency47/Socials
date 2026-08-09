@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-08-09
 
-- Posts: 27
+- Posts: 28
 
+- [22:10 UTC - ALERT: A National Park Service career employee, a highly credible witness, saw David Hearn...](117067837821298859/)
+  - Source: https://truthsocial.com/@realDonaldTrump/117067837821298859
+  - ALERT: A National Park Service career employee, a highly credible witness, saw David Hearn (ActBlue) in broad daylight vandalize the Reflecting Pool by “violently” ripping and tugg...
 - [21:27 UTC - It is my Great Honor to announce that, effective September 1st, Will Scharf will become As...](117067668006565228/)
   - Source: https://truthsocial.com/@realDonaldTrump/117067668006565228
   - It is my Great Honor to announce that, effective September 1st, Will Scharf will become Assistant to the President and White House Counsel, replacing a man, David Warrington, who h...
